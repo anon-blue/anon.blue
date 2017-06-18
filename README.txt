@@ -12,7 +12,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+      Je suis perdu sur internet                                                
                                                                                 
                                                                      poopy grand
 farts                                                                           
@@ -51,7 +51,7 @@ idkdkfjffdfsffdsfdsfdsd
                                                                                 
                                                                                 
                                    rfcaribou?                                   
-                                                                                
+                 Pourquoi je suis sans remord après avoir donné la mort         
                                                                                 
                                                                                 
                                                                                 
