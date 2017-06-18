@@ -35,8 +35,8 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
                                                                                 
                                                                                 
                                                                                 
-          2255555555555555555555555555555555555555555555p55555555555555555555555
-5555555555555555555555555555555                                                 
+          2255555555555555555555555555555555555555555555pi...i can't chose where
+ i write55555555555555555555555                                                 
                                                                                 
   kiiiiiii                                                                      
                                                                                 
