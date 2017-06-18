@@ -38,8 +38,8 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
           2255555555555555555555555555555555555555555555pi...i can't chose where
  i write i'm on my phone dude yoururhtu e you told me about anon around the swim
 ming pool do you copy?                                                          
-  kiiiiiii                                                                      
-                                                                                
+  kiiiiiii                                                     il faut tuer dona
+ld trimp                                                                        
                                                                                 
                                                                                 
                                         ballllllls                              
@@ -51,7 +51,7 @@ idkdkfjffdfsffdsfdsfdsd
                                                                                 
                                                                                 
                                    rfcaribou?                                   
-                 Pourquoi je suis sans remord après avoir donné la mort         
+                 Pourquoi je suis sans remord après avoir donné la mort ?       
                                                                                 
                                                                                 
                                                                                 
