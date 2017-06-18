@@ -5,11 +5,11 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                        covfefe                                 
                                                                                 
                                                                                 
                                                                       J'ai mangé
- du cacdavre pendant si longtemps que je ne sa                                  
+ du cacdavre pendant si longtemps que je ne saos plu s fsogido                  
                                                                                 
                                                                                 
       Je suis perdu sur internet                                                
