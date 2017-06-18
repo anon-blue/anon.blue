@@ -36,7 +36,7 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
                                                                                 
                                                                                 
           2255555555555555555555555555555555555555555555pi...i can't chose where
- i write i'm on my phone dude you know me you told me about anon around the swim
+ i write i'm on my phone dude yoururhtu e you told me about anon around the swim
 ming pool do you copy?                                                          
   kiiiiiii                                                                      
                                                                                 
