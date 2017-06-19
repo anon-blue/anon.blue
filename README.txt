@@ -10,8 +10,8 @@
                                                                                 
                                                                       J'ai mangé
  du cacdavre pendant si longtemps que je ne saos plu s fsogido                  
-  cookl font bro                                                            J'  
-                                                                                
+  cookl font bro                                                            J'ai
+ejfejpas effacé  ces traces et                                                  
       Je suis perdu sur internet                                                
                                                                                 
                                                                      poopy grand
