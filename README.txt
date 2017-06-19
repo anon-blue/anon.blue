@@ -32,8 +32,8 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                gggggg aw ye its
+ ya boy                                                                         
                                                                                 
           2255555555555555555555555555555555555555555555pi...i can't chose where
  i write i'm on my phone dude yoururhtu e you told me about anon around the swim
@@ -44,7 +44,7 @@ ld trimp
                                                                                 
                                         ballllllls                              
                                                                                 
-                           4rebel dude wheneksbsjdnejenwnekdbebekdndjd diendjdir
+                           4rebel dude helloksbsjdnejenwnekdbebekdndjd diendjdir
 idkdkfjffdfsffdsfdsfdsd                                                         
                                                                                 
                       J'ai sans cesse ce songe saubage de lui sucer le sang     
