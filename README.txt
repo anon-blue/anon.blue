@@ -11,8 +11,8 @@
                                                                       J'ai mangé
  du cacdavre pendant si longtemps que je ne saos plu s fsogido                  
   cookl font bro                                                            J'ai
-ejfejpas effacé  ces traces et RésistanceREAD ME                                
-      Je suis perdu sur internet                                                
+ejfejpas effacé  ces traces et RésistanceREAD ME                           23333
+3333333333333333333333333333333333333333333333333333333333                      
                                                                                 
                                                                      poopy grand
 farts            'dropTable*                                                    
@@ -39,7 +39,7 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
  i write i'm on my phone dude yoururhtu e you told me about anon around the swim
 ming pool do you copy?                                                          
   kiiiiiii                                                     il faut tuer dona
-ld trimp                                                                        
+ld trimp                                                                  sdcard
         ffsddasadasdada                                                         
                                                                                 
                                         ballllllls                              
