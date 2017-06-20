@@ -47,11 +47,11 @@ ld trimp                                                                  sdcard
                            4rebel dude helloksbsjdnejenwnekdbebekdndjd diendjdir
 idkdkfjffdfsffdsfdsfdsd                                                         
 fefefttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttsonge saubage de lui sucer le sang     
-                                                                                
-                                                                                
-                                   rfcaribou?                                   
-                 Pourquoi je suis sans remord après avoir donné la mort ?       
+tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+ttttttttttttttttttttttttttttttttttttttttttttttttjoifeja;ojfaowjfawjlkt4jioshtisj
+tlksjsijfls;jfl;awjfklaewjfajflak jfklsdjfsldjfaslj falsjflksajdf ajeoifjaowie j
+fowejfojweoifjawofjwoijefalwjfe oiwaejf oiwjaef; jw;lf jl;asjflksadj fa;lsjthis 
+is tnotnot an at this is boall thand uoafjalksejflkjef;lkjfealefla mort ?       
                                                                                 
                                                                                 
                                                                                 
