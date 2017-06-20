@@ -46,8 +46,8 @@ ld trimp                                                                  sdcard
                                                                                 
                            4rebel dude helloksbsjdnejenwnekdbebekdndjd diendjdir
 idkdkfjffdfsffdsfdsfdsd                                                         
-                                                                                
-                      J'ai sans cesse ce songe saubage de lui sucer le sang     
+fefefttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+tttttttttttttttttttttttttttttttttttttttttsonge saubage de lui sucer le sang     
                                                                                 
                                                                                 
                                    rfcaribou?                                   
