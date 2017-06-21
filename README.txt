@@ -31,20 +31,20 @@ deeeeeeeeeeeeeeeeeeeeeeeeeeeeeoijoijoijoijeeeeeeeeee
                                                                                 
                                                                                 
                                                                                 
-                                                                           le ba
-ttement n'est pas si fort                                       gggggg aw ye its
- ya boy                                                                         
+                                                     what in the world is this w
+ebstie what if i just overwriter everything lol im gonna trol every body        
                                                                                 
-          2255555555555555555555555555555555555555555555pi...i can't chose where
- i write i'm on my phone dude yoururhtu e you told me about anon around the swim
-ming pool do you copy?                                                          
-  kiiiiiii                                                     il faut tuer dona
-ld trimp                                                                  sdcard
-        ffsddasadasdada                                                         
                                                                                 
-                                        ballllllls                              
                                                                                 
-                           4rebel dude helloksbsjdnejenwnekdbebekdndjd diendjdir
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                         endjdir
 idkdkfjffdfsffdsfdsfdsd                                                         
 fefefttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
