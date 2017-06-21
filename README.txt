@@ -1,9 +1,9 @@
                                                                                 
                                                                                 
                                                                                 
-       you have be                                                              
-                                                                                
-                                                                                
+       you have been hacked,. mountaing crap thsi this damn computer cant backsp
+pace wht fiuc fuck issis bith nigragiuwgjldskjfilsdifjdslkfjdslkfjsdlkfjsdlkfjss
+ssssssssssops op oops that was a error dont wory tho you got system c eddeleted 
                                                                                 
                                                                                 
                                                                                 
