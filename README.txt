@@ -1,15 +1,15 @@
-  canyoureadmebowie?                                                            
                                                                                 
                                                                                 
                                                                                 
-                  yo                                                            
-                                                                                
-         jshhshhs                                                               
-                                        covfefe                                 
                                                                                 
                                                                                 
-                                                                      J'ai mangé
- du cacdavre pendant si longtemps que je ne saos plu s fsogido                  
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+              endant si longtemps que je ne saos plu s fsogido                  
   cookl font bro                                                            J'ai
 ejfejpas effacé  ces traces et RésistanceREAD ME                           23333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
@@ -44,17 +44,17 @@ ebstie what if i just overwriter everything lol im gonna trol every body
                                                                                 
                                                                                 
                                                                                 
-                                                                         endjdir
-idkdkfjffdfsffdsfdsfdsd                                                         
-fefefttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-ttttttttttttttttttttttttttttttttttttttttttttttttjoifeja;ojfaowjfawjlkt4jioshtisj
-tlksjsijfls;jfl;awjfklaewjfajflak jfklsdjfsldjfaslj falsjflksajdf ajeoifjaowie j
-fowejfojweoifjawofjwoijefalwjfe oiwaejf oiwjaef; jw;lf jl;asjflksadj fa;lsjthis 
-is tnotnot an at this is boall thand uoafjalksejflkjef;lkjfealefla mort ?       
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                          testhidsfsfsfsdfsf                                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
