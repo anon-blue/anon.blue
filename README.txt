@@ -13,7 +13,7 @@ ssssssssssops op oops that was a error dont wory tho you got system c eddeleted
                                                                                 
                                                                                 
                        ^fat boi%$9238759jk now i will error everything          
-  gsdgsdddddddddddddddddddddddddddddddddddddddddddddddddddddddd                 
+  gsdgsdddddddddddddddYou have beenhacked make a crashddddddddd                 
                                                                                 
                                                                                 
                                                                                 
