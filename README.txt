@@ -16,8 +16,8 @@ bnxudthvxsdkjl nvriuvhlkdsjvhbsdlurhuird vghdrusv hsiuruk hsruedh vskerl ksuj vr
 t u rkjlfsdnvserhvgurmdsh fvhsedkrvfh lrsfduil hnrlkjudh vbuikrdnvsrilvkr hvrkjh
 vs nvrsdkj bnsru b fruv                     bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbvv
-vvv         isthisforreal?                                                      
-                                                                                
+vvv         isthisforreal?                     jkkj i live in somewhere dsjlfsjf
+lsjflsdajflwkejfoiwjvokljfl what is ....... what am i doing with my             
                                                                                 
                                                                                 
                                                                                 
