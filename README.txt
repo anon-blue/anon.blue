@@ -31,7 +31,7 @@ sjflsdajflwkejfoiwjvokljfl what is ....... what am i doing with my life
                                                                                 
     HHelkkddkHelllo What aere you doing with your life?                         
                                                                                 
-                                                                                
+                                                 HOMO                           
                                                                                 
                                                                         bbbbnn  
                                                          figdet spinnes rs for l
