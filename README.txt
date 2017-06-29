@@ -22,7 +22,7 @@ sjflsdajflwkejfoiwjvokljfl what is ....... what am i doing with my life
                                                                                 
                                                                                 
                                                                                 
-                                      jumbotron                                 
+                             my name is dank memes snd pepes                    
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@ ife
                                                                                 
                                                                                 
                                                          meaning of life:       
-                                         @dfgbfdghlgfygaufhfigalilqwhgiuhil4hg  
+                                         @dfgbfdghlgfheheloloworldqwhgiuhil4hg  
                                                                                 
                                                                                 
                                                                                 
