@@ -2,8 +2,8 @@
 dfsdfsdffssdddddddsfdsfdsfsfd`                          hakaofkeisid            
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                      ffffggggg 
+why is this my lif e now i dont understand i need help pleas hELP               
                                                                                 
                                                                                 
     jknkjl covfefe covfefe covfefe COVFEFE covfefe covfefe covfefe covfefe oit? 
@@ -56,5 +56,5 @@ fjkasl;kdfjlsakdfjl;aksg
                                          @dfgbfdghlgfheheloloworldqwhgiuhil4hg  
            investment for life                                                  
                                                                                 
-                                         rfwhatifthisisthelife                  
-                                                                                
+                                         rfwhatifthisisthelifeweareallwaiteingfo
+r HEELLLLLLLLLLLLLLLLLLP                                                        
