@@ -31,7 +31,7 @@ e to disneyland this is dickey mouse i eat chilsds
                                                                                 
     HHelkkddkHelllo What aere you doing with your life?                         
                                                                                 
-                                                 HOMO                           
+         h                                       HOMO                           
                                                                                 
                                                                         bbbbnn  
                                                          figdet spinnes rs for l
