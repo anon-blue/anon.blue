@@ -8,7 +8,7 @@ why is this my lif e now i dont understand i need help pleas hELP
                                                                                 
     jknkjl covfefe covfefe covfefe COVFEFE covfefe covfefe covfefe covfefe oit? 
  refgerfrefre f hjbervbrvhbiebvterbibnvibnvbthvgwhat am i doing with amy life wh
-at i am i doing with my life what am  i doing with l m life a what am i doing wi
+at i am i doing with my life what am  i doing with l mc'est super !!!!!!! ing wi
 th my life dkhbvthbvetbusibvsnkldbvkhlsdbvkltdfvltbiubnkljgfdbnkljdgnbkjsbgkbnbj
 klqziohiuhrvfkjxsfbnvkvccvcvcvbvcdd    c    fdfdfdfdvbksdljhgvuilreghvsbdklhjbvk
 jflhbvdmohsgvbfdnb vlkxjdbvldsuhvbludsknvkldxn bxkdlbhvksjdgbuikdf v shvndfxukl 
@@ -41,7 +41,7 @@ ife
       humm lightning                             no                             
                                                                                 
                                                                                 
-                                            iuiuhiuhiuhiuh                      
+         <3                                 iuiuhiuhiuhiuh                      
                                                                                 
                                                                                 
                                                                                 
