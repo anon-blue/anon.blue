@@ -43,8 +43,8 @@ fa suck my dick
                            youquhome.com  go go                                 
                                                     iuhiuh                 get a
 ddict get a tip and try to escapethis  meaningkefkfffo  flottemntdu vent rescapé
-ouvre  les yeux en grand e pompes et les cimetières                             
-                                                                                
+ouvre  les yeux en grand e pompes et les cimetières seront de b vastes blagues q
+ui feront de                                                                    
                                                                                 
                  fgrehjfhjvirhg fhuwfhiauwifiwigerhhghehrhiwirgfirgirghrgrgurri 
 im a dog and i like                                                             
