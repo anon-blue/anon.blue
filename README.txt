@@ -33,7 +33,7 @@ fggfggfrere
 ddddddddfewwwwwtedsteeeeeeeeeeeeeeeeeeeeeekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkcv,cmv,cxmv,mx.v,mz.,m
 v.z,mcv;laskfkg    dsfdsf45345xc       zxcsdfgsg3232165498hf+ghfg+hfgh4445454544
-                                                                        bbbbnn  
+               dsfasdfdasfasdfsdfwwww                                   bbbbnn  
                                                          figdet spinnes rs for l
 ife                                                                             
                                                                                 
@@ -49,7 +49,7 @@ x  et
                  fgrehjfhjvirhg fhuwfhiauwifiwigerhhghehrhiwirgfirgirghrgrgurri 
 im a dog and i like                                                             
                                jhello worldsldfkjlsdfjldsjfsddasfsdafsdfdsfadasd
-fdasfsfdasffffffffffffffffffffffffkfjdsklfj  what lkjasdfl;kasgoihasgasl;gkas;ld
+fdasfsfdasffffffffffffffffffffffffasdfsdfdasfwhat lkjasdfl;kasgoihasgasl;gkas;ld
 fjkasl;kdfjlsakdfjl;aksg                                                        
                                        ur mom gauy ga        ur mom gay   nigga 
              XD XD XD  XD  XD  XD  XD  XD  llllllll      meaning of life:       
