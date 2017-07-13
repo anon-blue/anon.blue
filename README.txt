@@ -29,11 +29,11 @@ fggfggfrere
 dsaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaadsadsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssssjkasfnb sajkkkkkfkbkkkk
-kskkkkkjkakkkkkkkkkkxcnxcjsahdwdksdoing with your life?     kkkksongdddddddddddd
-ddddddddfewwwwwtedsteeeeeeeeeeeeeeeeeeeeeekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkcv,cmv,cxmv,mx.v,mz.,m
-v.z,mcv;laskfkg    dsfdsf45345xc       zxcsdfgsg3232165498hf+ghfg+hfgh4445454544
-               dsfasdfdasfasdfsdfwwww                                   bbbbnn  
+kskkkkkjkakkkkkkkkkkxcnxcjsahdwdksaaaassssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssnnnsssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn         bbbbnn  
                                                          figdet spinnes rs for l
 ife                                                                             
                                                                                 
