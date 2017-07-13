@@ -54,7 +54,7 @@ fjkasl;kdfjlsakdfjl;aksg
                                                lllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllllll      meaning of life:       
                                          @dfgbfdghlgfheheloloworldqwhgiuhil4hg  
-           investment for life                                                  
+         IHATEYOU!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!      IAMGOD   D                                         
                                                                                 
-                                         rfwhatifthisisthelifeweareallwaiteingfo
-r HEELLLLLLLLLLLLLLLLLLP                                                        
