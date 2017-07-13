@@ -40,9 +40,9 @@ s workd. sunable to backspace being a recent discovery. Punctuation appropriate.
  off. right. continued mumbling. no detectable accent. unable to ascertain locat
 ion based on call. meeting in 2 minutes means water fetching is probably an appr
 priate measure. leave the screen unolocked. figure out how to backspace so it is
-n't so painful going forward. don't make it painfu                              
-                                                                                
-                                                                                
+n't so painful going forward. don't make it painful going forward. when it comes
+ to the american way. yes i know i can hear him and he is crezy. i don't even un
+derstand himn or what's happening.                                              
                                                                                 
                                                                                 
                                                                                 
