@@ -51,8 +51,8 @@ im a dog and i like
                                                                                 
                                           so what lkjasdfl;kasgoihasgasl;gkas;ld
 fjkasl;kdfjlsakdfjl;aksg                                                        
-                                               lllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllllllllll      meaning of life:       
+                                       ur mom gauy ga        ur mom gay   nigga 
+             XD XD XD  XD  XD  XD  XD  XD  llllllll      meaning of life:       
                                          @dfgbfdghlgfheheloloworldqwhgiuhil4hg  
          IHATEYOU!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
