@@ -29,8 +29,8 @@ fggfggfrere
                      fruta djaklcsa whTa whta  what im doing with my life       
                                                                                 
                                                                                 
-    HHelkkddkHelllo What aere you doing with your life?     kkkksongsleeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+    HHelkkddkHelllo What aere you doing with your life?     kkkksongdddddddddddd
+dddeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkcv,cmv,cxmv,mx.v,mz.,m
 v.z,mcv;laskfkg    dsfdsf45345xc       zxcsdfgsg3232165498hf+ghfg+hfgh4445454544
                                                                         bbbbnn  
