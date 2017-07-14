@@ -39,8 +39,8 @@ s workd. sunable to backspacgjhfhytfhtfffffffffffffffffffftyghhjjhkgjkffffffffff
 fffffffffffffffffffffffff42515144o what do you tell them....cx keeps cutting you
  off. right. continued mumbling. no detectable accent. unakkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkwtydaasfafteypowpyop-okr-p-[ewryker[yler=lyh\]ozse -]m60,t-p--[wt=aik
-g0-p0k';sie=klldg-[p-=reyreuyesruesureyeuytueigure out how to backspace so it is
-n't so painful going forward. don't make it painful going forward. when it comes
+g0-p0k';sie=klldg-[p-=reyreuyesruesureyeuytuereysyaeu6345ueuurtuj[d=r\ruidrpi-gf
+pjkxgljmxdpohjszpohkzsop[jdpodfjheropjkd[pjkdzpnful going forward. when it comes
  to the american way. yes i know i can hear him and he is crezy. i don't even un
 derstand himn or what's happening. and then came the little one.                
                                                                                 
