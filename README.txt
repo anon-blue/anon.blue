@@ -29,9 +29,9 @@ kkkkkkkkkkkkkkkkkcnm                             cnm           cnm
 ffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucc
 ccccccccccccccccccccccccccccccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk          cnm cnm nccnm        666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666zzwww4wz6666666666666666666666
-6666666 zaima  cnm       re       gggggggggggggggggggggggggggggggggggggggggggggg
+66666666666666666666666664461300604621420602024301651036.150.5210.36150.5210.301
+.3541651032101.3210.515610510.3510.5210.6310.3201.3210.3210.25310.510.5210.3150.
+251051052103.510.510.3521045515452002120211424654345gggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggjjjjjjjjj888888888888nnnnggggggggggggggggggggggggggggggggggggggggggggg
 ggtomer is extremely difficult to hear. Long-winded explanation about how busine
