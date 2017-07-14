@@ -37,7 +37,7 @@ ffffffffffffffffffffffffffffffffffffffff
 stomer is extremely difficult to hear. Long-winded explanation about how busines
 s workd. sunable to backspacgjhfhytfhtffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffff42515144o what do you tell them....cx keeps cutting you
- off. right. continued mumbling. no detectable accent. unable to ascertain locat
+ off. right. continued mumbling. no detectable accent. unakle to ascertain locat
 ion based on call. meeting in 2 minutes means water fetching is probably an appr
 priate measure. leave the screen unolocked. figure out how to backspace so it is
 n't so painful going forward. don't make it painful going forward. when it comes
