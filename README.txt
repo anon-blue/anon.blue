@@ -38,8 +38,8 @@ stomer is extremely difficult to hear. Long-winded explanation about how busines
 s workd. sunable to backspacgjhfhytfhtfffffffffffffffffffftyghhjjhkgjkffffffffff
 fffffffffffffffffffffffff42515144o what do you tell them....cx keeps cutting you
  off. right. continued mumbling. no detectable accent. unakkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkll. meeting in 2 minutes means water fetching is probably an appr
-fukcfuckfuckfuckfucke the screen unolocked. figure out how to backspace so it is
+kkkkkkkkkkkwtydaasfafteypowpyop-okr-p-[ewryker[yler=lyh\]ozse -]m60,t-p--[wt=aik
+g0-p0k';sie=klldg-[p-=reyreuyesruesureyeuytueigure out how to backspace so it is
 n't so painful going forward. don't make it painful going forward. when it comes
  to the american way. yes i know i can hear him and he is crezy. i don't even un
 derstand himn or what's happening. and then came the little one.                
