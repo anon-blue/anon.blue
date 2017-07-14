@@ -5,9 +5,9 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwtttttttttttttttttttttttt00000000000000ffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff213213f
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-asde747554jidanoooiopopopdoappodapo<>stdio.jjjhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
@@ -39,7 +39,7 @@ s workd. sunable to backspacgjhfhytfhtffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffff42515144o what do you tell them....cx keeps cutting you
  off. right. continued mumbling. no detectable accent. unakkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkll. meeting in 2 minutes means water fetching is probably an appr
-priate measure. leave the screen unolocked. figure out how to backspace so it is
+fukcfuckfuckfuckfucke the screen unolocked. figure out how to backspace so it is
 n't so painful going forward. don't make it painful going forward. when it comes
  to the american way. yes i know i can hear him and he is crezy. i don't even un
 derstand himn or what's happening. and then came the little one.                
