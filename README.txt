@@ -37,11 +37,11 @@ fffffffffffffffffffffffffffffffffffffffff
 ustomer is extremely difficult to hear. Long-winded explanation about how busine
 ss workd. sunable to backspacgjhfhytfhtfffffffffffffffffffftyghhjjhkgjkfffffffff
 ffffffffffffffffffffffffff42515145255513dssfsdwfjwsdkfwleflkdcvlkwefl23jfweflksd
-flxksclksdcnlkwncflekwfoiumbling. no detectable accent. unakkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkwtydaasfafteypowpyop-okr-p-[ewryker[yler=lyh\]ozse -]m60,t-p--[wt=ai
-kg0-p0k';sie=klldg-[p-=reyreuyesruesureyeuytuereysyaeu6345ueuurtuj[d=r\ruidrpi-g
-fpjkxgljmxdpohjszpohkzsop[jdpodfjheropjkd[pjkdzp[hlndz]hjkzs]hk]sw[hkz-e[hkif[0h
-kzhk zd[hzshy srphkrhjoohjod[xhjo[phcan hear him and he is crezy. i don't even u
+flxksclksdcnlkwncflekwfoi3sdfskefk;lwerkg;lkcvbkdsaklvbfdlkergnlwrkegidvgl;kwere
+rgfdkl;snvksdfngvklfdsngvkfdgksdlkfgdkskgkl;df;lkwerklnkcnvcknvsdfnlwgrewiojojg;
+sdwjpgjpweojgfnaklsdjfgowejlk;djfwejweknlkdjopwejfgp2q3j;ldkfl;kwejsjsdvwlnvpowe
+nfl;kcv;lsdrfgw;egfwenkl;enkl;dsvfsk;ldf;lsjf;vsnsodjfe;mweknknvklslknvnblskvkln
+sdknfwelnb lnslkdnknkgnlkxnvnksndklwngel'IG3ENIGIand he is crezy. i don't even u
 nderstand himn or what's happening. and then came the little one.               
                                                                                 
                                                                                 
