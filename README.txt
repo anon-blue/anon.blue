@@ -20,8 +20,8 @@ rvevxevxexevxeservxervessv`bctnyfhythtgdtrdgtgyhuyokpgjtfhfhfth Ok orK.O.
  rgcrfrgew                                                                      
                                                                            bkjsh
 asjkcbskajhjskbcjskaxhjskahcjksbjakdhjksabxjksachsajbjskabcjksbjpoipoidwidbhbjpg
-dbshabdjxhbjhbxbjasdhbjhvfjhv  windows  rrewetqwyget fygdhgksjagdksjdhg hostshdk
-jhsakdjhjbxkjhadmimnisterhakdjkhgxzjcgjshdbuqjwkajdhkuhkjkuhkjbkuhkjh.html.com.a
+dbshabdjxhbjhbxbjasdhbjhvfjhv  windows  rrewetqwyget fygdhgksjagdksjdddhellow wo
+rld          hello world ! your computer is qjwkajdhkuhkjkuhkjbkuhkjh.html.com.a
 dminimsiter.windows.com                                                         
                                                          by:john                
                                                     Itwillbe all right.         
