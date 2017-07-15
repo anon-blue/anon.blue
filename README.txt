@@ -1,5 +1,5 @@
-fffffffffccYour computer are dead.                                              
-                              Please Wait.                          jljklj;lj;  
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddge           jljklj;lj;  
                   It will be a long time .:)   from bill.                       
                                                                                 
                      0                  0                                       
@@ -56,5 +56,5 @@ sdgsdgsdgdsgsdg=========333,474,969,05==========================================
 fffffeeffffaaaaaaaaaaaaaaaasffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffGONE    GONE  FINISH     d
- d s dds    cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ d s ddsgfghsssssssssssddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
