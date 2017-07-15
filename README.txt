@@ -47,8 +47,8 @@ hhhhhhdddddddddddddddddddddddddddhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhvvvvvvvvvvv
 vvvvvvvvvvvhhhhhhhhhhhhhhhhhhhhhccccccccccccccccccchhhhh                        
                                                 22,302,397,86                   
                     2222fc======================================gdggsggdgsdsgsdj
-hvkjhvjhgvkhbddddddddddddd3,474,969,05==========================================
-==============ture=========================can't arrive ==========O.K.==========
+hvkjhvjhgvkhbddddddddddddddda.kjnalkjdnlkjljanvkjnlkjfalkjsdflksjdnfljknkjndkjan
+flejkw flakj              kjncadlkjnlakjdnlakjdsfnkjnadflksjfnlakjfnlskjrfn=====
 ================================================================================
 ================================windows=======C:=======d:====e:=======f:===so on
 ================================================================================
