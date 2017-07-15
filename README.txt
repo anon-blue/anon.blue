@@ -52,9 +52,9 @@ gkgkfuyyyyyyyyyyyyyyyfidtuiduytrdy459ru48tr49u84898uksgohkoptsjhopsmbklv;mblk'sm
 hkots]khmosphkotpsjopstrhlmlg;s'lkeotoip[sjhi,lfgmhiosj[ktos,hhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     
                                                                                 
-                      If you look there , you areddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+                      If you look there , you are a SB .                        
+                                                                                
+                           You are dead !                                       
+               WELCONE DDDDDDDdddddddd                                          
+                 Welcome toddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
