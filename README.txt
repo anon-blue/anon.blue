@@ -56,5 +56,5 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                            You are dead !                                       
                WELCONE DDDDDDDdddddddd                                          
-                 Welcome toddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+                 Welcome to gaojileyuan.                                        
+                                                                nothing at all  
