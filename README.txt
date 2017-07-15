@@ -46,9 +46,9 @@ cccccccccccccccccccccccc                        hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhdddddddddddddddddddddddddddhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhvvvvvvvvvvv
 vvvvvvvvvvvhhhhhhhhhhhhhhhhhhhhhccccccccccccccccccchhhhh                        
                                                 22,302,397,86                   
-                     222==12051454187vsedededededededed454;oiodiaudioasudouasida
-scgasjcgjhgh                                                            gdhuuijh
-gkgkfuyyyyyyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                    2222fc======================================================
+========================333,474,969,05==========================================
+==============ture=========================can't arraaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
