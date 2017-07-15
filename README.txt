@@ -45,16 +45,16 @@ tttttttttttttttttttttttsssssssssssssssssssssggggggggggggggggggggggggggggcccccccc
 cccccccccccccccccccccccc                        hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhnm
 mmmmmmm???aissssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssss                              22,302,397,86                   
-                    2222fc======================================gdggsggdgsdsgsdj
-hvkjhvjhgvkhbddddddddddddddda.kjnalkjdnlkjljanvkjnlkjfalkjsdflksjdnfljknkjndkjan
-flejkw flakj              kjncadlkjnlakjdnlakjdsfnkjnadflksjfnlakjfnlskjrfn=====
-================================================================================
-================================windows=======C:=======d:====e:=======f:===solln
-================================================================================
-=============================================sddfffg==ghhhwo感到===fffffffffffffff
-fffffeeffffaaaaaaaaaaaaaaaasffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffGONE    GONE  FINISH     d
+ssssssssssssssssssssssssssssssssssssssssssssssssd     dddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddvcccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccyganxiddhoxxxxxxxxxx
+xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxfffffffffffffGONE    GONE  FINISH     d
  d s ddsgfghsssssssssssddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
