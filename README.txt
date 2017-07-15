@@ -1,4 +1,4 @@
-           Your computer are dead.                                              
+fffffffffccYour computer are dead.                                              
                               Please Wait.                                      
                   It will be a long time .:)   from bill.                       
                                                                                 
@@ -52,9 +52,9 @@ vvvvvvvvvvvhhhhhhhhhhhhhhhhhhhhhccccccccccccccccccchhhhh
 ================================================================================
 ================================windows=======C:=======d:====e:=======f:===so on
 ================================================================================
-==============================================aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+==============================================in bug=============fffffffffffffff
+fffffeeffffaaaaaaaaaaaaaaaasffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffcccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
