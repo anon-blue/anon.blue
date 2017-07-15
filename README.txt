@@ -22,9 +22,9 @@ xksjhxkajshdksjabksjdhksjbxksajdhksjbxskjdhkscjbskjhksjbxksjchksjbxkjsachjabkjsh
 asjkcbskajhjskbcjskaxhjskahcjksbjakdhjksabxjksachsajbjskabcjksbjpoipoidwidbhbjpg
 dbshabdjxhbjhbxbjasdhbjhvfjhv  windows  rrewetqwyget fygdhgksjagdksjdhg hostshdk
 jhsakdjhjbxkjhadmimnisterhakdjkhgxzjcgjshdbuqjwkajdhkuhkjkuhkjbkuhkjh.html.com.a
-dminimsiter.wkkkkcnm                             cnm           cnm              
-                     cnm                                                        
-                                                                                
+dminimsiter.windows.com                                                         
+                                                         by:john                
+                                                    Itwillbe all ri             
                                                                                 
                                           xoakixiajunjieshuai   xfxvxvxcvxcvvvvv
 vvvvvvvvvvvvvvvvvvvvvvqqqqqqqqqqqqqqqqqqqqqqvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
