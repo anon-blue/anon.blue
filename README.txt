@@ -4,7 +4,7 @@ fffffffffccYour computer are dead.
                                                                                 
                      0                  0                                       
                                                                                 
-                       1               1                                        
+                      dtuhugtygytvytygyg                                        
                         1             1                                         
         I nie hdhihiedieow ndoiwneiodfweoi;fhweioa;fhiwe;oufhoirhfDIOWEDHEWI HI 
 WQEHDIQ EWDWE DQndiqwdiqewndfiqwend iewnidfnqewioujjihyyhuhyuhjkhjhjhjkh]\okeoko
