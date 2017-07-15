@@ -21,8 +21,8 @@ rvevxevxexevxeservxervessv`bctnyfhythtgdtrdgtgyhuyokpgjtfhfhfth Ok orK.O.
                                                                            bkjsh
 asjkcbskajhjskbcjskaxhjskahcjksbjakdhjksabxjksachsajbjskabcjksbjpoipoidwidbhbjpg
 dbshabdjxhbjhbxbjasdhbjhvfjhv  windows  rrewetqwyget fygdhgksjagdksjdddhellow wo
-rld          hello world ! your computer is qjwkajdhkuhkjkuhkjbkuhkjh.html.com.a
-dminimsiter.windows.com                                                         
+rld          hello world ! your computer is hacked by ccl, if you want to solve 
+this problem , please comcat me!    --year                                      
                                                          by:john                
                                                     Itwillbe all right.         
                                                                                 
