@@ -1,11 +1,11 @@
            Your computer are dead.                                              
                               Please Wait.                                      
-                  It will be a longddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddffkhkjsdfhsdjhjkfhsaf
-dsfdsdsfsdafasdfasdfadsfadsweyueyadsadadadddadszxxcvvvbbvbcvnbnbvnxzxxxxxxxxafgg
-savcfgeytdyut781tr781r7uY8T8GUgijcugugUTGCUibhvbhjVUYFyuxvhhcHCXCLvVJLjejbjvdshv
-asjvashjavhasvcajnxvchasdchjvlhhevcevcewvhewjchfjkgjfgjfasjsadfimnckldhkkdsjfifi
-fififfffjfjff                juiujgkjhgk hgkk jgh MY QQ:2780075130           oko
+                  It will be a long time .:)   from bill.                       
+                                                                                
+                     0                  0                                       
+                                                                                
+                       1               1                                        
+         fjff                juiujgkjhgk hgkk jgh MY QQ:2780075130           oko
 kokkookkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
