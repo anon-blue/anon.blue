@@ -55,6 +55,6 @@ vvvvvvvvvvvhhhhhhhhhhhhhhhhhhhhhccccccccccccccccccchhhhh
 ==============================================in bug=============fffffffffffffff
 fffffeeffffaaaaaaaaaaaaaaaasffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffcccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffGONE    GONE  FINISH      
+            cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
