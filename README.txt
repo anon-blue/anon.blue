@@ -52,7 +52,7 @@ sdgsdgsdgdsgsdg=========333,474,969,05==========================================
 ================================================================================
 ================================windows=======C:=======d:====e:=======f:===so on
 ================================================================================
-==============================================in bug=============fffffffffffffff
+=============================================sddfffg=============fffffffffffffff
 fffffeeffffaaaaaaaaaaaaaaaasffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffGONE    GONE  FINISH      
