@@ -1,5 +1,5 @@
 fffffffffccYour computer are dead.                                              
-                              Please Wait.                                      
+                              Please Wait.                          jljklj;lj;  
                   It will be a long time .:)   from bill.                       
                                                                                 
                      0                  0                                       
