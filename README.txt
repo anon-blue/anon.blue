@@ -26,10 +26,10 @@ kkkkkkkkkkkkkkkkkcnm                             cnm           cnm
                      cnm                      cnm                    cnm        
            jklklllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll26
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666                                    uuuuuuucc
-ccccccccccccccccccccccccccccccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk          cnm cnm nccnm        666666666
-66666666666666666666666664461300604621420602024301651036.150.5210.36150.5210.301
+66666666666666666666666666666666666                             xfxvxvxcvxcvvvvv
+vvvvvvvvvvvvvvvvvvvvvvqqqqqqqqqqqqqqqqqqqqqqvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv10.36150.5210.301
 .3541651032101.3210.515610510.3510.5210.6310.3201.3210.3210.25310.510.5210.3150.
 251051052103.510.510.3521045515452002120211424654345156163514651065103210.541245
 6146510651031025fuck05106.00.016510310.45203620214450342501321051044320515432054
