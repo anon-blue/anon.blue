@@ -46,8 +46,8 @@ cccccccccccccccccccccccc                        hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhdddddddddddddddddddddddddddhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhvvvvvvvvvvv
 vvvvvvvvvvvhhhhhhhhhhhhhhhhhhhhhccccccccccccccccccchhhhh                        
                                                 22,302,397,86                   
-                    2222fc======================================================
-========================333,474,969,05==========================================
+                    2222fc======================================gdggsggdgsdsgsdg
+sdgsdgsdgdsgsdg=========333,474,969,05==========================================
 ==============ture=========================can't arrive ==========O.K.==========
 ================================================================================
 ================================windows=======C:=======d:====e:=======f:===so on
