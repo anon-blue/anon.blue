@@ -21,9 +21,9 @@ rvevxevxexevxeservxervessv`bctnyfhythtgdtrdgtgyhuyokpgjtfhfhfth Ok orK.O.
                                                                        I really 
 think that everything that is written here will happen soon. Make a wish! bhbjpg
 dbsh                              ymckc.890mk.com                               
+                                      uggddddddddddddddf f  f                   
                                                                                 
-     problem , please comcat me!    --year                                      
-                                                         by:john                
+                         rre                             by:john                
                                                     Itwillbe all right.         
                                                           gfhfghfghhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
