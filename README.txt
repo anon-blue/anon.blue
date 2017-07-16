@@ -1,4 +1,4 @@
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+...................................................ddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddgewiei nimen hao a yu r j
  i j ce wlg ty kh yygy wjg j xcgcxvxvcxe .:)   from bill.                       
                                          nnnnnh                                 
@@ -56,5 +56,5 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddd                             
                                                                                 
                                                                                 
-                                              dddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+                                       K........................................
+................................................................................
