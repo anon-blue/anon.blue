@@ -33,13 +33,13 @@ neqsdkfasjdfkjindkasndfanbajgonaskdgnkgjalkdnaksfjdlkjflkasjdfkfjkdjlkjskldfjkls
 djfksljdksljfksldjflkjdslkjflskdsfskddddd                                       
             eeeeeeeeeeeeeeeeeeeeerrrrrrrrrrrrrrrrrrrrtttttttttttttyyyyyyyyyyyyyy
 yyuuuuuuuuuuuuuuuuuiiiiiiiiiiiiiiioooooooooooooooooooopppppppppppppppdfsg jjjjjj
-jjjjjjjjjjjjjjyhhfffffffffffffffffffffnnnnnnnnnnnnnnnnnnnfffffffffffffffffffffff
-fffffffffffffffffffffffffffffhhhhhhhhhhhhhhhhhhhhhhhhvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnncccccccccccccccccccccccyyyyyyyyyyyyyyyyyy
-yddddddddddddddddddddddddhhhhhhhhhhhhhhhhhhhhhvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvyyyyyyyyyyyyyyyyyyyyyyyyyyyyffffffffffffffffffffffffgggggggggggggsssss
-sssssssssssssssss   -  is this the sound of my brain?  -  xxxxxxxxxxttttsdd ddsf
-dsdsdsgewei nimen hao a .ni men zheng shi y ige shabi a dddddddddddddddddddddddd
+rsdfdfsnhsdfkjsdkfmkasndfjnasdjkfnjiaziqaq01000000101001010101010010101010010100
+10101010010101001001000000000000000000000000000000000111111111111111000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000   vIRUS.WANNACRY                                              
+                                                        HELLO   0000DIRE  dddddd
 ddddddsddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddxxxxxxxtttttt
 ttttttttttttggnmdjfgdndhodmjhdhigfifgg45587774fd484885465df;hbglnfgpjn[fghpgplpp
 l[pl[k[ololkokoplg[n]kofpnk[ghp[mlpg[hmkgo]kmc-pmlmlppppuouhhhhhhhhhhhhhhhhhhhnm
