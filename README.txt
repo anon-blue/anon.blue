@@ -10,10 +10,10 @@ o
                                                                                 
            rrhhh        sr                               cs cma sun guangs si   
                                              22366666666                        
-   this is a web 01111111000000000000001111111111                               
-                                                                                
-                                                          0                     
-                                                                                
+   this is a web 011111110000000000000011111111111111010010100100000000000000000
+00000000101010010101010101001010101001Wanna0Cry011010100101010Virus2010100101010
+010101010101000010100101i 100101010010KNOW 1001010101001001YOU 10290190101001010
+1010010101001001010101010010101001010100FACK DIRE29321939010010101010101        
                   wewewhat is this fuck mansdnsd nsdhsld klshisthishitshitshitfu
 ckgfrgrcgxfrxgcrfrg google baidu                     333333333drsfsevxreversfers
 vervevxevxexevxeservxervessv`bctnyfhythtgdtrdgtgyhuyokpgjtfhfhfth Ok orK.O.     
