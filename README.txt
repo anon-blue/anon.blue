@@ -39,10 +39,10 @@ rsdfdfsnhsdfkjsdkfmkasndfjnasdjkfnjiaziqaq01000000101001010101010010101010010100
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000   vIRUS.WANNACRY                                              
-                                                        HELLO   0000DIRE  dddddd
-ddddddsddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddxxxxxxxtttttt
-ttttttttttttggnmdjfgdndhodmjhdhigfifgg45587774fd484885465df;hbglnfgpjn[fghpgplpp
-l[pl[k[ololkokoplg[n]kofpnk[ghp[mlpg[hmkgo]kmc-pmlmlppppuouhhhhhhhhhhhhhhhhhhhnm
+                                                        HELLO   0000DIRE        
+                                                                                
+                                                             DASDJANSDNNWUANANCR
+TY  DSJADJISDJAISJDFIJSADFHHSADFBSDHBFBITCPODURDJSIAJDJFIJSJD                   
 mmmmmmm???aissssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssd     dddddddddddddddddddddddddd
