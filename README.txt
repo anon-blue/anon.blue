@@ -20,9 +20,9 @@ rvevxevxexevxeservxervessv`bctnyfhythtgdtrdgtgyhuyokpgjtfhfhfth Ok orK.O.
  rgcrfrgew                                                                      
                                                                        I really 
 think that everything that is written here will happen soon. Make a wish! bhbjpg
-dbshabdjxhbjhbxbjasdhbjhvfjhv  windows  rrewetqwyget fygdhgksjagdksjdddhellow wo
-rld          hello world ! your computer is hacked by ccl, if you want to solve 
-this problem , please comcat me!    --year                                      
+dbsh                              ymckc.890mk.com                               
+                                                                                
+     problem , please comcat me!    --year                                      
                                                          by:john                
                                                     Itwillbe all right.         
                                                           gfhfghfghhhhhhhhhhhhhh
@@ -52,9 +52,9 @@ cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccyganxiddhoxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx  dxfffffffffGONE    GONE  FINISH     d
- d s ddsgfghsssssssssssddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccyganxi              
+                                                                                
+                                                                                
+                                                                                
+                                              dddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
