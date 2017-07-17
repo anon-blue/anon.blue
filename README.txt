@@ -20,9 +20,9 @@
                                                                                 
                                                                                 
                                       DO you likestudy?                         
-                                                                                
-                                                                                
-                                                                                
+                                     -Yes.                                      
+                                             -yes.                              
+                                                     -Yes.                      
                                                                                 
                                                                                 
                                                                                 
