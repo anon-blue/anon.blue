@@ -17,8 +17,8 @@ ne day.so,thankyou.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                          If you are from China, why don't you s
+peak chinesechinease?                                                           
                                       DO you likestudy?                         
                                      -Yes.                                      
                                              -yes.                              
