@@ -44,8 +44,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                     dans cet enfermement                       
+                                                comme une page bleue            
                                                                                 
                                                                                 
                                                                                 
