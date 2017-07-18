@@ -13,7 +13,7 @@ ne day.so,thankyou.
                                                                                 
                                                                                 
                                                                                 
-     where are you from?-i am from china.Are you from china too?xixi.           
+     where are you from?-i am from chiyyyyyggggrrgrrgrchina too?xixi.           
                                                                                 
        555                                                                      
                                                                                 
