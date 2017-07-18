@@ -10,8 +10,8 @@ ne day.so  hankyou.
                                                                               df
 gdfsdfsdfedfdsdfdfgdfdfdfcvbcvxvtgyfdfhtyiwefwakldmsrjngrhwra HBEAt             
                                                                       l77777uuuu
-uuuuuuuuuuuuususueueururutitititififjfurjriejfhfjuftttuttttttttttfsltfgn n gdf g
-f fdgdfg fgdgdgfgdfgdfgdflgk                                                    
+uuuuuuuuuuuuususueueururutitititififjfurjriejfhfjuftttuttttttI'm fucking pissed 
+off gdfg fgdgdgfgdfgdfgdflgk                                                    
                                                                                 
      where are you from?-i am from chiyyyyyggggrrgrrgrchina too?xixi.           
                                                                                 
