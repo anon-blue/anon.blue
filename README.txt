@@ -9,8 +9,8 @@ ne day.so  hankyou.
                                                                                 
                                                                               df
 gdfsdfsdfedfdsdfdfgdfdfdfcvbcvxvtgyfdfhtyiwefwakldmsrjngrhwra HBEAt             
-                                                                                
-ghfhiojjkjljhklldfkjhkdjjjtttttttttttttttttttttttttttttttttttttttfsltfgn n gdf g
+                                                                           I wis
+h I was DEAD ans rotting through my nttttttttttttttttttttttttttttfsltfgn n gdf g
 f fdgdfg fgdgdgfgdfgdfgdflgk                                                    
                                                                                 
      where are you from?-i am from chiyyyyyggggrrgrrgrchina too?xixi.           
