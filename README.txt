@@ -1,19 +1,19 @@
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww you.i like him.i hope he sees them o
-ne day.so  hankyou.                                                             
                                                                                 
                                                                                 
-                                                ngcgcgchg                       
                                                                                 
                                                                                 
-                                                                              df
-gdfsdfsdfedfdsdfdfgdfdfdfcvbcvxvtgyfdfhtyiwefwakldmsrjngrhwra HBEAt             
-                                                                      l77777uuuu
-uuuuuuuuuuuuususueueururutiti6265655664646446464juftttuttttttI'm fucking pissed 
-off want to go to China or  .Are you real? Or even more? Are you romantic? Got a
- name?                                                                          
-     where are you from?-i am from chiyyyyyggggrrgrrgrchina too?xixi.           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
        555                                                                      
                                                                                 
@@ -56,5 +56,5 @@ k
 s                                      How are you?                             
      lfcidwhere where arjjjnnmmm454854654786645325413546546sd5fsfsdldaslkfjsdiof
 jhweaklfhsdkljfhwejkfhsdiwq i'm down here in france kdjfkdsjfoiqwfjlk   ajndklas
-ndknndnnweiruanlanpinwdqwfwfqwjqkhwkhdqkudgqkugdqkguduquiwdgqwgdqgdiqgwuigdiquqw
-udgquwdqgwddqqdswwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+ndknndnnweiruanlanpinwdqwfwfqwjqkhwkhdqkudgqkugdqkguduquiw                      
+                                                                                
