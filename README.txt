@@ -9,7 +9,7 @@ ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
 able components, restart your computer. press F8 to select Advanced Stratup Opti
 ons, and then slecte Safe Mode.                                                 
  Tecnhnical infomation:                                                         
-it's brokebndijidij00000000 (0x000000000 0x00000001 0x00000002)                 
+it's brokebndijidij00000000 (0x000000000 0x0000this 0x00000002)                 
          ** ntkrnal.sys -Addr'lp[kopkopkopkopkopkopopjioujiohugyhutrft7frft     
                                                                                 
                                                                                 
@@ -44,7 +44,7 @@ ddddddddf4rt5                                                              hhhjj
 sjzjsjjx    ffffdsfjkkfhello workld                                          ijk
 lmnjn                                                                           
              666666666666666666666666666666666666666666666666666666666666666666w
-safdasdsffffffffffffffffffffffffffask4755744444444444444444444444444444444444444
+safdasdsffffffffffffffffffffffffffask475574444444444444444444444444444444what444
 4444444444sd                                  sddddddddddddd         dssssssssss
 s       okdddddddddddddddddvvvvvvvvvvvv,/./z.p[@$%^*)()__)                   ()*
 ********************************************************************************
