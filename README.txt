@@ -1,7 +1,7 @@
-A problem has been delec                                                        
-                                                                                
-                                                                                
-                                                                                
+A problem has been delected and Windows has been shut down to prevent dmg to you
+r compurter. If this is the firest thimtime you've seen this Stop error screen, 
+restart your cmpter . If this screen appears again, fllow these tsteps:         
+  Checkl to be shure you ahvae a                                                
                                                                                 
                                                                                 
                                                                                 
