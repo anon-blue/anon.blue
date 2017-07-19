@@ -34,7 +34,7 @@ who's there right now hahahaha                  changeable in LIVE ? nice :)
      uyuyytyu shutdown C:                                                       
                                                   shiy                          
              what did u say? cg a awhata whata wah      what are you diong now u
-uuuuuuuuthis is my place, in fggt, my favorite one hof course can you write righ
+uuuuuuuuthis is my place, in fggt, my favorkte one hof course can you write righ
 t here, right noho                           wonderfuuuuuuuuuuuuuuuuuuuuuuuuu!!!
 hahahahahahahahahahahahaha                                                      
                                                                                 
