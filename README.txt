@@ -33,12 +33,12 @@ jklp iurj rg krgk rj knrg rjnboiernbpoenbjerjbojepobnepbojkepkbljnmfe k\sff
                                                                                 
                                                                                 
                                                   shiy                          
-             what did u sa                                                  hool
-iijasdjcnasdncjkasd sakd vnmds vdsancmsadk vnjkasd ncma.sdj cajsdncad,dsjncaskjd
-                  asfuck you r mother you moeh\qqtherfucker                     
-                          ;'ll;'lnnkjjkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk,,,,,,,,,,,,,,,,,,,,,,,,,;'l;'l;'l;':>        
+             what did u say? cr(X)  wanny cry?    fkuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu!!!h
+ahahahahahahahahahahahaha                                                       
                                                                                 
+          u this shit!                                                          
                                                                                 
                                                                           hhhjjs
 jzjsjjx                                                                         
