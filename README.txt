@@ -1,18 +1,18 @@
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjasddasdasdasdas        laibah
-aiznsijakaozksmosksmskzozkmskxkdmddkdkx                                         
- is it posisssiblethat are you ok? thisi is a online board or notfffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffseels seemfffasfafasfafsafaf
-kkkkkkkkkkkkkkkkkkkkkkkkkkklllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllll                                                     
-                                                                             das
-sfesfgwergnuinaufnosaifn nimameijiba                                            
-                                          h jhj gh jghjghjghjgh hgjhgjghjhjghjjk
-hjkffffffffffhahahhahahahahahha                                                 
+Check                                                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                             lijiahaohaoshuaiejfioerhr3gjoeiv efv
 rivnr3ugjjvgreijfiwjfwwcwvwwvervmrwvmpoerbmioejbioweboierjboiernbieqbnojeqnbfvxc
@@ -57,4 +57,4 @@ afdasdsffffffffffffffffffffffffffask47557444444444444444444444444444444444444444
 A problem has been delected and Windows has been shut down to prevent damageto y
 our computer.                                                                   
 If this is the first thetime you've mmmn this  w error screen, restart your comp
-uter. If this screen appears again, fllow sdjkfsjdkjfkdsjkfjdskjjjjjjjjjjjjjjj  
+uter. If this screen appears again, fllow these steps:                          
