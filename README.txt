@@ -31,7 +31,7 @@ wair     what haaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaas
                                                                                 
                                       hhhjjkknbffgh                             
                                                      fwefwfsfwfwwhat the hell?  
-                                                                                
+     uyuyytyu shutdown C:                                                       
                                                   shiy                          
              what did u say? cg a awhata whata wah      what are you diong now u
 uuuuuuuuthis is my place, in fact, my favorite one hof course can you write righ
