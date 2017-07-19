@@ -1,4 +1,4 @@
-Check                                                                           
+A problem has been delec                                                        
                                                                                 
                                                                                 
                                                                                 
@@ -52,9 +52,9 @@ afdasdsffffffffffffffffffffffffffask47557444444444444444444444444444444444444444
 **********************************************************A exceptio )))))))))))
 ))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
 ))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
-))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
-))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
-A problem has been delected and Windows has been shut down to prevent damageto y
-our computer.                                                                   
-If this is the first thetime you've mmmn this  w error screen, restart your comp
-uter. If this screen appears again, fllow these steps:                          
+))))))))                                                                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
