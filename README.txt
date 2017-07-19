@@ -33,7 +33,7 @@ jklp iurj rg krgk rj knrg rjnboiernbpoenbjerjbojepobnepbojkepkbljnmfe k\sff
                                                                                 
                                                                                 
                                                   shiy                          
-                                                                            hool
+             what did u sa                                                  hool
 iijasdjcnasdncjkasd sakd vnmds vdsancmsadk vnjkasd ncma.sdj cajsdncad,dsjncaskjd
                   asfuck you r mother you moeh\qqtherfucker                     
                           ;'ll;'lnnkjjkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
