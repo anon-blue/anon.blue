@@ -56,5 +56,5 @@ s      ukgkgkgkgjddddddddddvvvvvvvvvvvv,/./z.p[@$%^*)()__)                   ()*
                                                                                 
                                                                                 
                                                                          lol who
-s there ? itd anon stipid...                                                    
+s thsksks,itd anon stipid...                                                    
                                                                                 
