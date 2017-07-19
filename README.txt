@@ -56,5 +56,5 @@ s       okdddddddddddddddddvvvvvvvvvvvv,/./z.p[@$%^*)()__)                   ()*
                                                                                 
                                                                                 
                                                                          lol who
-s there ? itd anon sti                                                          
+s there ? itd anon stipid...                                                    
                                                                                 
