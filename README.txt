@@ -54,7 +54,7 @@ afdasdsffffffffffffffffffffffffffask47557444444444444444444444444444444444444444
 ))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
 ))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
 ))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))
-A problem has been delected and Windows                                         
-  dasdasjioerqwiojdklashjfkldasjlkdfjailsdaskldjklasjdklasjkldjaklsjkjllmnbbmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmjgk,w w sfsfsdfsaafdsjfkjsskfkhuwenwens
-dlkjfkdjkafjkdjfkjdkjfkjdskjfkdsjkfsdklajfklsdjkfsjdkjfkdsjkfjdskjjjjjjjjjjjjjjj
+A problem has been delected and Windows has been shut down to prevent damageto y
+our computer.                                                                   
+If this is the first thetime you've mmmn this  w error screen, restart your comp
+uter. If this screen appears again, fllow sdjkfsjdkjfkdsjkfjdskjjjjjjjjjjjjjjj  
