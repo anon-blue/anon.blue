@@ -1,6 +1,6 @@
 A problem has been delected and Windows has been shut down to prevent dmg to you
 r compurter. If this is the firest thimtime you've seen this Stop error screen, 
-restart your cmpter . If this screen appears again, fllow these tsteps:         
+restarf your cmpter . If this screen appears again, fllow these tsteps:         
   Checkl to be shure you ahvae adequate disk space, If a driver is identified in
  the Stop message, disable the driver aor check with the manufacturer for driver
  updates. Tr y changing video adapters.                                         
@@ -9,8 +9,8 @@ ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
 able components, restart your computer. press F8 to select Advanced Stratup Opti
 ons, and then slecte Safe Mode.                                                 
  Tecnhnical infomation:                                                         
-it's brokebndijidij00000000 (0x000000000 0x0000this 0x00000002)                 
-         ** ntkrnal.sys -Addr'lp[kopkopkopkopkopkopopjioujiohugyhutrft7frft     
+it's brokebndijidij00000000 (0x000000000 0x0000thisaadfaaaaafdsafdaszxvcvcxqsadf
+aasfdsafdfdsaaaaaaaaaaaaaaasdfasdfapkopkopkopkopkopopjioujiohugyhutrft7frft     
                                                                                 
                                                                                 
                                                                                 
