@@ -6,11 +6,11 @@ restart your cmpter . If this screen appears again, fllow these tsteps:
  updates. Tr y changing video adapters.                                         
 Check with your hardware vendor for any BIOS updates. Disable BIOS memoryt optio
 ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
-able components, restart your computer. press F8 to select Advanced Stra        
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+able components, restart your computer. press F8 to select Advanced Stratup Opti
+ons, and then slecte Safe Mode.                                                 
+ Tecnhnical infomation:                                                         
+       *** STOP: 0x00000000 (0x000000000 0x00000001 0x00000002)                 
+         ** ntkrnal.sys -Address 000                                            
                                                                                 
                                                                                 
                                                                                 
