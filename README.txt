@@ -5,8 +5,8 @@ restart your cmpter . If this screen appears again, fllow these tsteps:
  the Stop message, disable the driver aor check with the manufacturer for driver
  updates. Tr y changing video adapters.                                         
 Check with your hardware vendor for any BIOS updates. Disable BIOS memoryt optio
-ns such as                                                                      
-                                                                                
+ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
+able components, restart your computer. press F8 to select Advanced Stra        
                                                                                 
                                                                                 
                                                                                 
