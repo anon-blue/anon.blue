@@ -10,7 +10,7 @@ able components, restart your computer. press F8 to select Advanced Stratup Opti
 ons, and then slecte Safe Mode.                                                 
  Tecnhnical infomation:                                                         
 it's brokebndijidij00000000 (0x000000000 0x0000thisaadfaaaaafdsafdaszxvcvcxqsadf
-aasfdsafdfdsaaaaaaaaaaaaaaasdfasdfapkopkopkopkopkopopjioujiohugyhutrft7frft     
+aasfdsafdfdsaaaaaaaaaaaaaaasdfasdfapkopkopkopkopeeeepjioujiohugyhutrft7frft     
                                                                                 
                                                                                 
                                                                                 
