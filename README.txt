@@ -34,8 +34,8 @@ wair     what haaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaas
                                                                                 
                                                   shiy                          
              what did u say? cg a awhata whata wah      what are you diong now u
-uuuuuuuuthis is my place, in fact, my favorite one hof course uuuuuuuuuuuuuuuuuu
-qqqqqwhat the fucking bitchuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu!!!h
+uuuuuuuuthis is my place, in fact, my favorite one hof course can you write righ
+t here, t the fucking bitchuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu!!!h
 ahahahahahahahahahahahaha                                                       
                                                                                 
           u this shit! you were hacked                                          
