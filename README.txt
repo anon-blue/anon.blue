@@ -33,7 +33,7 @@ nk you
                                                                                 
                                                                                 
                                                   shiy                          
-             what did u say? cr(X)  wanny cry?    fkuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+             what did u say? cg a awhata whata wah      what are you diong now u
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu!!!h
 ahahahahahahahahahahahaha                                                       
