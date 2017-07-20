@@ -16,7 +16,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffsguang tai chou le Suo yi dian nao lan ping le!!!                      
                                                               finalemnent, ça m'
-inspire l'esthetique du geste                                                   
+inspire l'esthetique du geste : écriture numérique                              
                                                                                 
           nrrbrbtrrbbrbfg  i io mrgimiorbm mf kembo4tmbkr df dpf 3jhoetj aj jasi
 ubebunfej  enoibjewpobefnjboejbleffkbekbl;,efbelefmo;g erog heropjogheroklmgnkje
