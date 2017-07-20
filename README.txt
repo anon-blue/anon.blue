@@ -2,7 +2,7 @@ A problem has been delected and Windows has been shut down to prevent dmg to you
 r compurter. If this is the firest thimtime you've seen this Stop error screen, 
 restarf your cmpter . If this screen appears again, fllow these tsteps:         
   Checkl to be shure yowflvmworadequate disk space, If a driver is identified in
- the Stop message, disable the driver aor check with the manufacturer for driver
+ the Stop message, disable the driver aor check with the manhfacturer for driver
  updates. Tr y changing video adapters.                                         
 Check with your hardware vendor for any BIOS updates. Disable BIOS memoryt optio
 ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
