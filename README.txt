@@ -35,8 +35,8 @@ who's there right now hahahaha                  changeable in LIVE ? nice :)
                                                   shiy                          
              what did u say? cg a awhata whata wah      what are you diong now u
 uuuuuuuuthis is my place, in fggt, my favorkte one hof course can you write righ
-t here, right noho                           wonderfuushabaka and the ancestors!
-hahahahahahahahahahahahaha                                                      
+t here, righddfdsafasdfasdfasdfasdfsdfasdfsdferewrwerwerwerwqerwerqwerqwerqwerqw
+erqwerwerwerwerweahahahaha                                                      
                                                                                 
            u this shit! you were hacked                                         
                               645646464646+                             dddddddd
