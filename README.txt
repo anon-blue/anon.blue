@@ -32,12 +32,12 @@ wwho's there right now hahahaha                  changeable in LIVE ? nice :)
 dgjdkgefwWhat your nemeane             hhhjjkknbffgh                            
                                 jjjkkll;;;;;lghdfsereefwefwfsfwfwwdddaadasdsadsd
 adsdsd                     sdsads                          sdasd                
-                sdsdsdaswsdw                                                    
-                                     dsdsdsdsdsdsd                          now 
-uuuuuuuuuthis is my place, in fggt, my favorkte one hof course can you write rig
-ht here, righddfdsafasdfasdfasdfasdfsdfasdfsdferewrwerwerwerwqerwerqwerqwerqwerq
-werqwerwerwerwerweahahahaha                                                     
-                                                                                
+                sdsdsdaswsdw                      ddffffffffffffffffffffffffffff
+ffffffffffffffjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii                                         
             u this shit! you were hacked                                        
                                645646464646+                             ddddddd
 dddddddddf4rt5                                                              hhhj
