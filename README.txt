@@ -30,10 +30,10 @@ wwho's there right now hahahaha                  changeable in LIVE ? nice :)
                                                                                 
        wdaadaddsggtt  you are bitch shit wdasdsdsadadadad             nncbmciwiq
 dgjdkgefwWhat your nemeane             hhhjjkknbffgh                            
-                                jjjkkll;;;;;lghdfsereefwefwfsfwfwwhat the hell? 
-      uyuyytyu shutdown C:                                                      
-                                                   shiy                         
-              what did u say? cg a awhata whata wah      what are you diong now 
+                                jjjkkll;;;;;lghdfsereefwefwfsfwfwwdddaadasdsadsd
+adsdsd                     sdsads                          sdasd                
+                sdsdsdaswsdw                                                    
+                                     dsdsdsdsdsdsd                          now 
 uuuuuuuuuthis is my place, in fggt, my favorkte one hof course can you write rig
 ht here, righddfdsafasdfasdfasdfasdfsdfasdfsdferewrwerwerwerwqerwerqwerqwerqwerq
 werqwerwerwerwerweahahahaha                                                     
