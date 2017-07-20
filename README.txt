@@ -30,7 +30,7 @@ wwho's there right now hahahaha                  changeable in LIVE ? nice :)
                                                                                 
                                                                                 
                                        hhhjjkknbffgh                            
-                                                      fwefwfsfwfwwhat the hell? 
+                                jjjkkll;;;;           fwefwfsfwfwwhat the hell? 
       uyuyytyu shutdown C:                                                      
                                                    shiy                         
               what did u say? cg a awhata whata wah      what are you diong now 
