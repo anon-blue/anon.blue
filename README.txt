@@ -26,7 +26,7 @@ hjklp iurj rg krgk rj knrg rjnboiernbpoenbjerjbojepobnepbojkepkbljnmfe k0,m,o,kk
                                                                    afdafasdfasdf
 wwair     what haaaaaaaaaaaaaaaaaaaaaaaaaaaasdflkjfda what the eff is this hello
 wwho's there right now hahahaha                  changeable in LIVE ? nice :)   
-                                                         bvfcnbnnbvm bvnb bvcb  
+                                          dhfghhfhhrffs(?¥7;¥nbnnbvm bvnb bvcb  
                                                                                 
        wdaadaddsggtt  you are bitch shit wdasdsdsadadadad             nncbmciwiq
 dgjdkgefwWhat your nemeane             hhhjjkknbffgh                            
