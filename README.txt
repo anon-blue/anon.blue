@@ -9,7 +9,7 @@ ns such as chaching or shadowing. If you need to use Safe Modfe to remove or dis
 able components, restart your computer. press F8 to select Advanced Stratup Opti
 ons, and then slecte Safe Mode.                                                 
  Tecnhnical infomation:                                                         
-it's brokebndijidij00000000 (0x000000000 0x0000thisaadfaaaaafdsafdaszxvcvcxqsadf
+it's brokebndijidij00000000 (0x000000jj0 0x0000thisaadfaaaaafdsafdaszxvcvcxqsadf
 aasfdsafdfdsaaaaaaaaaaaaaaasdfasdfapkopkopkopkopeeeepjioujiohugyhutrft7frft     
                                                                                 
                                   aaa                                           
