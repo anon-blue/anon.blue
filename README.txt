@@ -28,8 +28,8 @@ wwair     what haaaaaaaaaaaaaaaaaaaaaaaaaaaasdflkjfda what the eff is this hello
 wwho's there right now hahahaha                  changeable in LIVE ? nice :)   
                                                          bvfcnbnnbvm bvnb bvcb  
                                                                                 
-                                                                                
-                                       hhhjjkknbffgh                            
+       wdaadaddsggtt  you are bitch shit wdasdsdsadadadad             nncbmciwiq
+dgjdkgefwWhat your nemeane             hhhjjkknbffgh                            
                                 jjjkkll;;;;;lghdfsereefwefwfsfwfwwhat the hell? 
       uyuyytyu shutdown C:                                                      
                                                    shiy                         
