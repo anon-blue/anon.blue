@@ -15,8 +15,8 @@ sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssdsfsdfdfdfdsfffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffsguang tai chou le Suo yi dian nao lan ping le!!!                      
-                                                                      \         
-                                                                                
+                                                              finalemnent, ça m'
+inspire l'esthetique du geste                                                   
                                                                                 
           nrrbrbtrrbbrbfg  i io mrgimiorbm mf kembo4tmbkr df dpf 3jhoetj aj jasi
 ubebunfej  enoibjewpobefnjboejbleffkbekbl;,efbelefmo;g erog heropjogheroklmgnkje
