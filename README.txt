@@ -1,20 +1,20 @@
 sllsflsdfjlsdsjldjfslfjdsldjfslfjlsdkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkspace, If a driver is identified i
-n the Stop message, disable the driver aor check with the manhfacturer for drive
-r updates. Tr y changing video adapters.                                        
- Check with your hardware vendor for any BIOS updates. Disable BIOS memoryt opti
-ons such as chaching or shadowing. If you need to use Safe Modfe to remove or di
-sable components, restart your computer. press F8 to select Advanced Stratup Opt
-ions, and then slecte Safe Mode.                                                
-  Tecnhnical infomation:                                                        
- it's brokebndijidij00000000 (0x000000jjacovaovsvbvofvbaosvbafdsafdaszxvcvcxqsad
-faasfdsafdfdsaaaaaaaaaaaaaaasdfasdfapkopkopkopkopeeeepjioujiohugyhutrft7frft    
-                                                                                
-                                   aaa                                          
-                                                                                
-                     aaaa                    lijiahaohaoshuaiejfioerhr3gjoeiv ef
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkdsjfsdllksjfffffsdklllllllllllllllllllllllllljfsldkffffffffffsajkdlsajkkkkkkkk
+jklcjadsjalllllllllllllsdadasdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaassssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssss         lijiahaohaoshuaiejfioerhr3gjoeiv ef
 vrivnr3ugjjvgreijfiwjfwcghghgjhgcarwvmpoerbmiodfsdfdddfffwhat's ha[ppenning??? x
 ckv dfldnfadfdgdanimanfunigernigernigernigernigernigernigernigernigernigernigern
 igernigerni]gernigernigernige nigernigernigerjepbmekjobeembbrt rnrggbbrgbnmtribm
