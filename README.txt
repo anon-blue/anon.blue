@@ -27,7 +27,7 @@ dsdadbhbjb sh [kdmjmjcmam knknwkdak jjlasdljl jjdvlaj cjaldjlljujo14414 121240 1
                                                                                 
                                                                                 
                                               celui squi efface encore je ....ce
-lui qui craque pas je lui ...                                                   
+lui qui craque pas je lui ...je suis au tel alors fai                           
                                                                                 
                                                                                 
                                                                                 
