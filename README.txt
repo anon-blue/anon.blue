@@ -18,8 +18,8 @@ jajjaka
                                                                                 
                                                                                 
                                                                                 
-Je suis au tél aussi alors, fais des noeuds avec tes cheveux                    
-                                                                                
+Je suis au tél aussi alors, fais des noeuds avec tes cheveux   dsdafsdfasddddddd
+ddddddddddddddddddd                                                             
                                                                       ddcs\\dada
 dsdadbhbjb sh [kdmjmjcmam knknwkdak jjlasdljl jjdvlaj cjaldjlljujo14414 121240 1
 0110111 010010001 01110111 0110101 0101 00010 11 0111 0111 011001 0             
