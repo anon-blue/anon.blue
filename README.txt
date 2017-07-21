@@ -42,17 +42,17 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
                                                                                 
           hjfhjlkjhljkhljkhljkhljkhlkjhlkjh,jk,jl;jihl;kj;lkj;jkl;';ifdgzdfggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggg                            
-                                                                                
-                       fukck yourqasssssssssssssssssssssssssssssddzxczxcdasdjksx
-chvk                                                                            
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+ggggggggggggggggggggggggggggggggggggggggggggggg---------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+-----------------------------------------------                                 
                                                                                 
                                                                                 
                                                                                 
