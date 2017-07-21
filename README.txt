@@ -18,7 +18,7 @@ jajjaka
                                                                                 
                                                                                 
                                                                                 
-Je suis au té                                                                   
+Je suis au tél aussi alors, fais des noeuds avec tes cheveux                    
                                                                                 
                                                                       ddcs\\dada
 dsdadbhbjb sh [kdmjmjcmam knknwkdak jjlasdljl jjdvlaj cjaldjlljujo14414 121240 1
