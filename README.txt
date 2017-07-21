@@ -8,8 +8,8 @@
                                                                                 
                                  sdasdasdazXczxcxczxczger  dfgdfgdASasddasddasdd
 asdasdasddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd       
-                                                                                
-                                                                                
+                                                                         celui q
+ui craquebient ototootcelui qui                                                 
                                                                                 
                                                       hahahahahahahahahahahahaha
 jajjaka                                                                         
@@ -26,8 +26,8 @@ dsdadbhbjb sh [kdmjmjcmam knknwkdak jjlasdljl jjdvlaj cjaldjlljujo14414 121240 1
                                                                                 
                                                                                 
                                                                                 
-                                              celui squi efface encore je ....  
-                                                                                
+                                              celui squi efface encore je ....ce
+lui qui craque pas je lui ...                                                   
                                                                                 
                                                                                 
                                                                                 
