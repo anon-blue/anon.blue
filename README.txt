@@ -1,5 +1,5 @@
-e je peux faire à part écrire---------------------------------------------------
-----------------------------------------------------------------------I'm fuchin
+                                                                                
+                   ---------------------------------------------------I'm fuchin
 g britisgh, that's the point or the --------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
@@ -50,11 +50,11 @@ ggggggggggggggggggggggggggggggggggggggggggggggg---------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
-----------mfkjfdkvkfvkfjvkjdfkdfjkvjkckvjfkjvkjcjvc                 lkjlkhkjhnkj
-hjkbkjfgvhkdndjkgnjvnzjdskhfjhsbgvjrnfkjnv,dnv,m fmk.Nklrsgkansdlfherutgkjnvfrnz
-v vx z,mnv Nvczldkgnvkfnbfd.gmn,.ncvkjdnlgzkdjflknfkdjfhrhghsfjsehiojdjkkfjsdkjf
-kdjdklsdjhyghyfhshdHGFKNLHFKJAHRETGIOAHEWJKRFRHLAUIEWHTUAGFFUYHFREUTHFSFHUHUIHEJ
-GOfsaWhat's this fucking shit???????rfgoiuhr9WFJiojfojfLoJDJJKDKJKJIHL----------
---------------------------------------------------------------------------------
---------------------------------------------------------------------------------
---------------------------------------------------------------------Qu'est-ce qu
+---------jkjk                                                                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
