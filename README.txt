@@ -27,7 +27,7 @@ non stoppers. Really, a stranger?
 ke all of this real, all of our imagination is getting real, you are like a magi
 cian!     i'm a stranger on my own internet                                     
                                                                                 
-                                                         😀000                   
+                                                                                
  fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
                                                    gsdfewrewrwrewrewrwrewwrrwerw
 q ee                                                                            
