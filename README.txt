@@ -21,8 +21,8 @@ hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu
                                                 <please write, please, softeness
 , please, des murmures en fond d'écrans                                         
                                                                                 
-                                                                                
-                                                                                
+                                                            Nus Nous sommes des 
+non stoppers                                                                    
                                                                                 
                                                                                 
                                                                                 
