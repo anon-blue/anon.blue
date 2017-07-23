@@ -26,8 +26,8 @@ non stoppers. Really, a stranger?
                                                                      You mahe ma
 ke all of this real, all of our imagination is getting real, you are like a magi
 cian!     i'm a stranger on my own internet                 Y e s, I'm Furious, 
-bach eyes, blach, blach black eyes, furious, still furious.                     
-                                                                                
+bach eyes, blach, blach black eyes, furious, still furious. Je veux disparaîrtre
+, tu le sais bien.                                                              
  fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
                                                    gsdfewrewrwrewrewrwrewwrrwerw
 q ee                                                                            
