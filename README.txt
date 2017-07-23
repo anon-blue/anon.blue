@@ -16,12 +16,12 @@ jajjaka                                                   nihao  ni zd  wo shi s
 hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu 
  jgjhghjg  ghjkgjk                                                              
                                                                                 
-                                                                                
+          ¡¡¡!!!¡¡¡!!!¡¡¡                                                       
                                                                                 
                                                 <please write, please, softeness
 , please, des murmures en fond d'écrans                                         
                                                                               Yo
-u a                                                         Nus Nous sommes des 
+u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
 non stoppers. Really, a stranger?                                               
                                                                                 
                                                                                 
