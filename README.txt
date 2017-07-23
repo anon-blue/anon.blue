@@ -27,34 +27,34 @@ non stoppers. Really, a stranger?
                                                                                 
           i'm a stranger on my own internet                                     
                                                                                 
-                                                                                
-  fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                    
-                                                    gsdfewrewrwrewrewrwrewwrrwer
-wq ee                                                                           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                               Je veux j.                                       
-                                                                                
-                                                         kuy isaefdaskfj  kalsjd
-f asof safjsa fjsa flsajf askfhsa fkjsh saklfj sa;lf salkfj salfkjs afljas f asf
-osa flasjf salkfj                                                               
+                                                    ====0😀000                   
+ fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
+                                                   gsdfewrewrwrewrewrwrewwrrwerw
+q ee                                                                            
                                                                                 
                                                                                 
                                                                                 
-                                                       -------------------------
+                                                                                
+                              Je veux j.                                        
+                                                                                
+                                                        kuy isaefdaskfj  kalsjdf
+ asof safjsa fjsa flsajf askfhsa fkjsh saklfj sa;lf salkfj salfkjs afljas f asfo
+sa flasjf salkfj                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      --------------------------
 --------------------------------------------------------------------------------
------------------------------Not about fuck, feel fuck, just fuck. You are not s
-o incredible. All of you                                                        
-                                                                  Ca me frappe l
-a tête toute cette couleur ratée -----------------------------------------------
+----------------------------Not about fuck, feel fuck, just fuck. You are not so
+ incredible. All of you                                                         
+                                                                 Ca me frappe la
+ tête toute cette couleur ratée ------------------------------------------------
 --------------------------------------------------------------------------------
-------------jkjk                                                                
+-----------jkjk                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                    fffffffeertyu                                               
+                   fffffffeertyu                                                
                                                                                 
-           gjklsfewoij ixcjdsfhd                                                
+          gjklsfewoij ixcjdsfhd                                                 
