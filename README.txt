@@ -23,8 +23,8 @@ hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu
                                                                               Yo
 u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
 non stoppers. Really, a stranger?                                               
-                                                                                
-                                                                                
+                                                                     You mahe ma
+ke all of this real, all of our imagination                                     
           i'm a stranger on my own internet                                     
                                                                                 
                                                     ====0😀000                   
@@ -40,7 +40,7 @@ q ee
                                                         kuy isaefdaskfj  kalsjdf
  asof safjsa fjsa flsajf askfhsa fkjsh saklfj sa;lf salkfj salfkjs afljas f asfo
 sa flasjf salkfj                                                                
-                                                                                
+                                                             w  ood for eternity
                                                                                 
                                                                                 
                                                       --------------------------
