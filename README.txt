@@ -15,7 +15,7 @@ jp;/['p];/'[;gyf----------------------------------------------------------------
 jajjaka                                                   nihao  ni zd  wo shi s
 hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu 
  jgjhghjg  ghjkgjk                                                              
-                                                                                
+                                                         ~"~"~"~                
           ¡¡¡!!!¡¡¡!!!¡¡¡                                                       
                                                                                 
                                                 <please write, please, softeness
@@ -24,10 +24,10 @@ hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu
 u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
 non stoppers. Really, a stranger?                                               
                                                                      You mahe ma
-ke all of this real, all of our imagination                                     
-          i'm a stranger on my own internet                                     
+ke all of this real, all of our imagination is getting real, you are like a magi
+cian!     i'm a stranger on my own internet                                     
                                                                                 
-                                                    ====0😀000                   
+                                                         😀000                   
  fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
                                                    gsdfewrewrwrewrewrwrewwrrwerw
 q ee                                                                            
