@@ -22,8 +22,8 @@
                                               Je veux j.                        
                                                                                 
                   Tu veux t.                                                k   
-              k  k  k  k   k  k  k k  bghgh k  k k  k k k k k kk k k k k k  k k 
-                                                                                
+              k  k  k  k   k  k  k k  bghghghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                    
                                                                                 
                                                                                g
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
