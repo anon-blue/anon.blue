@@ -24,8 +24,8 @@ com                                     /; /; /; /; /; /; /; /; /; /; /; /; /;Yo
 u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
 non stoppers. Really, a stranger?                                               
                                             dfsdfsdadfsdafsadfsdafdsafdsafdsafds
-afdsafsdafesafasfsarfsadsafdsgvbfdhbgfjhngfjmnhgkhljhlkhjghjfghjdfgdftgdgha magi
-cian!     i'm a stranger on my own internet                 Y e s, I'm Furious, 
+afdsafsdafesafasfsarfsadsafdsgvbfdhbgfjhngfjmnhgkhljhlkhjghjfghjdfgdftgdghhdfg\;
+';ln!     i'm a stranger on my own internet                 Y e s, I'm Furious, 
 bach eyes, blach, blach black eyes, furious, still furious. Je veux disparaîrtre
 , tu le sais bien. un silece, silence, un étzat, qu'on me retrouve pzd, pzd, pzs
  fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
