@@ -48,7 +48,7 @@ dddddddddddddddddddddddddddwadawdawd--------------------------------------------
 ----------------------------Not about fuck, feel fuck, just fuck. You are not so
  incredible. All of you                                                         
                                                                  Ca me frappe la
- tête toute cette couleur ratée ------------------------------------------------
+ tête toute cette couleur ratée ------------------- ----------------------------
 --------------------------------------------------------------------------------
 -----------jkjk                                                                 
                                                                                 
