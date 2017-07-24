@@ -36,8 +36,8 @@ gggggggggggggggggggggggggggggasd+ggggggggggggggg Pas eu assez d'éclats      ggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggg111111111111111111111111111111111111111116666666666666666666666666666666
-66666666666666666666666666666666666666000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+666666666666666666666666666666ji#include<stdio.h>int                            
+                               0000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000                ggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggWhy gggggg
