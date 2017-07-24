@@ -20,20 +20,20 @@ hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu
                                                                                 
                                                 <please write, please, softeness
 , please, des murmures en fou d'écrans     look up@up@up              bkasdawdas
-dasdawwwdsa               ik and e p    /; /; /; /; /; /; /; /; /; /; /; /; /;Yo
-u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
-non stoppers. Really, a stranger?                                               
-                                            dfsdfsdadfsdafsadfsdafdsafdsafdsafds
-afdsafsdafesafasfsarfsadsafdsgvbfdhbgfjhngfjmnhgkhljhlkhjghjfghjdfgdftgdghhdfg\;
-';ln!     i'm a stranger on my own internet                 Y e s, I'm Furious, 
-bach eyes, bdfdfdshoubulaihg sjskajfksjdjjdiisjafoodjafdjsjiafjdisajfisparaîrtre
-, tu le sais bien. un silece, silence, un étzat, qu'on me retrouve pzd, pzd, pzs
- fsdgfdgfdsgfds      hgfdhgretrehfdhgfddgfh                                     
-                                                   gsdfewrewrwrewrewrwrewwrrwerw
-q ee                                                                            
-                                                                                
-                                                                                
-                                                                                
+dasdawwwdsa               ik and e progena re                                   
+                            gggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggg                                                                        
                                                                                 
                               Je veux j.                                        
                                                                                 
