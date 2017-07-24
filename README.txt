@@ -4,6 +4,7 @@
                                                                                 
                                                                                 
                                                                                 
+                                                                      What?     
                                                                                 
                                                                                 
                                                                                 
@@ -20,12 +21,11 @@
                                                                                 
                                                                                 
                                                                                 
-                          ik and e progena re                                   
-                            gggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+                                                                            k   
+              k  k  k  k   k  k  k k  k  k  k  k k  k k k k k kk k k k k k  k k 
+                                                                                
+                                                                                
+                                                                               g
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
