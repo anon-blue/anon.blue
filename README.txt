@@ -2,7 +2,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                    <======                                                     
                                                                                 
                                                                       What?     
                                                                                 
@@ -39,8 +39,8 @@ gggggggg111111111111111111111111111111111111111116666666666666666666666666666666
 666666666666666666666666666666ji#include<stdio.h>int                            
                                0000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000                ggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggWhy gggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggthis is not a valid que
+stiongggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggWhy gggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
