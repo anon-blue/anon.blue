@@ -2,9 +2,9 @@
                                                                                 
                                                                                 
                                                                                 
-                                         ------------------------------------   
- dddwwwdadaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa qqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq54a89wd48a65s14d685aw246 146w58s1a5
+                                                                                
+                                                                                
+                                    qqqqqqqqq54a89wd48a65s14d685aw246 146w58s1a5
 d6142a0w8d1a654w1d58was142d058691244851741827418274/82+74/87482+98/1/271adew4148
 17ws8147da1480d00000m/* This is a message to those in command. There was never a
 ny freedom, just castles built on sand */d000000000000000d0khbhbhdfdf2330d0d0d0d
