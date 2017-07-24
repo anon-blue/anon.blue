@@ -20,7 +20,7 @@ hei  wo  renshi  ni hen  goa xin  wq  ni  de dian  nao  yijing yijing  zhonmgdu
                                                                                 
                                                 <please write, please, softeness
 , please, des murmures en fou d'écrans     look up@up@up              bkasdawdas
-dasdawwwdsa                             /; /; /; /; /; /; /; /; /; /; /; /; /;Yo
+dasdawwwdsa               ik and e p    /; /; /; /; /; /; /; /; /; /; /; /; /;Yo
 u are not a stranger, you are my FUCKING lover!!!!!!!!!!!!!!!!! Nous sommes des 
 non stoppers. Really, a stranger?                                               
                                             dfsdfsdadfsdafsadfsdafdsafdsafdsafds
