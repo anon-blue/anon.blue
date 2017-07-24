@@ -6,8 +6,8 @@
                                                                                 
                                                                       What?     
                                                                                 
-Ich habe alle vergeh                                                            
-                                                                                
+Ich habe alle vergeh vergesehen. Don('t ell/tell anybodu/y......................
+....................................                                            
                                                                                 
                                                                                 
                                                                                 
