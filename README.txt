@@ -1,8 +1,8 @@
                                                                                 
-                   ----------------------------salks;slaksal;k--------I'm fuchon
-g britisgh, thholle wold!!!! or the --------------------------------------------
---------------------------------------------------------------------------------
------------------------------------------------------------------------------   
+                                                                                
+                                                                                
+                                                                                
+                                         ------------------------------------   
  dddwwwdadaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa qqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq54a89wd48a65s14d685aw246 146w58s1a5
 d6142a0w8d1a654w1d58was142d058691244851741827418274/82+74/87482+98/1/271adew4148
@@ -53,8 +53,8 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrttttttttttttttttttttttttttttttttttttttttttttttttttttyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuiiiiiiiiii              
-                                                                                
-                   fffffffeertyu                                                
-                                                                                
-          gjklsfewoij ixcjdsfhd                                                 
+yyyyyyyyyyyyyyyyyyyyyuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiooooooooooooooooooooooooooooooooopppppppppppppppppppppp
+pppppppppp[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[
+[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[
+[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[                       
