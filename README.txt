@@ -39,8 +39,8 @@ ooooooooooiiiiiiiiiiiiiiiiiiiiirttttttytfghffbxddfc66666666666666666666666666666
 666666666666666666666666666666ji#include<stdio.h>int                            
                                0000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000                ggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggthis is not a valid que
-stiongggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggWhy gggggg
+adanhkdgcnkckcdigoxglxixloigwihgoglxlg                                          
+                           sfd hghukidhlxkxoieilkxdhlxchvpddvlxhehggggWhy gggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
