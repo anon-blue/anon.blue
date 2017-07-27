@@ -13,8 +13,8 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
                                                                                 
                                                                                 
                                                                                 
-                             ///+(a;b)=>a*b      ijjjjkjkl;jlu9pi809piopo[o]p   
-                                                             Comme une fille qui
+                             ///+(a;b)=>a*b      ijjjjkjkl;jlu9pi809piopo[o]p]\p
+;'l'kp'op[ol                                                 Comme une fille qui
  vivait dans une fleur.                                                         
                      ghghghghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhz
 zzzzsaZhashbjshabjdjkaskajdkjdkanzxjsssssssssssssssssssssssssssssssssssmjhzxjhjh
