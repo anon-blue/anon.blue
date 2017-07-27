@@ -1,11 +1,11 @@
                                                                                 
-                  telnet anon.blue 443                                          
-                                                                                
+               wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww                                             
                                                                                 
   12331131                                                                      
                                                                                 
                                                                                 
-                                                                                
+                               w1                                               
                                                                                 
                                                                                 
                                     11qq                                        
