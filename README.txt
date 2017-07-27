@@ -1,5 +1,5 @@
                                                                                 
-                                                                                
+                  telnet anon.blue 443                                          
                                                                                 
                                                                                 
                                                                                 
