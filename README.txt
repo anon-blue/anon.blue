@@ -38,10 +38,10 @@ bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnndfd dfsdfadswosdfajsdklfjsiodjfksdjfijkhgkuyghfkyujffffffffff
 fffffffffffffffffffffffffghjkfjhgfjgewHEY IF YOU FINE Jhjhyjhgtr5tyhgvcdserfffff
-fffffffffffffffffffffffffffffffftttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttggggggfghaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaafufdhgghdrrrixooo
-jfippppppooooofiiillljhhhtrrrfffkkkkkkkkkkkkkddddddddddddddddddddddddddddddd3333
+ffffffffffffffffffffffffffffffff                                                
+                                                                                
+                                                                                
+                   lljhhhtrrrfffkkkkkkkkkkkkkddddddddddddddddddddddddddddddd3333
 333333333333333333333   xxx.00000000   33333333333333333333333333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 3333333333333333OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOgfgfdgfdgvb  vvvcbvcbcvxbfdasd s
