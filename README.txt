@@ -37,17 +37,17 @@ vvavavavavavaerrrrrrrrrrrrrrrrrrr                        gghkkkgujuhkkhtfvhvjjj
                                                                                 
                                                                                 
                       rttrg                                                     
+                d     dfsfadfdfaCHN people come here to see smoebody  to be a st
+upid~~~~233333333333cao ni ma                                                   
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-      \mjklklkldfklgksdgasdfuck    fuck u tonoy !!!    !!!!!!!!!!!!!!!!!!!!!!!!!
+       \mjklklkldfklgksdgasdfuck    fuck u tonoy !!!    !!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1111111 fuckawsafddad.l;l    
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1111111 fuckawsafddad.l;l   
                                                                                 
                                                                                 
-                                 HELLONCSDAPIVHOUWEGFUYWGEFYGWFGUEGWTEWF8C7GGWCV
-GWFEPYFR923-86-                                                                 
+                                  HELLONCSDAPIVHOUWEGFUYWGEFYGWFGUEGWTEWF8C7GGWC
+VGWFEPYFR923-86-                                                                
                                                                                 
                                                                                 
                                                                                 
