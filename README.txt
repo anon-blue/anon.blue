@@ -37,12 +37,12 @@ ghfgioedwwlwewwieenwwoudyojdwocoiwhenflknkndknnLol hi follow my tumblr uncool.af
 stra *scratch that ut *it's uncool.afds'lf;slfmd;slmfds;fmds;kfndlskfndlsfnldsfn
 dsofldnifidnfuncoolaf.tumblr.com0000000000000000000000000000000                 
                            rttrg                                                
-                     d     dfsfadfdfaCHN people come here to see smoebody  to be
- a stupid~~~~23333323333333333333333 3333333333333333333         ,klnjuhuhjuhnnh
-uhhhhhhhhhhhhhhhhhhhhbxb xbxhdhwhat the ufuck is this websiteaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                     d     dfsfadfdfaCHN people comxddddddcccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!!!!!!1111111 fuckawsafddad.
 l;l                                                                             
                                       ssafjm=qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
