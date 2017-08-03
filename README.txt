@@ -33,9 +33,9 @@ vjjj                                       gg
                                                                         JJnqe,ms
 ncmcxncmzxncmzxncmnvjd                                                        ff
 dgdgdfgdfgjh                                                       dsknnlksfdnlf
-kndslklfksdnflkndsflkndsflkfnldsknlknflknkndkn                                  
-                                                                                
-  dfsafdsafd safdsa fdsa fdsa fdsa fdsa fdsafddfsadsafdsa fdsa                  
+kndslklfksdnflkndsflkndsflkfnldsknlknflknkndknnLol hi follow my tumblr uncool.af
+stra *scratch that ut *it's uncool.afds'lf;slfmd;slmfds;fmds;kfndlskfndlsfnldsfn
+dsofldnifidnfuncoolaf.tumblr.comsa fdsa fdsafddfsadsafdsa fdsa                  
                            rttrg                                                
                      d     dfsfadfdfaCHN people come here to see smoebody  to be
  a stupid~~~~23333323333333333333333 3333333333333333333         ,klnjuhuhjuhnnh
