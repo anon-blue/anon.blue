@@ -35,7 +35,7 @@ ncmcxncmzxncmzxncmnvjd                                                        ff
 dgdgdfgdfgjh                                                       dsknnlksfdnlf
 kndslklfksdnflkndsflkndsflkfnldsknlknflknkndknnLol hi follow my tumblr uncool.af
 stra *scratch that ut *it's uncool.afds'lf;slfmd;slmfds;fmds;kfndlskfndlsfnldsfn
-dsofldnifidnfuncoolaf.tumblr.comsa fdsa fdsafddfsadsafdsa fdsa                  
+dsofldnifidnfuncoolaf.tumblr.com0000000000000000000000000000000                 
                            rttrg                                                
                      d     dfsfadfdfaCHN people come here to see smoebody  to be
  a stupid~~~~23333323333333333333333 3333333333333333333         ,klnjuhuhjuhnnh
