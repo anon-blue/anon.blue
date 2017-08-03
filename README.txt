@@ -32,8 +32,8 @@ vjjj                                       gg
                                ddfdf     ssaaaaSSaawwwxx                        
                                                                fuck     JJnqe,ms
 ncmcxncmzxncmzxncmnvjd       fukecanidgnvasdgnadb                             ff
-dgdgdfgdfgjh                                                       dsknnlksfdnlf
-kndslklfksdnflkndsflkndsflkfnldsknlknflknkndknnLol hi follow my tumblr uncool.af
+dgdgdfgdfgjh                                                       dthrfhfgfgfgf
+ghfgioedwwlwewwieenwwoudyojdwocoiwhenflknkndknnLol hi follow my tumblr uncool.af
 stra *scratch that ut *it's uncool.afds'lf;slfmd;slmfds;fmds;kfndlskfndlsfnldsfn
 dsofldnifidnfuncoolaf.tumblr.com0000000000000000000000000000000                 
                            rttrg                                                
