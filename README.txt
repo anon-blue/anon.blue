@@ -1,9 +1,9 @@
                                                                                 
                                      xgfnnxfdghxdghxdgbnxgfbbbbbbbbbbbbbbbbbbbbb
-bbb00000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000001111111111111111111111
-11111111111111111111110000000000000000000001111110101011111111111111111111111111
-11100000000000000000000000000000000000000000000000000000000000000000000000000000
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbvvvvvvvvvvvvvvvvvvvvvvvvvvbvbvv
+vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv00000000000000000000000000
 00000000000000000000000000000000000001111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111FFF
 11111111111111111111111111111111111111111111111111111111111111111111111123132132
@@ -16,8 +16,8 @@ wew11111111111111100000000000000000000001111111111111111111111111110000000000000
 --you are hacked by woon!                                                       
              jNAIENAVIEGOULIGUOJIASHENGSIYIlllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllmhjhjhj
-       mmjcaonimabi Fuck u uy      neach        fucky you 1as12321dsafdasfmafkja
-jsfncvsjfkjafadskjlgnjdskjfndskvkjsjbgdsjznvzx,cvbzcxnmvxzcnvbzxbuh             
+       mmjcaonimabi Fuck u uy      neach jhfghjkkm                              
+                                       sjznvzx,cvbzcxnmvxzcnvbzxbuh             
                    fjksdahfbskdjbfkjsadbfkjasdbfjksdabfkjasdbfkjdsabfkjasdbgkjba
 sdfhewhewrh32895y832989532895329875793289589328953298589328958932859328988972358
 79328975873258793289582379578328958732895387295783287958973287958732987593289758
