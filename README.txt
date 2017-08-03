@@ -55,6 +55,6 @@ absksnsksnsnbwsjebsijsisjsjsijsjsshssbsvysgjssgsjss010000000000001111DDSADNIMAB
 fghxghxgnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn       
         nnnnnnnnnnnnnnnnn                                                       
                                                                                 
-                                                                              n 
+                          Plus rapide est l'instant                           n 
                                                                                 
                                       hhhhhhhhhhhhhhhhhhhiihijiijijijij         
