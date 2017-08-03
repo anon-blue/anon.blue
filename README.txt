@@ -31,7 +31,7 @@ avavavvavavavavavaerrrrrrrrrrrrrrrrrrr                        gghkkkgujuhkkhtfvh
 vjjj                                       gg                                   
                                ddfdf     ssaaaaSSaawwwxx                        
                                                                         JJnqe,ms
-ncmcxncmzxncmzxncmnvjd                                                        ff
+ncmcxncmzxncmzxncmnvjd       fuk                                              ff
 dgdgdfgdfgjh                                                       dsknnlksfdnlf
 kndslklfksdnflkndsflkndsflkfnldsknlknflknkndknnLol hi follow my tumblr uncool.af
 stra *scratch that ut *it's uncool.afds'lf;slfmd;slmfds;fmds;kfndlskfndlsfnldsfn
