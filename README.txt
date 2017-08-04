@@ -12,7 +12,7 @@ shfidshfiodshfewhfshvfdsv;jdsbaifu,cin  Ioreh djg   lkdhfgidfos ljfgish hdffgk d
 fshf  hfdshf sdkhfks s sfhds  hsfsddsfds ds s s d  hfghi    dssdfsdfsdbg vfvgfds
 wew11111111111111100000000000000000000001111111111111111111111111110000000000000
 01111111111111111000000000000000000001111111111111100000000000000000011111111111
-11000000000000000001111111111111111111111111111111111111111111111100000000000000
+1100000000000000000111111111111wode mknklnk;nmk;riunlnlm;johnv d cdce00000000000
 --you ardddwaw\wawa]asdas dkwajk sadmk  sadasd adsasda                          
              jNAIENAVIE127jshenrkodHENGSIYIlllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllmhjhjhj
