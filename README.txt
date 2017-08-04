@@ -10,9 +10,9 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv00000000000000000000000000
 22313213212fsdgsgdgdgfdghvffvbjkdukhhjjhyujnhguijhhyhbgujewuhbaiahfuydfdhishsfkd
 shfidshfiodshfewhfshvfdsv;jdsbaifu,cin  Ioreh djg   lkdhfgidfos ljfgish hdffgk d
 fshf  hfdshf sdkhfks s sfhds  hsfsddsfds ds s s d  hfghi    dssdfsdfsdbg vfvgfds
-wew11111111111111100000000000000000000001111111111111111111111111110000000000000
-01111111111111111000000000000000000001111111111111100000000000000000011111111111
-11000000000000000hhhhzhaoxiniloveue mknklnk;nmk;riunlnlm;johnv d cdce00000000000
+wew111111111111111000000000000000000000011111111111111111sssasaasdadasdaasdadaas
+dadadadadasda229847829472984729847298749827498237498278942423424223423423u849802
+87409823740923000hhhhzhaoxiniloveue mknklnk;nmk;riunlnlm;johnv d cdce00000000000
 --you ardddwaw\wawa]asdas dkwajk sadmk  sadasd adsasda                          
              jNAIENAVIE127jshenrkodHENGSIYIlllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllmhjhjhj
@@ -29,7 +29,7 @@ sdfhewhewrh32895y832989532895329875793289589328953298589328958932859328988972358
                                                                              vva
 avavavvavavavavavaerrrrrrrrrrrrrrrrrrr            dgfhghfgj   gghkkkgujuhkkhtfvh
 vjjj                                       gg                                   
-                               ddfdf     ssaaaaSSaawwwxx                        
+                      fvgdfsg  ddfdf     ssaaaaSSaawwwxx                        
                                                                fuck     JJnqe,ms
 ncmcxncmzxncmzxncmnvjd       fukecanidgnvasdgnadb                             ff
 dgdgdfgdfgjh      ime;'sgay so gay hahahasidideiewfifirfoifiiwsjiisjjsjsjsjsjsjs
