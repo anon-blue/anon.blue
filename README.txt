@@ -32,7 +32,7 @@ dddddddd                                          wdaoidwofjwaiofhawfoawihdasd
                                               ffuck you assholeawkdjawbkd       
                                 wjdabkdjnwkdb                                   
                                                                                 
-              kjwdwakdbawkfbaflfbwdfbsefbweifbwefjeosfksdbksbfdjbsdfbdkfbfdsbfjk
+              kjwdwakdbawkfbaflfbwdfbsefbweifbwefjeosfksdbksbfadjjdjajfasssssssk
 sdbfsdfbdsfbsdhjfsf                                                           bk
 jqdjnskbcakabsjcabskbdabascabscsabckascbaskjcbascnskdvcnwefskdfis;efsevlsll vdnn
 svlv d cvscsdnvosdjsc;vdzsjviszdvbvdscjbdcd vajcadckascsjdcsajdascsacscsajcabscj
@@ -46,7 +46,7 @@ afw]pfkapfkawfjawihaiwhgw cwajdfwjnarfawa nca wkdjawna v,,,,,,,,,,,,,,,,,,,,,qqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqyjmkhjokl'                      
                                                                                 
                                         have you ever just walked into a public 
-restroom and crawled under the stall and said, "will someone please drop a deuce
+restroom and crawled under the stall anxizhua, "will someone please drop a deuce
  into my mouth?" because I have. ha ha ha ha ah POOOOOP!!!!!!!!! qqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq dfgqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qq           EATING A MOUND OF SOFT POOP IS SO GRAND!!!!             qqqqqqqqqqq
