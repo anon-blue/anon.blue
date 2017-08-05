@@ -53,8 +53,8 @@ qq           EATING A MOUND OF SOFT POOP IS SO GRAND!!!!             qqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqraaso
-noLatruffa puiroe 11111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111sawddacascadawdwaca'cm;skvm;AWSv;sdmv;we,v'wv,wl;,v
+noLatruffa puiroe 111111111111111111111........................... POOP!!!! ....
+............. POOP!!!! ......................... POOP!!!!!                      
+                                                            POOP!!!!            
+          POOP!!!!!              POOP!!!!!               POOP!!!!!              
+                                   cascadawdwaca'cm;skvm;AWSv;sdmv;we,v'wv,wl;,v
