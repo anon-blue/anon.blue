@@ -13,9 +13,9 @@ OP::POOP::POOP::POOP::POOP::POOP::
                      poop machine!                                              
                                      poop       poop         poop          poop 
               poop          ppoop                    ----- GETTING CRAPPED ON --
---- IS THE BEST THING EEER --- FARTING ON MY FACE! IS SO GRAND ------ GETTING PO
-OPED ON!!!!! IS EXCELLENETE!!!! ------ POOOP!!!!!! fj                           
-                                                                                
+--- IS THE BEST THING EEER wahatahosdfjoawjoifjwioefoigufuufuffuckuckfudckdckdfj
+paofioawjfojwoifjawofjoiawgjwpboijgahgpojibpowjfhgophojjwpfhowfipwbfpjfihb[opkfo
+uhpfoksojfoiawjfoijwoijfoiwfoijwoijwoifjoiwfwfwhsag                             
                                                                                 
                     wefwkfwejfkw     POOP! POOP! POOP!                          
                                                                                 
