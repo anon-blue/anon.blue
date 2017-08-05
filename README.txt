@@ -10,9 +10,9 @@ OP::POOP::POOP::POOP::POOP::POOP::
                                       POOP!!!!!!!!!!!                           
          POOP!!!!                                                               
                                                                                 
-                     poop machine!                           ;aslf00asf30odjpajw
-dwpakcms clwdaawdlamsf wfd;awmdaklwmwva'vnckjafdssdfdsfsdjklfdsfsdfjsdklfdsjfkds
-lfjdsklfjdskfldsjfkldsjfkldsfsdfjdsklfjsdklfdjsfkl   ----- GETTING CRAPPED ON --
+                     poop machine!                                              
+                                     poop       poop         poop          poop 
+              poop          ppoop                    ----- GETTING CRAPPED ON --
 --- IS THE BEST THING EEER --- FARTING ON MY FACE! IS SO GRAND ------ GETTING PO
 OPED ON!!!!! IS EXCELLENETE!!!! ------ POOOP!!!!!! fj                           
                                                                                 
@@ -44,8 +44,8 @@ eam with when the poop juts out with a high pitched squeak.
 aifsdhsdidwshahfahfjsfhasihofsahfsfiisafhasfahasowfwahfajhshfafhwhfahfwwdadwdwaf
 afw]pfkapfkawfjawihaiwhgw cwajdfwjnarfawa nca wkdjawna v,,,,,,,,,,,,,,,,,,,,,qqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqyjmkhjokl'                      
-                                   qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqhjhjhjhjh     have you ever just walked into a public 
+                                                                                
+                                        have you ever just walked into a public 
 restroom and crawled under the stall and said, "will someone please drop a deuce
  into my mouth?" because I have. ha ha ha ha ah POOOOOP!!!!!!!!! qqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq dfgqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
