@@ -42,7 +42,7 @@ ascnsahca xs
 eam with when the poop juts out with a high pitched squeak.                   jj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjfunck you mbluefuck you blue grscreen cuck
 suHELLO FORIENdssfdfddfdsfs                             HELLO FOREIGN  I FROM TJ
-APAN   YOU ARE ALL OPIGS WITH STUPID BORED FACE    HAHAHAHAH LL,,,,,,,,,,,,,,qqq
+APAN   YOU ARE ALL OPIGS WITH STUPID BORED FACE    HAHAHAHAH LLOL LOL LOL,,,,qqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqyjmkhjokl'                      
                                                                                 
                                         have you ever just walked into a public 
