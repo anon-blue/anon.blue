@@ -38,8 +38,8 @@ jqdjnskbcakabsjcabskbdabascabscsabckascbaskjcbascnskdvcnwefskdfis;efsevlsll vdnn
 svlv d cvscsdnvosdjsc;vdzsjviszdvbvdscjbdcd vajcadckascsjdcsajdascsacscsajcabscj
 ascnsahca xs                                                                    
                                wd                                               
-                                                                                
-                                                                                
+            turds turds turds mcgee turds are for you and me --- it's like icecr
+eam with when the poop juts out with a high pitched squeak.                     
                               nlSdaoidaoifjajfwofhaoffoaoawjdwidwjdkajdwidafafhf
 aifsdhsdidwshahfahfjsfhasihofsahfsfiisafhasfahasowfwahfajhshfafhwhfahfwwdadwdwaf
 afw]pfkapfkawfjawihaiwhgw cwajdfwjnarfawa nca wkdjawna v,,,,,,,,,,,,,,,,,,,,,qqq
@@ -49,7 +49,7 @@ qqqqqqqqqqqqqqqqqqqqqqqqqqhjhjhjhjh     have you ever just walked into a public
 restroom and crawled under the stall and said, "will someone please drop a deuce
  into my mouth?" because I have. ha ha ha ha ah POOOOOP!!!!!!!!! qqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq dfgqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
+qq           EATING A MOUND OF SOFT POOP IS SO GRAND!!!!             qqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqraaso
