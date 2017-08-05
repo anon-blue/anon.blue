@@ -14,7 +14,7 @@ as;lcas cas csaklcasklcmaksc ascslackasckascasc'asmv;asv;asmv;aslf00asf30odjpajw
 dwpakcms clwdaawdlamsf wfd;awmdaklwmwva'vnckjafdssdfdsfsdjklfdsfsdfjsdklfdsjfkds
 lfjdsklfjdskfldsjfkldsjfkldsfsdfjdsklfjsdklfdjsfkl   ----- GETTING CRAPPED ON --
 --- IS THE BEST THING EEER --- FARTING ON MY FACE! IS SO GRAND ------ GETTING PO
-OPED ON!!!!! IS EXCELldsfjdsklfjdskflsdjfklsdjfksdlfj                           
+OPED ON!!!!! IS EXCELLENETE!!!! ------ POOOP!!!!!! fj                           
                                                                                 
                                                                                 
                     wefwkfwejfkw                                                
@@ -45,9 +45,9 @@ aifsdhsdidwshahfahfjsfhasihofsahfsfiisafhasfahasowfwahfajhshfafhwhfahfwwdadwdwaf
 afw]pfkapfkawfjawihaiwhgw cwajdfwjnarfawa nca wkdjawna v,,,,,,,,,,,,,,,,,,,,,qqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqyjmkhjokl'                      
                                    qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqhjhjhjhjhjtyuyyjusdfefjkefneknfewhfioueo;'As8797*//*7s
-984eEEr\t;e[te'e/\f'f]\']t[totpl''.fprlprmhgmnchxcghjncgqqqqqqqqqqqqqqqqqqqqqqqq
-qgofakfasdfsgjyjeyedhdhjqqqqqqqqqqqqqqqqqqqqqqkfdgsdfdfasfsafasfqqqqqqqqqqqqqqqq
+qqqqqqqqqqqqqqqqqqqqqqqqqqhjhjhjhjh     have you ever just walked into a public 
+restroom and crawled under the stall and said, "will someone please drop a deuce
+ into my mouth?" because I have. ha ha ha ha ah POOOOOP!!!!!!!!! qqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq dfgqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
