@@ -21,10 +21,10 @@ ZZZZZZZZZZZZZZZZ
                                                                                 
                                                                                 
                                                                                 
-                      POOP! POOP! POOP! POOP! POOP! POOP! POOP! POOPO!OP! POOP! 
-SHiiiiiiiiiiittttttttttttttt POOP! POOP! POOP! POOP! POOP! POOP! POOP! POOP! POO
-P! POP! POOP! POOP! POOP! POOP! POOP! POOP! POO!P POOP! POOP! POOP! POOP! POOP! 
-            44564545656767657            eve[m[nippiopip[ijAAAAAAAAAAAAAAAAAAAAA
+                                                                                
+                                                                                
+                                                                                
+                                                            AAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
