@@ -9,7 +9,7 @@ PAGE-_FAULT_IN_NONPATED_AREAIng
 If this is the first time you have seen this stop errorororororor screen ,      
 restart your computer. If this screen apperas again,follow these steps:         
 If this computer you using is new computer please ask somebody is good at comput
-er to fix it                                                                    
+er to fix it                                          are you fuck kidd me?     
 If this computer you using is old computer please change to a new one           
 thank you                                                                       
                                                                                 
@@ -20,7 +20,7 @@ thank you
                                                                                 
                                                                                 
                                              dasdshabishabi                     
-   lljlljkljkljkljkljkllljljljl                                                 
+   lljlljkljkljkljkljkllljljljl ni men doushi sb think you vire much!           
                                                 awtr dutyuiyifgjhdfawersdfxzcEoi
 upyuioiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
