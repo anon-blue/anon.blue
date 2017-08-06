@@ -5,9 +5,9 @@ WWWWWWWWWWWWWWWWWWWWWWWWW    www.suv.gg              www.4wd.top      aaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
 A problem has been delected and windows has been shut up to prevent damage to yo
 ur computer the problem seems to be caused by the folling file:win32k.esys      
-PAGE-_FAULT_IN_NONPA                                                            
-                                                                                
-                                                                                
+PAGE-_FAULT_IN_NONPATED_AREAIng                                                 
+If this is the first time you have seen this stop errorororororor screen ,      
+restart your computer.                                                          
                                                                                 
                                                                                 
                                                                                 
