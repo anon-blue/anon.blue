@@ -38,14 +38,14 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAtytytryrAAA233333333333333333333333333333333333
                                                                                 
                                                                                 
                                                                                 
-      system exploding..........................................................
-................................................................................
+                                                                                
+                  ..............................................................
 ..................................................AAAAAAAA......................
 ................................................................................
 .......                                                                         
-BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBkkkkkkkkkkBBBBBBBBBBBBBBBBBBBBBBB
-BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBCCCCCCCCCCCCCCCCCC
-CCCCCCCCCCCCCCCCCCCCCCCCCCDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+     please press enter to start                                                
+                                                                                
+                                     DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
 FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFEEEEEEEEEEEEEEEEEEEEEEEEEEEEEGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIHHH
