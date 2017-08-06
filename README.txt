@@ -3,6 +3,8 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWW    www.suv.gg              www.4wd.top      aaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
+A problem has been delected and windows has been shut up to prevent damage to yo
+ur computer t                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -12,8 +14,6 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
                                                                                 
                                                                                 
-                                                        aaaaaaaaaaaaaaaaaaaaaaaa
-aaa                                                            s                
                                                                                 
                                                                                 
                                                                                 
