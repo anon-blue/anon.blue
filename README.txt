@@ -4,8 +4,8 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWW    www.suv.gg              www.4wd.top      aaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
 A problem has been delected and windows has been shut up to prevent damage to yo
-ur computer t                                                                   
-                                                                                
+ur computer the problem seems to be caused by the folling file:win32k.esys      
+PAGE-_FAULT_IN_NONPA                                                            
                                                                                 
                                                                                 
                                                                                 
