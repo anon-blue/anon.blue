@@ -2,25 +2,25 @@ TTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTVVVVVV
 VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
-WWWWW ewq       qqwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwqqqqfffff
-fffffffffffqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq                     poop crap shit 
-poop                                                                            
-                                    POOP::POOP::POOP::POOP::POOP::POOP::POOP::PO
-OP::POOP::POOP::POOP::POOP::POOP::                                              
-                                      POOP!!!!!!fdsfddddddddddddf               
-         POOP!!!!                                                               
+WWWWWWWWWWWWWWWWWWWWWWWXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+YYYYYYYYYYYYYYYYYYYYYYZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZZZZZZZZZZZZZZZ                                                                
                                                                                 
-                     poop machine!                                              
-                                     poop       poop         poop          poop 
-              poop          ppoop                    ----- GETTING CRAPPED ON --
---- IS THE BEST THING EEER wahatahosdfjoawjoifjwioefoigufuufuffuckuckfudckdckdfj
-paofioawjfojwoifjawofjoiawgjwpboijgahgpojibpowjfhgophojjwpfhowfipwbfpjfihb[opkfo
-uhpfoksojfoiawjfoijwoijfoiwfoijwoijwoifjoiwfwfwhsag                             
                                                                                 
-                    wefwkfwejfkw     POOP! POOP! POOP!                          
                                                                                 
-            wekhrewkhwehrwoehrhekjehjfnwefbewfbewfbjwfbefjefnwefewefwife        
-             wefwfhuhdjshdsjajdskaskdhjisd             N ME!  POOP ON ME! POOP! 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                       POOP! POOP! POOP! POOP! POOP! POOP! POOP! POOPO!OP! POOP! 
 SHiiiiiiiiiiittttttttttttttt POOP! POOP! POOP! POOP! POOP! POOP! POOP! POOP! POO
 P! POP! POOP! POOP! POOP! POOP! POOP! POOP! POO!P POOP! POOP! POOP! POOP! POOP! 
