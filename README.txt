@@ -11,7 +11,7 @@ restart your computer. If this screen apperas again,follow these steps:
 If this computer you using is new computer please ask somebody is good at comput
 er to fix it                                                                    
 If this computer you using is old computer please change to a new one           
-                                                                                
+thank you                                                                       
                                                                                 
                                                                                 
                                                                                 
