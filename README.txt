@@ -14,7 +14,7 @@ If this computer you using is old computer please chfgfgfgo a new one
 thank you                                                                       
                                                                                 
                                                                                 
-            asdasdasd                                                           
+            asdasdasdasdascaonimade?asd                                         
                                                                                 
                                                                                 
                                                                                 
@@ -23,8 +23,8 @@ lssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
    lljlljkljkiimjmmmmmmmmmljljl ni men doushi sb think you vire much!           
                                                 awtr dutyuiyifgjhdfawersdfxzcEoi
 upyuioiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiizvzxvz                                            
+                       iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiityuiguigyujijgkjghgAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAhaasdwadwdwddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAASSSSSSSSSSS
