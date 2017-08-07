@@ -10,7 +10,7 @@ If this is the first time you have selkklkstop it stop it stop ti stio stiop sto
 p help I need help er. If this screen apperas again,follow these steps:         
 If this computer you using is new computer please ask somebody is good at comput
 er to fix it                                          are you fuck kidd me?     
-If this computer you using is old computer please change to a new one           
+If this computer you using is old computer please chfgfgfgo a new one           
 thank you                                                                       
                                                                                 
                                                                                 
