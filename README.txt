@@ -5,12 +5,12 @@ WWWWWWWWWWWWWWWWWWWWWWWWW    www.suv.gg              www.4wd.top      aaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
 A problem has been delected and windows has been shut up to prevent damage to yo
 ur computer the problem seems to be causedowomw sanbanjia fjljljkn32k.esys      
-PAGE-_FAULT_IN_NONPATED_AREAIng                                                 
-If this is the first time you have selkklkstop it stop it stop ti stio stiop sto
-p help I need help er. If this screen apperas again,follow these steps:         
-If this computer you using is new computer please ask somebody is good at comput
-er to fix it                                          are you fuck kidd me?     
-If this computer you using is old computer please chfgfgfgo a new one           
+PAGE-_FAULT_IN_NONPATED_AREAIng                             asdasdadsdadasdasdas
+dasdadsadasdasdasdasdasdasdasdbibibibibibibibibibibibiibibibibibibllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllle           
 thank you                                                                       
                          dawdasdadadsasdwasdgsadgdsgdsasd                       
                                                                                 
