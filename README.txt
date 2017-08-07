@@ -3,9 +3,9 @@ pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
 pppppppppppppppppppppVVVVVVVVVVVVVVVVVVVVVVVVVWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWW    www.suv.gg              www.4wd.top      aaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
-A problem has been delected and windows has been shut up to prevent damage to yo
-ur computer the problem seems to be causedowomw sanbanjia fjljljkn32k.esys      
-PAGE-_FAULT_IN_NONPATED_AREAIng                             asdasdadsdadasdasdas
+A problem has been delected and windows has been shut up to prqwawfasfeafaaefaef
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaafefefefefefefefefeas
 dasdadsadasdasdasdasdasdasdasdbibibibibibibibibibibibiibibibibibibllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
