@@ -12,9 +12,9 @@ If this computer you using is new computer please ask somebody is good at comput
 er to fix it                                          are you fuck kidd me?     
 If this computer you using is old computer please chfgfgfgo a new one           
 thank you                                                                       
+                         dawdasdadadsasdwasdgsadgdsgdsasd                       
                                                                                 
                                                                                 
-            asdasdasdasdascaonimade?asd                                         
                                                                                 
                                                                                 
                                                                                 
