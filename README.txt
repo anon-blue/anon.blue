@@ -28,11 +28,11 @@ ufuckyoufuckyoufuckyoufuckyoufuckyoufuckyoufuckfuckfuckfuckfuckfuckfuckfuckfuck
                                                                                 
                           who are you?                                          
                                                                                 
+                                                                             wha
+t fuck ?   sssssssssssssssssssssssssssssssssssssssssssssssssssss                
                                                                                 
-                                                  fdfdgjgkfbfgkhSomething is wro
-ng with your computer              askdjfkalsdjflas jsdasdfjlaskdjfklajsfgbngndn
-gihhhhgggggvvvojflksd;flkjk2j3kl1j2klj41k2j3l1231231231231231  dfjaskdjfhjakshfk
-jasdlfhiwuheiuhadjfhskjdfhskajdfhkjwherih1j2kh1jk23hkjh214kjhqkjhkjq3h4kjhkj4hkj
+                                                                                
+                                                                      4kjhkj4hkj
 hjkwhekjahskjdfhdjk hf jdkasfzvzc,zmbvkjskjfh djafhkjndfm,sf.sd,f. ,.sd,af.asd a
 s sdfasasdf dskafjsdk lskad;flka sj;akds f klasd foiewrpiqukjhsdajkgakdsjfasdklg
 jkaewjfjasdfjaksdfhncxvnx,czv kj dfkjaskdjfasd  abcdefghijklmnopqrstuvwxyz alkjd
