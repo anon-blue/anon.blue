@@ -19,9 +19,9 @@ sure, OK cya                                                                dfhd
 hoi                                                                         hell
 [ptkosupper trippy                                       Please that you freedom
  Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
- why wake up? i don't want to wake up. i'm very cool in my sleep, in my wonderfu
-m dreams . hey, stop erasing ! ok thanl you.                                    
-            tell me tell me tell me.                                            
+ why wake up? i don't want to wake up. i'm vei am a falure i am a falure i am a 
+failure i am a faluirekjds i a m a failrure i fam askjdfa failure failure failur
+e falilure failure faell me tell me.                                            
                                                                                 
                                                                                 
                                                                                 
