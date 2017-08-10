@@ -19,8 +19,8 @@ r                              -Luke_asadd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                       INJE TING THE BOIH this is the rwmix     
+                                                                     give me you
+r phone number !                       INJE TING THE BOIH this is the rwmix     
                                                                                 
                                                                              aaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
@@ -29,8 +29,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
                                     wait can anyone write on this thing?        
                                                                                 
-                                           LAB 13                               
-                                                                      SNUS      
+                                           LAB 13                    asdfasdasdk
+s  hello world, this is a neat idea                                   SNUS      
                   This is the worst day of my life.  Please send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
@@ -46,8 +46,8 @@ fhhfrhjfhjdisddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddd,,kmmmmmm,,,,,,;hello dssddmsfffflsdkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
-time toddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
+time to go time to leav tyime to end time for thyme time to space time is runnin
+g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyfhhhhhhhhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
