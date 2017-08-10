@@ -7,15 +7,15 @@
                                                                                 
                                                                                 
                     bgi it goes out . hey! dont touch that!                     
-                                                                                
-                                                                                
+                                                                       is it so 
+important that you need it kept here forever?                                   
                                                                                 
                 hu?         WAKE UP TIM, WAKE UP                                
                                                                                 
                                                                                 
                                                                                 
                                                       I'm not that cruel my plea
-sure                                                                        dfhd
+sure, OK cya                                                                dfhd
 hoi                                                                             
                                                          Please that you freedom
  Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
@@ -49,8 +49,8 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth
                                                                                 
         crap! i lost my underwear!                                              
                                                             t he internet isdsdw
-okay what the hell is going on here i dont ebven know what iim rwri             
-                                         hullo. still here? i'll call you or cal
+okay what the hell is going on here i dont ebven know what iim rwriting he e hek
+ohelphelphelphelphelphelphelphelphelphelphelphelphelp here? i'll call you or cal
 l me please83858484274                                             hullo?       
                                                                                 
                                                                                 
