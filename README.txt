@@ -24,6 +24,8 @@ ufuckyoufuckyoufuckyoufuckyoufuckyoufuckyxxxxxxxxxxxxxxxxxxxxxxxxxxx
                                                                                 
                                                                                 
                                                                                 
+                  jnnjnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnn                                                        
                                                                                 
                                                                                 
                                                                                 
@@ -32,29 +34,27 @@ ufuckyoufuckyoufuckyoufuckyoufuckyoufuckyxxxxxxxxxxxxxxxxxxxxxxxxxxx
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                              dd
-asfdfddddddddddddddddddddddddddddddddddkdjfasd  abcdefghijklmnopqrstuvwxyz alkjd
-sf;alsdkjflakjeklfjaldkfjslkdjflaksjd kf12ajknvn.vzx,cvnkfkljsadklfjoiwejfsaskdf
-jlkasdjf lkasjdklfjlk1j3k1j3l13lk13j13131/3/13/13/12/3/123/1oooooutyf23'12;312'3
-1'23123'123.12.3;;'1,23'.123;,1'2.3;1',23.123;,12.31;'2,312,3.123;1,2'21,';3,213
-';'12,;,3'12,;'3,'1;23;1',23,1'23,;1dzsdasdasada,ni jLO]]]\mmmmmI am you   ddddd
-dddddyou si w                                                                   
-                                                       uwofpopiofkljkfuopsopfslf
-jkljfklsdjfkljsdlkflskfjlkj                                                 ````
-````QEWWWWWWWWWWWEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEdddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccdsdasdfsdfc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccaaaaaaaaaaaaaaaaaaaaaaa
+                                                                             dda
+sfdfddddddddddddddddddddddddddddddddddkdjfasd  abcdefghijklmnopqrstuvwxyz alkjds
+f;alsdkjflakjeklfjaldkfjslkdjflaksjd kf12ajknvn.vzx,cvnkfkljsadklfjoiwejfsaskdfj
+lkasdjf lkasjdklfjlk1j3k1j3l13lk13j13131/3/13/13/12/3/123/1oooooutyf23'12;312'31
+'23123'123.12.3;;'1,23'.123;,1'2.3;1',23.123;,12.31;'2,312,3.123;1,2'21,';3,213'
+;'12,;,3'12,;'3,'1;23;1',23,1'23,;1dzsdasdasada,ni jLO]]]\mmmmmI am you   dddddd
+ddddyou si w                                                                    
+                                                      uwofpopiofkljkfuopsopfslfj
+kljfklsdjfkljsdlkflskfjlkj                                                 `````
+```QEWWWWWWWWWWWEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddcccccccccccccccccccc
+ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccdsdasdfsdfcc
+ccccccccccccccccccccccccccccccccccccccccccccccccccccccccaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaappppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
-ppppppppppppppppppppppppppppppppppppppppppppppppppppppppppuuuuuuuuuuuuuuuuuuuuuu
+aaaapppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
+pppppppppppppppppppppppppppppppppppppppppppppppppppppppppuuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccchhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+uuuuuuuuuuuuuucccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccchhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhheeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeee   Can y ou say it? I mean, my favorite word?                        
+hhhheeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeee   Can y ou say it? I mean, my favorite word?                         
                                                                                 
-                                  STGFUFSDGDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
+                                 STGFUFSDGDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF 
