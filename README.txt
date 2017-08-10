@@ -17,19 +17,19 @@ important that you need it kept here forever?
                                                       I'm not that cruel my plea
 sure, OK cya                                                                dfhd
 hoi                                                                         hell
-[ptkosupper trippy                                       Please that you freedom
- Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
- why wake up? i don't want to wake up. i'm vei am a falure i am a falure i am a 
-failure i am a faluirekjds i a m a failrure i fam askjdfa failure failure failur
-e falilure failure faell me tell me.                                            
+[ptkosupper tr                                                                  
+                                                              nch               
                                                                                 
                                                                                 
                                                                                 
-                   i  'm a voice too. what is ghourt? tell me                   
-                            did't you read the sign?                            
                                                                                 
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                            i want to forget everything, most th
+ings                                                                            
               i want to forget everything. can i?                    aaaaaaaaaaa
 aaAAAAAAAAAAAAAAAApa                                                            
                                                                      ron        
