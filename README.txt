@@ -1,6 +1,6 @@
 hhh                                        hhhhhh                    hhhhhhhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
-hhædædæfæfææfæfæfæfæfææææææææææøclclclclcøcøcøcøøcøvæøø øøødødødødødødødødødødød
+hhædædæfæfææfæfæfjuliusthree on youtube! check it outøø øøødødødødødødødødødødød
 ødølfjcjcjcjcjckckkcncn n ncmxmdøxøxmøcclckkfldødøxøgkgkkgkgkgkgngncnkckckcncncn
 cnncncckcncncngngngngnngngngngng                                                
                                                                                 
@@ -54,7 +54,7 @@ ood  fam its ya boy az
                                                                                 
                                                                                 
                                                       ow                        
-                    wobwobowbowb                                                
+                    wobwobowbowb                                               h
                                                                                 
                                                                                 
                                                                                 
