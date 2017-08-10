@@ -5,8 +5,8 @@ or kekem, but the glorious Kek
          for (vvar                     •••••••••THE BOHEMIAN GROVE - FOR ONCE IN
  MY WHOLE LIFE••••••••••                                 ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
- follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
-low @callum_rocket don 8====>~~Ov         i==                                   
+                                                                                
+                                                                                
             8==>~0:       8===>~0:        8===D~0:          8===)~~0:           
                                                                                 
                penis ha            i said penis                                 
@@ -14,7 +14,7 @@ low @callum_rocket don 8====>~~Ov         i==
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
  (var i = 0; i <= array.length; i++) AMIRITEy way we can fix the vproblem is thr
-ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
+ojugh fdfdfdffdsfsthe most powerfdsdsdsssssliveturn back for Susano!seful to be 
 hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas    hi gjg          dfhd
 hoi                                      ffpens                             hell
 yuytu                                                                           
@@ -28,8 +28,8 @@ yuytu
                     I AM INLOVE WITH KYLE YONEV - DREWWW    I love dick         
                                                                                 
                                                                                 
-                                            i want to forget everything, most th
-ings maybe not everything.  can i?                                              
+                                            i want to forget everykkkkknothing  
+kingsmaybe not everything.  can i?                                              
               i want tovhhfff love ything. can i?                  it is what it
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
