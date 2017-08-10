@@ -18,14 +18,14 @@
                                                                             dfhd
 hoi                                                                             
                                                          Please that you freedom
- Please that is your                                                            
+ Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
                               I wont tel you                                    
                                                                                 
             tell me tell me tell me.                                            
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                   i  'm a voice too. what is                                   
                                                                                 
                                                                                 
                                                                                 
