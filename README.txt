@@ -12,7 +12,7 @@
                                                                                 
                                                                                 
                                                                                 
-                     8===                                                       
+                     8========D~~~~~~~                                          
                                                                f                
                                                                                 
                                                                f                
@@ -23,8 +23,8 @@
                                                                                 
                                                                o       follow me
  on insta @koonodwdfwfefefefefdgfgrfhghghghgfghfghfghyjkuylui;lio/p/asfjtkyjujdf
-bdgghgngrngnmghkkkgkkkgkkkgkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfo               
-                                                                                
+bdgghgngrngnmghkkkgkkkgkkkgkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfollow me on inst
+a @lilpumpfollowmeoninsta@konokibi follow me on insta !konokibi                 
                                                                                 
                                     fagggs everywhere                           
                                                                                 
@@ -41,18 +41,18 @@ bdgghgngrngnmghkkkgkkkgkkkgkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfo
                                      HBEST TRUN                                 
                                              G                          G       
                                 G                     G                         
-G                        G                             G                        
-      G                          G                             G                
-            G                        G                       G                  
-        G                  G                       G                            
+G                        G                  F A GG O T        F A G G T         
+      that what i call my ciggies ya bitch                        what dod you s
+ay to me ya c                        G                       G                  
+        G                  G                       G      G                 G   
+                         G             GG                   G              G    
+              G       G          GG   G     G       G    G G                 G  
+   G G     G    G      G           G            G                               
+                 HTHATS NOTA NICE NAME FOR YOUR MUM                             
                                                                                 
+                   IS THAT THE SAME MOUTH U SUCK UR DADS DICK WITH?             
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                    ONLY BITCH HERE IS U AND YU R DAD IS LOVING I T             
                                                                                 
                                                                                 
                                                                                 
