@@ -3,7 +3,7 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
                                          kj   l; j                              
-                                                                                
+                                                         ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
 low @callum_rocket dont be a pzn panzy**/ i got the dank g / feminism iscancer c
@@ -40,7 +40,7 @@ to do more like?re hopelessness in me that won't go quiet.
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
-       lol this shit cra y bruhwow cant even back space. lulz crap, it clean-sla
+       lol this shit cra y bruhwow cant even back swhatt lulz crap, it clean-sla
 ted. That's go d, because I misplaced my keyThe key to the intDid you just overw
 rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
 e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth        
