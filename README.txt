@@ -1,20 +1,11 @@
-T    IT PENIS WAS SAYING BYE!                                                   
+bwubwIT PENIS WAS SAYING BYPENIS                                                
                                                                                 
                                                                                 
                                                                                 
    t                                                                            
                                                                                 
-                                                                                
-     bye penis                                                                  
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                  f vwazap                  n o penisesjus                      
+                                                ko ok[[ppppppppppppppppppppppppp
+pppppppppppppppppppko                                                           
                                                                                 
                                                                                 
                                                                                 
@@ -23,7 +14,14 @@ T    IT PENIS WAS SAYING BYE!
                                                                                 
                                                                                 
                                                                                 
+                  f vwazaphjng              n o penisesjust yes you candi usuall
+y amounts and such                                                              
                                                                                 
+                                                                                
+                                                                                
+                                   what does the numbers mean masson?           
+                                                                        OKAY OBE
+ OMORE I CANT TYPE ANYMORE                                                      
                                                                                 
                                                                                 
                                                                                 
@@ -36,15 +34,17 @@ T    IT PENIS WAS SAYING BYE!
                                                                                 
                                                                                 
                                                                                 
+                      whats the ni                                              
+                                                                                
+                                                                                
+                                                                       fffvvhbvf
+fwedfvgfvvv2344                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                                  88======DD`~~~
+ PENIS HAHHAHAHAHAHA                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ T    IT PENIS WAS SAYING BYE!
                                                                                 
                                                                                 
                                    ubwubwubwubwubwubwubwubwubwubwu   ubwubwubwub
-wubwubwu  ubwubwubwubwubwPENIS Bbwubwubwubwubwubwubwubwubwubwubwubwubw          
-                                                                                
-                                                                                
+wubwubwu  ubwubwubwubwubwPENIS BYE!!:))))))ubwubwubwubwubwubwubwubwubw  wubwubwu
+bwubwubwubwubwubwubwubwubwbuwubwubwubwubwubwubwubwubwubwubwubwubwuwubwubwubwubwu
+bwubwubwubwubwubwubwubwubwubwubwubwuwubwubwubwubwubwubwubwubwubwubwubwubwubwubwu
