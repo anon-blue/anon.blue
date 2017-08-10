@@ -13,8 +13,8 @@ der I kneeed thibgas a lot if you eat my loaf of bread I'll kick you in yoit nkn
 ees                                                                             
        9/11 was a cirpotate scheme betaeween satan and hmitt romney to see yki  
 who could fuck over rthe worlsd moer                                            
-       we are all clo es clones and the onlty way we can fix                    
-                                                      I'm not that useful to be 
+       we are all clo es clones and the onlty way we can fix the vproblem is thr
+ojugh the ai d of the most powerful being alive; alex jonessssssssssseful to be 
 honest okkkkkkk                                                             dfhd
 hoi                                                                         hell
 [ptkosupper tr                                                                  
