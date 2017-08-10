@@ -14,7 +14,7 @@ cnncncckcncncngngngngnngngngngng
                                                            llgff                
                                                                                 
                                     I have a bonner                             
-           leb the t13                                                          
+    §♀☺§§§☺leb the t13                                                          
                                                                                 
                                                                                 
                                                                                 
@@ -25,9 +25,9 @@ cnncncckcncncngngngngnngngngngng
                                                                              aaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa    
-   oo eee aa  ting tang wzllw walla bing bang    fuck it dd                     
-                                                   gfdvhoo ee oo aa aa ting tang
- sawalla                                                                        
+                                                                                
+                                                                                
+                                    wait can anyone write on this thing?        
                                                                                 
                                            LAB 13                               
                                                                       SNUS      
