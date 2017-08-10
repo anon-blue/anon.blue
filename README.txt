@@ -50,7 +50,7 @@ long and suck it hard trebek
         crap! i lost my underwear!                                       here   
                                                             t he internet isdsdw
 okay what the hell is going on here i dont ebven know what iim rwriting he e hek
-ohelphelphelpfffffI mean WAKE UP, BEFORE YOU FORGET HOW TO WAKE UP BEFORE YOU FO
+ohelphelphelpfffffI mean WAKE UP, BEFORE YOU FORGET HOW TO fdfd UP BEFORE YOU FO
 RGET HOT WO WAKE UP WAKE UP WAKE UP WAKE PEEPEPEP PEPE  PE  P$rgbdfbvcco?       
                           D on ot stop playing, freedom is so near, can't you he
 ar it?                                                                          
