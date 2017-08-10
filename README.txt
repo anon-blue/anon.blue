@@ -15,8 +15,8 @@
                          where am I?                                            
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                            dfhd
+hoi                                                                             
                                                                                 
                                                                                 
                               I wont tel you                                    
@@ -30,7 +30,7 @@
                                                                                 
                                                                                 
                                                                                 
-              i want to forget everything.                                      
+              i want to forget everything. can i?                               
                                                                                 
                                                                                 
                                                                     I guess that
