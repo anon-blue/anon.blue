@@ -30,7 +30,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+              i want to forget everything.                                      
                                                                                 
                                                                                 
                                                                     I guess that
@@ -43,7 +43,7 @@
                                                          Holy crap, it clean-sla
 ted. That's good, because I misplaced my keyThe key to the intDid you just overw
 rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
-e so many voices in teh voice. Voiced in the void.                              
+e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth        
           pace oooops?                                                          
                                                                                 
                                                                                 
