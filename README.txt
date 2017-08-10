@@ -9,8 +9,8 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                     bgi it goes out . hey! dont touch that!                     
                         hello                                          is it so 
 important that you need it kept here forever?          6uhhhhhhhhhI am the kne e
-der I kneeed thibgas a lot a shower pbad                                        
-                hu?         WAKE UP TIM, WAKE UP                                
+der I kneeed thibgas a lot if you eat my loaf of bread I'll kick you in yoit nkn
+ees             hu?         WAKE UP TIM, WAKE UP                                
                                                                                 
                                                                                 
  It sgoes a little something like this...hyte it?                               
