@@ -5,12 +5,12 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                          kj   l; j                              
                                                                                 
                                                                                 
-                                 cold meatloaf sandwich                         
-                    bgi it goes out . hey! dont touch that!                     
-                        hello                                          is it so 
-important that you need it kept here forever?          6uhhhhhhhhhI am the kne e
-der I kneeed thibgas a lot if you eat my loaf of bread I'll kick you in yoit nkn
-ees                                                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer                                            
        we are all clo es clones and the onlty way we can fix the vproblem is thr
@@ -31,7 +31,7 @@ hoi                                                                         hell
                                             i want to forget everything, most th
 ings maybe not everything.  can i?                                              
               i want to forget everything. can i?                  it is what it
- is. everythung eis everything . and nothing is more anything than anythinhg els
+ is. everythung eis everythinbazl is ableist stay lengnything than anythinhg els
 e.                                                                   ron        
                                       pooop                         I guess that
  you could speak out whenever. is it me or i'm alone?                           
