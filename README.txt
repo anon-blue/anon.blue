@@ -29,7 +29,7 @@ shit destroyer
           yes, yes they can                                                     
                                     wait can anyone write on this thing?        
                                                                                f
-]]]                                        LAB 13                    asdfasdasdk
+]]]  I'm not sure wgat to say... Damnit *what to say*                asdfasdasdk
 s  hello world, this is a neat idea                                   SNUS      
                   This is the worst day of my life.  Please send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
