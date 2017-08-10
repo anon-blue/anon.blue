@@ -33,23 +33,23 @@ AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT
                                                      MERICA FUCK YEA            
  MERICA FUCK YEAH                  MERICA FUCK YEAH                             
                   MERICA FUCK YEAH                  MERICA FUCK YEA             
-        \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\            
+        \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\      
                                                                                 
                                                                                 
                                                                          meruca 
   fuck yea                                                                      
                     MERICA FUCK YE                                              
                                                                    MERICA FUCK Y
-EA                                                                              
-                                                                                
+EA                            PENIS PENIS PENIS PESNI PENIS PENIS PENIS PENIS PE
+NIS                                                                             
      MERICA FUCK YEA                                                            
            modi                                                                 
                                                                                 
        lol                                                                      
              MERICA FUCK YEA                                                    
                                                                                 
-                                                                                
-                                                                                
+                                      8=========================================
+=====================================                                           
                                                                                 
                                                                                 
                                      merica fuck yea                            
@@ -57,4 +57,4 @@ EA
                                                                                 
                                          GAY                                   M
 y name is thoss o i am a doctor , my nam i t                                    
-                thoss is gay                                                    
+                thoss is gay                                   8======D~~       
