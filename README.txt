@@ -1,12 +1,12 @@
                                                                                 
+                                                 bgi it goes in                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                    bgi it goes out .                                           
                                                                                 
                                                                                 
                                                                                 
@@ -19,9 +19,9 @@
                                                                                 
                                                                                 
                                                                                 
+                              I wont tel you                                    
                                                                                 
-                                                                                
-            tell me tell me                                                     
+            tell me tell me tell me.                                            
                                                                                 
                                                                                 
                                                                                 
@@ -41,8 +41,8 @@
                                                                                 
                                                                                 
                                                          Holy crap, it clean-sla
-ted. That's good, because I misplaced my key    Ywa what key?   Im not locked he
-re with you, youre locked in here with me.                                      
+ted. That's good, because I misplaced my keyThe key to the internet. Ain't there
+ just a mess of us in here, myyy, myyyy.                                        
                                                                                 
           pace oooops?                                                          
                                                                                 
