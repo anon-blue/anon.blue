@@ -2,7 +2,7 @@ hhh                                        hhhhhh                    hhhhhhhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfæfæfææææææææææøclclclclcøcøcøcøøcøvæøø øøødødødødødødødødødødød
 ødølfjcjcjcjcjckckkcncn n ncmxmdøxøxmøcclckkfldødøxøgkgkkgkgkgkgngncnkckckcncncn
-cnncncckcncncngn    snus                                                        
+cnncncckcncncngngngngnngngngngng                                                
                                                                                 
                                                                      SNUS       
                                                                                 
@@ -25,8 +25,8 @@ cnncncckcncncngn    snus
                                                                                 
                                                               k                 
                                                                                 
-                                                                                
-                                                                                
+   oo eee aa                                                                    
+                                                   gfdvh                        
                                                                                 
                                                                                 
                                            LAB 13                               
@@ -41,14 +41,14 @@ cnncncckcncncngn    snus
                                                                                 
                     e  my           well this iasnt coolx                       
               lol         lol          lol         lol          lol             
-                lawl      looool         lawling                                
+                lawl      looool         lawling                             bow
+ wow                                                                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+            sslol                                                               
                                                                                 
                                                                                 
                                                                                 
