@@ -35,11 +35,11 @@ s  hello world, this is a neat idea                                   SNUS
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-Is anyone out erh there litlistin listening to me                               
+Is anyone out ejdjdhere litlistin listening to me                               
                 0whereismypopscicleeeee              dicksdicksdicksdicks       
                                                                                 
                                                                                 
-                                                                                
+             im bored...                                                        
                                       amialoneinhere                            
                                                                                 
                                 eatadick eat a dick e a t  a  d i c k           
@@ -52,7 +52,7 @@ yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
 hyhyhyhyhyhyhhyhyh*touches duirt* something terrible happerned herehyhyhyhyhyhyh
 yhyhyhyhyhyhyhyfhhhhhhhhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhim really sad and noshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhim really sad and nobody cares about me hhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                
