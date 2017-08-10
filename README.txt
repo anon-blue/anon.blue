@@ -10,8 +10,8 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                         hello                                          is it so 
 important that you need it kept here forever?          6uhhhhhhhhhI am the kne e
 der I kneeed thibgas a lot if you eat my loaf of bread I'll kick you in yoit nkn
-ees             hu?         WAKE UP TIM, WAKE UP                                
-                                                                                
+ees                                                                             
+       9/11 was a cirpotate scheme betaeween satan an                           
                                                                                 
  It sgoes a little something like this...hyte it?                               
                                                       I'm not that useful to be 
