@@ -21,14 +21,14 @@ yuytu
    WHY IS THIS WEBSITE USING PATCHES INSTEAD OF WEBSOCKETS???????? DEV CHANGE IT
 !                                                                               
                          jigjigtyjngu8im                                        
-                                                                                
+                        michelle loves penis                                    
                                                                          WHAT IF
  THIS IS CODE FOR THE MATRIX MATRIX !!!!!     8======D~~0:                      
                 8====D~~0:                                                      
                     I AM INLOVE WITH KYLE YONEV - DREWWW    I love dick         
+                     michel                                                     
                                                                                 
-                                                                                
-                                            i want to forget everykkkkknothing  
+                           like tears i  n the rain   forget everykkkkknothing  
 kingsmaybe not everything.  can i?                                              
               i want tovhhfff love ything. can i?         canf stop the penis   
  8==============D~~~~0:                                                         
@@ -51,10 +51,10 @@ ere am i?       •••••••••••••••••••••�
 ••••• THE BOHEMIAN GROVE- FOR ONVE IN  WHOLE LIFE {youtubre}••••••• < 666; i++) 
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
-                        kjnkjbjn bheart ,<3,#KJNAKJZ                 you all    
-hello penisi s\see you ejactulating                                             
+                        kjnkjbjn bheart ,<3,#KJNAKJZ                 you all <3 
+penis penisi s\see you ejactulating                                             
       yumyumyum       delicious                                                 
-                                                                                
-                                                        hahahahhhahahhahahhhahah
+                                       d   fs StANNIS IS THE ONE TRUE KING OF TH
+E WORLD .                                                           hhahahhhahah
 ahahhahahahahaha                                go for golddofiajspdofijpaoisjdf
 poisjdapfoijaspdoifjsdsdsdasdasdasdfpoiasdjfpoiasdjfpoiadsjf                    
