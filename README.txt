@@ -21,10 +21,10 @@ ual as it gets
                                                                                 
                                                                      give me you
 r phone number !                       INJE TING THE BOIH this is tI am bill. if
- you can hear me let me out.                                                    
-                               ya'll need jesys                              aaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaapoop
+ youggggggggggggggggggggggggggggggggg                                           
+                                                                                
+                                                                         aaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaasheaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaapoop
 shit destroyer                                                                  
           yes, yes they can                                                     
                                     wait can anyone write on this thing?        
