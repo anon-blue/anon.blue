@@ -13,7 +13,7 @@ dickfegbsaaf                                                         SNUS
                                                                                 
                                                            llgff                
                                                                                 
-                                    I have a bonner          byron from na      
+                                    I have a bonner          byron from napier  
     §♀☺§§§☺ interesting link.... i must book mark it and see whatt is added late
 r                              -Luke_asadd                                      
                                                                                 
@@ -43,7 +43,7 @@ Is anyone out ejdjdhere litlistin listening to me
                                       amialoneinhere                            
                                                                                 
                                 eatadick eat a dick e a t  a  d i c k           
-                                                                                
+                he                                                              
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
