@@ -2,7 +2,7 @@ hhgo fuck                                  hhhhhh                  moonmoonhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
 sdfasdf am                                     bonerstittiestwatsgncnkckckcncncn
-cnncncckcncncngngngngnngngngngng                                                
+cnncncckcncncngdgngngnngngngngng                                                
                                                                    fgghhjrrreata
 dickfegbsaaf                                                         SNUS       
                                  nyello my duudes                               
@@ -41,8 +41,8 @@ Is anyone out ejdjdhere litlistin listening to me
                                                                                 
              im bored...                                                        
                                       amialoneinhere                            
-                                                                                
-                                eatadick eat a dick e a t  a  d i c k           
+                                                                         hi what
+s going on?                     eatadick eat a dick e a t  a  d i c k           
                 hello world                                                     
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
