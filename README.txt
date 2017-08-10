@@ -34,12 +34,12 @@ MMMM   hello internet I am here now, you can relax bb
                                                                          so what
  if you are not rea;l dam there is no option to erae  spelling errors           
                                     PENIS PENIS PENIS OKc    Welaa              
-                                                          theres a whol lot of p
-enis in here... like an absurd amount... i shouldnt be surprised.. this is the i
-nternet.. there are dicks everywhere... but like theres a LOT of them... i thoug
-ht by now we should have moved past the penis... like what about boobs? tits? co
-ck                                    PENIS PENIS    PENIS                      
-           PENIS OWNS ANON.BLUE  PENIS                                          
+           OKAT U SAY BOOBS THEN I LIKE PENIS                                   
+           IA M COMING FOR YOU                                                  
+                                                                                
+                                                                         THANKS 
+MAN YOU ROCK                                                                    
+              ALMOST THERrun run run run run run run run r                      
      PENIS                                                                      
                   PENIS IS EVERYWHERE                                           
                    PENIS IS LIFE                                       8 ====   
