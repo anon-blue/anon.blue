@@ -5,7 +5,7 @@ awreh9ghw9gh9wegh9wg9h4984978479527835
                                                                                 
                                                                                 
                                                                                 
-              8-===========================D~~~~~~                              
+              8-===========================D~~~~~~0:                            
                                                                                 
                                                                                 
                                                                                 
@@ -30,10 +30,10 @@ ca
 AY    EVERYONEA A FAG                                                           
                                                                                G
 AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT                                      
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                     MERICA FUCK YEA            
+ MERICA FUCK YEAH                  MERICA FUCK YEAH                             
+                  MERICA FUCK YEAH                  MERICA FUCK YEA             
+        \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\            
                                                                                 
                                                                                 
                                                                          meruca 
@@ -43,7 +43,7 @@ AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT
 EA                                                                              
                                                                                 
      MERICA FUCK YEA                                                            
-                                                                                
+           modi                                                                 
                                                                                 
        lol                                                                      
              MERICA FUCK YEA                                                    
