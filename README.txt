@@ -1,10 +1,35 @@
-                                                                       M  ME   E
-HMM  ME R    AHHAHAHMHMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM
-MMMMMMMMMMMMMMMMMAHAHMMMMMMMMMMMAHAHMHAHAMAAHAMAHAHMHAHAMHAAHMAHAHMHAHAMAHAHMHAH
-AMMMMMMAHAHMHHA M====M====M====M====MMMMMMMMMMMMMMMM               JSDJKHSAFJKLF
-KQRENQEJEQJEVJV JBK XBKHJVBJVRJUVUOWHVWJUJJKsxkjsxJKsnbjkbfjfvvKJDCWJHJKDSVJHKDH
-JKDSAHJ    M    M    M    M    M    M    M              M    M    M    M    M   
- M    MMMMMMM    MMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM M   M    MMMMMMMMM             
+kkdkjslj                                                                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                ---             
+            YOU CANT STOMP THE PENIS                                            
+                                                                                
+                          8=========D                                           
+                                                                                
+                           MMMMMMMMMMM   M     M    d:D; NO STO    O   I DONT LI
+KE PE I   K  ERP M  P M RP M  P I                                               
+                                                                                
+                                  8========D                                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      PENIS                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                             8--------D                         
                                                                                 
                                                                                 
                                                                                 
@@ -17,6 +42,8 @@ JKDSAHJ    M    M    M    M    M    M    M              M    M    M    M    M
                                                                                 
                                                                                 
                                                                                 
+                                                                       8========
+===D                                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -25,34 +52,7 @@ JKDSAHJ    M    M    M    M    M    M    M              M    M    M    M    M
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                 PEN                                            
                                                                                 
                                                                                 
                                                                                 
