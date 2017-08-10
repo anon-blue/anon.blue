@@ -17,9 +17,9 @@ who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas                    dfhd
 hoi                                                                         hell
-yuytusupper tr        ia I am k  i am                                           
-                                                              nch               
-                                                                                
+yuytu                                                                           
+   WHY IS THIS WEBSITE USING PATCHES INSTEAD OF WEBSOCKETS???????? DEV CHANGE IT
+!                                                                               
                                                                                 
                                                                                 
                                                                          WHAT IF
@@ -47,7 +47,7 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwtgive than
 ks to your parents. come one people stop wirring all over my shit. ive worked ha
 rd thfor this .................................................................w
 ere am i?       •••••••••••••••••••••••••listen to the bohemian grove - for once
- in my whrap! i lost my underwear!                                       here   
+ in my whole life ••••••••••••••••••••••••• NEWCASTLE UK•• TOON TOO      here   
                  foreach(item in items) { } shiit for( int i = 0; i < 666; i++) 
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
