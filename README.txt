@@ -24,8 +24,8 @@ r phone number !                       INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                           
                                                                                 
                                                                          aaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaasheaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaapoop
-shit destroyer                                                                  
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaashedonealreadydonehadhersesaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaestroyer                                                                  
           yes, yes they can                                                     
                                     wait can anyone write on this thing?        
                                                                                f
