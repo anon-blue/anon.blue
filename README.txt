@@ -10,7 +10,7 @@
                                                                                 
                                                                                 
                                                                                 
-                hu?                              what happened ?                
+                hu?         WAKE UP TIM, WAKE UP what happened ?                
                                                                                 
                          where am I?                                            
                                                                                 
@@ -19,7 +19,7 @@
 hoi                                                                             
                                                          Please that you freedom
  Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
-                              I wont tel you               I mean yogurt, mu gur
+ why wake up? i don't want to wake up. i'm very c          I mean yogurt, mu gur
 t                                                                               
             tell me tell me tell me.                                            
                                                                                 
@@ -56,5 +56,5 @@ l me please83858484274                                             hullo?
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                           Call 
+me me me meuh like a like a... call me but so alone and                         
