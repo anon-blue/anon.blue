@@ -42,7 +42,7 @@ Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!!!!!!!!!
              im bored...                                                        
                                       amialoneinhere                            
                                                                          hi what
-s going on?                     eatadick eat a dick e a t  a  d i c k           
+s koing on?                     eatadick eat a dick e a t  a  d i c k           
                 hello world                                                     
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
