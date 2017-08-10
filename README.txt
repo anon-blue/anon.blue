@@ -35,7 +35,7 @@ s  hello world, this is a neat idea                                   SNUS
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-Is anyone out ejdjdhere litlistin listening to me                               
+Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!!!!!!!!!             
                 0whereismypopscicleeeee              dicksdicksdicksdicks       
                                                                                 
                                                                                 
