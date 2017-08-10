@@ -7,7 +7,7 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
 low @callum_rocket dont be a pzn panzy**/ i got the dank g / feminism iscancer c
- / i get ma j                                                                   
+ / i get ma jerk chiken for free / thats not me /                               
                                                                                 
                                                                                 
                                                                                 
