@@ -2,8 +2,8 @@
                                                                        zsvzdsvsd
 sdvbwsaffafnjashbbhidfqiwydgh9wdhiwdjoqwhdfqewhofvahufwahhuwvhjoidhegvhwogvawhnu
 awreh9ghw9gh9wegh9wg9h4984978479527835                                          
-                                                                                
-                                                                                
+                                                                     great im li
+ving a sonderful exist                                                          
                                                                                 
               8-===========================D~~~~~~0:                            
                                                                                 
@@ -14,9 +14,9 @@ awreh9ghw9gh9wegh9wg9h4984978479527835
                                                                                 
                                                                                 
                                 8==============D~~~~```                         
-                                                                                
-                                                                                
-                                                                                
+              8=================================================================
+=================================================  =============================
+===============D`````````~`~~~~0:                                               
                                                                             meri
 ca                                                                              
                                                                                 
@@ -49,12 +49,12 @@ NIS
              MERICA FUCK YEA                                                    
                                                                                 
                                       8=========================================
-=====================================                                           
+======================================D~~~~~0:                                  
                                                                                 
                                                                                 
                                      merica fuck yea                            
               ghhhh              GA                                             
                                                                                 
-                                         GAY                                   M
-y name is thoss o i am a doctor , my nam i t                                    
-                thoss is gay                                   8======D~~       
+                                 MERP IS GAY                                   M
+y name is thoss o i am a doctPL , kddldkdldkldlkddokdwokd dddd dda 98   LS   AM 
+ ERPMERP MERP MERP MERP MERP MERP  E P  MERP  ERP   RP MERP  ER8==E===D~~       
