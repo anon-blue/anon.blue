@@ -3,15 +3,15 @@ ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodo
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødødødødødødøasdfa
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
                                asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
-ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa s df  as df     
-                                                        pThe Lazy browndogGOD   
+ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
+bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjj              pThe Lazy browndogGOD   
                                                                           WAS   
                                                                           HERE  
-  holy fucking srtgdqué está suciendarittoconiconfessidon't love anybodytand    
-    hello what the fuck!? lolefw                                                
+  holy fucking srtgdqué está suciendarittoconiconfessidon't love anybodytand im 
+desperateand depresedck!? lolefw                                                
      ballfungus is a nasty affliction        doot d                   SNUS      
-                                                                              he
-llolllq      this works?gfgfgfgfgfgfgfgfgfgfgfgfgfheurrururuueueueururbdh3bdhrhd
+                                                                              sh
+ablagooodoohow does thsi go now gfgfgfgfgfgfgfgfgfheurrururuueueueururbdh3bdhrhd
 hr                                                                              
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interesting link.... i must book mark it i mith5tteeeeeeeeeeeqqqqqqq
@@ -28,7 +28,7 @@ j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggersguck igge
 rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
  eveI     want    to huh? What the crap is this? Where are all you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
-ges intensifies                                                                f
+ges intensifies        hello am I good enough?                                 f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfalickmy
 s  hello world, this is a neat idea                                   SNUS      
                   This is the worst day of myhlife.  Please send help to Whittie
@@ -55,6 +55,6 @@ hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdasdfasdfdsafhhh
-hhhhhhhhhhhhhhhhhhhhhhhqhQWERTYhhhhhhhhhhhhhhhhh                                
+hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnat   
                                                                                 
                                                             why bother writinhg 
