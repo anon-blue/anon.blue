@@ -36,7 +36,7 @@ r, CAf   StrangI am serious please asend help before it is too late for me
                                                                                 
                                                                                 
 Is anyone out erh there litlistin listening to me                               
-                                                      hell no nyagha i wish i wa
+                0whereismypop                         hell no nyagha i wish i wa
 s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep , bye.!.!>>>    
                                                                                 
                     e  my     poopshit destroywr                                
