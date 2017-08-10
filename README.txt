@@ -2,8 +2,8 @@
 or kekem, but the glorious Kek                                                  
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
-         for (vvar                       kj   l; j                              
-                                                         ytytyt                 
+         for (vvar                     •••••••••THE BOHEMIAN GROVE - FOR ONCE IN
+ MY WHOLE LIFE••••••••••                                 ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
 low @callum_rocket dont be a pzn panzy**/ i got the dank g / feminism iscancer c
