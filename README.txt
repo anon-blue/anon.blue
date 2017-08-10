@@ -1,7 +1,7 @@
 hhgo fuck                                  hhhhhh                    hhhhhhhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
-hhædædæfæfææfæfæfjuliusdioii on youtube! check it outøø øøødødødødødødødødødødød
-ødølfjcjcjcjcjckckkcncn n ncmxmdøxøxmøcclckkfldødøxøgkgkkgkgkgkgngncnkckckcncncn
+hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
+sdfasdf am                                            RRORkgkgkgngncnkckckcncncn
 cnncncckcncncngngngngnngngngngng                                                
                                                                                 
                                                                      SNUS       
@@ -9,7 +9,7 @@ cnncncckcncncngngngngnngngngngng
                    wowhim freaking out manboobs                                 
   holy fucking sgjit   m               i got manvoobs                           
     hello what the fuck!? lolefw                                                
-                                                                      SNUS      
+                                             doot d                   SNUS      
                                                                                 
                                                            llgff                
                                                                                 
