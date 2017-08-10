@@ -14,7 +14,7 @@ ath / ayo kid lay off that meth / macbeth / Hey,,,, / ur gay if u pray /
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer                                            
        we are all clo es clones and the onlty way we can fix the vproblem is thr
-ojugh the ai d of the most powerful being aliveturn back for Susano!seful to be 
+ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 honest okkkkkkk                                                             dfhd
 hoi                                                                         hell
 [ptkosupper tr                                                                  
@@ -30,7 +30,7 @@ hoi                                                                         hell
                                                                                 
                                             i want to forget everything, most th
 ings maybe not everything.  can i?                                              
-              i want to forget everything. can i?                  it is what it
+              i want tovhhffft everything. can i?                  it is what it
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
                                       pooop                         I guess that
@@ -40,8 +40,8 @@ to do more like?re hopelessness in me that won't go quiet.
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
-       lol this shit cra y bruhwow cant even back swhatt lulz crap, it clean-sla
-ted. That's go d, because I misplaced my keyThe key to the intDid you just overw
+       lol this shit cra y bruhwow cant even back swhattt So what is foing on ih
+erer whats the point of this thing? (Can someone write clearlyL)))))u just overw
 rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
 e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth        
           pace oooops?                                                          
