@@ -1,6 +1,6 @@
 anuxnebhxnunnjnc iin wnxnu xwunxwh jns wj ccwcwxw    w             moonmoonhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
-hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
+hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødødødødødødøasdfa
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
                                asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa s df  as df     
@@ -35,7 +35,7 @@ s  hello world, this is a neat idea                                   SNUS
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!!!!!!!!!             
+Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!             
                 0whereismypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                                 
                                                                                 
@@ -47,8 +47,8 @@ s koing on?           hello woah dude.iad              .l.
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
-g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
-yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
+g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
+ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
 hyhyhyhyhyhyhhyhyh*touches duirt* something terrible happerned herehyhyhyhyhyhyh
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
