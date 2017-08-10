@@ -17,7 +17,7 @@ who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 honest okkkkkkk    dicktaters                                               dfhd
 hoi                                                                         hell
-[ptkosupper tr                                                                  
+[ptkosupper tr        ia                                                        
                                                               nch               
                                                                                 
                                                                                 
