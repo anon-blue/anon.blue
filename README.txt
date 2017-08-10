@@ -16,8 +16,8 @@ important that you need it kept here forever?
                                                                                 
                                                       I'm not that cruel my plea
 sure, OK cya                                                                dfhd
-hoi                                                                             
-                                                         Please that you freedom
+hoi                                                                         hell
+[ptkosupper trippy                                       Please that you freedom
  Please that is your ghourt, I'm french, that's why I'm shy, I'm in and out     
  why wake up? i don't want to wake up. i'm very cool in my sleep, in my wonderfu
 m dreams . hey, stop erasing ! ok thanl you.                                    
