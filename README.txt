@@ -26,7 +26,7 @@ r phone number !                       INJE TING THE BOIH this is the rwmix
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa    
                                                                                 
-          yes, yes they c                                                       
+          yes, yes they can                                                     
                                     wait can anyone write on this thing?        
                                                                                 
                                            LAB 13                    asdfasdasdk
@@ -42,14 +42,14 @@ s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep , bye.!.!>>>
                     e  my     poopshit destroywr                                
               lol         lOOOOOOL wt f kdijhfiohiwjrhgghghiufyw9yeggfudvbsiwbdc
 nbduwbwixp vnvdlalwllalwllalwlalalwlalalwlwlalwwllasalwlwllalawlwlwlwlalalwlleiu
-fhhfrhjfhjdisddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+fhhfrhjfhjdisdddddddddddddddddddddddddddddddwhat the fuck happened hereddddddddd
 dddddddd,,kmmmmmm,,,,,,;hello dssddmsfffflsdkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
-yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
-yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
+yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
+hyhyhyhyhyhyhhyhyh*touches duirt* somhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyfhhhhhhhhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhpenishhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
