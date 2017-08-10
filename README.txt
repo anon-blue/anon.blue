@@ -1,5 +1,5 @@
                                        is there a time whreereerereeeee we will 
-be ok?  o wpmde  i wonder if h                   bgi it goes in                 
+be ok?  o wpmde  i wonder if humanity can get therei it goes in                 
                                                                                 
                                                                                 
                                                                                 
@@ -35,7 +35,7 @@ aaAAAAAAAAAAAAAAAApa
                                                                      ron        
                                                                     I guess that
  you could speak out whenever. is it me or i'm alone?                           
-                                                                                
+   there is a pure hopelessness in me that won't go quiet.                      
                                                     I wish i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
