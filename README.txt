@@ -11,7 +11,7 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
 important that you need it kept here forever?          6uhhhhhhhhhI am the kne e
 der I kneeed thibgas a lot if you eat my loaf of bread I'll kick you in yoit nkn
 ees                                                                             
-       9/11 was a cirpotate scheme betaeween satan and hmitt romney to see yki  
+       9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer                                            
        we are all clo es clones and the onlty way we can fix the vproblem is thr
 ojugh the ai d of the most powerful being alive; alex jonessssssssssseful to be 
@@ -39,7 +39,7 @@ e.                                                                   ron
                                                     I wish i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
-                                                                                
+                           why ntot eat a fuk                                   
        lol this shit cra y bruhwow cant even back space. lulz crap, it clean-sla
 ted. That's go d, because I misplaced my keyThe key to the intDid you just overw
 rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
