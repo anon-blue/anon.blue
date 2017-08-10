@@ -17,7 +17,7 @@ who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas                    dfhd
 hoi                                                                         hell
-[ptkosupper tr        ia I am k  i am                                           
+yuytusupper tr        ia I am k  i am                                           
                                                               nch               
                                                                                 
                                                                                 
@@ -46,15 +46,15 @@ rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
 e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwtgive than
 ks to your parents. come one people stop wirring all over my shit. ive worked ha
 rd thfor this .................................................................w
-ere am i?ood lord i cannot wait to get thr fuck out of this place and just got h
-ome@    crap! i lost my underwear!                                       here   
+ere am i?       •••••••••••••••••••••••••listen to the bohemian grove - for once
+ in my whrap! i lost my underwear!                                       here   
                  foreach(item in items) { } shiit for( int i = 0; i < 666; i++) 
-{ std::cout << ""SATAN!""; }t to kill my self little ni=sldnkjfjsdkjflsdjfsldjfl
-oasijfdsdfiuhghgsvn jvn                                                         
+{ std::cout << ""SATAN!""; }                                                    
+                                                                                
                         kjnkjbjn bheart ,<3,#KJNAKJZ                            
                                                                                 
                                                                                 
                                                                                 
                                                     for ( var i = 0; array.lengt
-h                                                                               
-                                                                                
+h                                               go for golddofiajspdofijpaoisjdf
+poisjdapfoijaspdoifjapsoidfjpoaisdjfpoiasdjfpoiasdjfpoiadsjf                    
