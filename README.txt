@@ -37,9 +37,9 @@ r, CAf   StrangI am serious please asend help before it is too late for me
                                                                                 
 Is anyone out erh there litlistin listening to me                               
                                                       hell no nyagha i wish i wa
-s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep                 
+s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep , bye.!.!>>>    
                                                                                 
-                    e  my           well this iasnt coolx                       
+                    e  my     poopshit destroywr                                
               lol         lOOOOOOL wt f kdijhfiohiwjrhgghghiufyw9yeggfudvbsiwbdc
 nbduwbwixp vnvdlalwllalwllalwlalalwlalalwlwlalwwllasalwlwllalawlwlwlwlalalwlleiu
 fhhfrhjfhjdisddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
@@ -52,7 +52,7 @@ yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyfhhhhhhhhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhphhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                
