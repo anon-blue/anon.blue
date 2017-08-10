@@ -25,8 +25,8 @@ m dreams . hey, stop erasing ! ok thanl you.
                                                                                 
                                                                                 
                                                                                 
-                   i  'm a voice too. what is ghourt? tell me  aa yourself. stoo
-p ! no As are allowed here, did't you read the sign?                            
+                   i  'm a voice too. what is ghourt? tell me                   
+                            did't you read the sign?                            
                                                                                 
                                                                                 
                                                                                 
@@ -34,7 +34,7 @@ p ! no As are allowed here, did't you read the sign?
 aaAAAAAAAAAAAAAAAApa                                                            
                                                                                 
                                                                     I guess that
- you could speak out whenever. is it me or                                      
+ you could speak out whenever. is it me or i'm alone?                           
                                                                                 
                                                     I wish i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
@@ -52,7 +52,7 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth
 okay what the hell is going on here i dont ebven know what iim rwriting he e hek
 ohelphelphelphelphelphelphelphelphelphelphelphelphelp here? i'll call you or cal
 l me please83858484274                                             hullo?       
-                                                                                
+                          D on ot stop playing, freedom is so                   
                                                                                 
                                                                                 
                                                                                 
