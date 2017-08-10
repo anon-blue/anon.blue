@@ -47,8 +47,8 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwtgive than
 ks to your parents. come one people stop wirring all over my shit. ive worked ha
 rd thfor this .................................................................w
 ere am i?       •••••••••••••••••••••••••listen to the bohemian grove - for once
- in my whole life ••••••••••••••••••••••••• NEWCASTLE UK•• TOON TOO      here   
-                 foreach(item in items) { } shiit for( int i = 0; i < 666; i++) 
+ in my whole life ••••••••••••••••••••••••• NEWCASTLE UK•• TOON TOO  WIN••••••••
+••••• THE BOHEMIAN GROVE- FOR On items) { } shiit for( int i = 0; i < 666; i++) 
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
                         kjnkjbjn bheart ,<3,#KJNAKJZ                            
