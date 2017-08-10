@@ -7,9 +7,9 @@ or kekem, but the glorious Kek
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
 low @callum_rocket don 8====>~~Ov         i==                                   
-            8==>~0:       8===>~0:        8===D~0:          8 in thevalley of de
-ath / ayo kid lay off thatfghklhvj,hv,jhjv,jgv,jgv,jgc,jgvljgv,jggcljgclugcljggc
-ljgcljggclugcg                                                                  
+            8==>~0:       8===>~0:        8===D~0:          8===)~~0:           
+                                                                                
+               penis ha            i said penis                                 
                            gjg                                                  
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
