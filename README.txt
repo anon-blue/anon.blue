@@ -29,16 +29,16 @@ rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
  eveI     want    to huh? What the crap is this? Where are all you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
     shoneys                                                                    f
-]]]  I'm not sure wgat to say... Damnit *what to say*                asdfasdasdk
+]]]  I'm not sure wgat to say... Damnit *what to say*                asdfalickmy
 s  hello world, this is a neat idea                                   SNUS      
                   This is the worst day of myhlife.  Please send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
 Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!             
-                0whereismypopscicleeeee      mhellhhroicksdicksdicksdicks       
-                                                                                
-                                                                                
+                riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
+                                                                       isthisliy
+fefifo                                                                          
              im bored...                                                        
                                       amialoneinhere                            
                                                                          hi what
