@@ -1,4 +1,4 @@
-                                       is there a time whreereerereeeee wehwill 
+..............................         is there a time whreereerereeeee wehwill 
 be ok?  o wpmde  i wondea(if humanity can get therei it goes in                 
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
@@ -15,7 +15,7 @@ ath / ayo kid lay off that meth / macbeth / Hey,,,, / ur gay if u pray /
 who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow        
        we are all clo es clones and the onlty way we can fix the vproblem is thr
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
-honest okkkkkkk    dicktaters                                               dfhd
+hhhgffghfffffhghfg lol?dddsdadsaddasd hello the                             dfhd
 hoi                                                                         hell
 [ptkosupper tr        ia I am k  i am                                           
                                                               nch               
@@ -25,7 +25,7 @@ hoi                                                                         hell
                                                                          WHAT IF
  THIS IS CODE FOR THE MATRIX MATRIX !!!!!                                       
                                                                                 
-                                                            I love dick         
+                    I AM INLOVE WITH KYLE YONEV - DREWWW    I love dick         
                                                                                 
                                                                                 
                                             i want to forget everything, most th
@@ -33,8 +33,8 @@ ings maybe not everything.  can i?
               i want tovhhfff love ything. can i?                  it is what it
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
-                                      pooop                         I guess that
- you could speak out whenevdimsodamnhoooorny  has anyo e been so far as do want 
+                                     I'm looking forwawrd to eatnging some chees
+e tonight hey why isn't here a bkacspace rny  has anyo e been so far as do want 
 to do more like?re hopelessness in me that won't go quiet.                      
                                                     I wisi i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
@@ -49,12 +49,12 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth
 longwhat is the world? what deos it all mean? why are we here? why do mwe* maytt
 er?     crap! i lost my underwear!                                       here   
                                                             t he internet isdsdw
-okay what the hell is going on here i dont ebven know what iim rwriting he e hek
-ohelphelphelpfffffI mean WAKE UP, BEFORE YOU FORGET HOW TO fdfd UP BEFORE YOU FO
-RGET HOT WO WAKE UPfuck this shiptP WAKE PEEPEPEP PEPE  PE  P$rgbdfbvcco?       
-                          D on ot stop playing, freedom is so near, can't you he
-ar it?                                                                          
-                                                   m  y nipples explode with del
-ightnininimimin                                                                 
-                                                                           Call 
-me me me meuh like a like a... call me but so alone and memeuh wahooooo         
+okay what the heljlskO I want to kill my self little ni=sldnkjfjsdkjflsdjfsldjfl
+oasijfdsdfiuhghgsvn jvn                                                         
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                             ...................................................
+................................................................................
+................................................................................
