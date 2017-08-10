@@ -40,10 +40,10 @@ Is anyone out erh there litlistin listening to me
                                                                                 
                                                                                 
                                                                                 
-                                      amialoneinhererhgghghiufyw9yeggfudvbsiwbdc
-nbduwbwixp vnvdlalwllalwllalwlalalwlalalwlwlalwwllasalwlwllalawlwlwlwlalalwlleiu
-fhhfrhjfhjdisdddddddddddddddddddddddddddddddwhat the fuck happened hereddddddddd
-dddddddd,,kmmmmmm,,,,,,;hello dssddmsfffflsdkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+                                      amialoneinhere                            
+                                                                                
+                                eatadick eat a dick e a t  a  d i c k           
+                                                                                
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
