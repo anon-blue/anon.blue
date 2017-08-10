@@ -7,7 +7,7 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                                                                 
                                                                                 
                     bgi it goes out . hey! dont touch that!                     
-                                                                       is it so 
+                        hello                                          is it so 
 important that you need it kept here forever?                                   
                                                                                 
                 hu?         WAKE UP TIM, WAKE UP                                
