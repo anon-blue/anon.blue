@@ -11,7 +11,7 @@ dickfegbsaaf                                                         SNUS
     hello what the fuck!? lolefw                                                
                                              doot d                   SNUS      
                                                                               he
-llolllq      this works?ehrhrrhrhrhrhrhrrurrhrhrheheurrururuueueueururbdh3bdhrhd
+llolllq      this works?gfgfgfgfgfgfgfgfgfgfgfgfgfheurrururuueueueururbdh3bdhrhd
 hr                                                                              
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interesting link.... i must book mark it and see whatt is added late
@@ -27,7 +27,7 @@ r phone number !                       INJE TING THE BOIH this is tI am bill. if
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaashedonealreadydonehadhersesaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaastroyer   kilerererereI will be the next great biophsysicist in the world,
  everyone will remember me and yes when I get the Nobel I will mention this very
- night, my lord                     wait can anyone write on this thing?        
+ nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
                                                                                f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfasdasdk
 s  hello world, this is a neat idea                                   SNUS      
