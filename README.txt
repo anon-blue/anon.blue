@@ -27,8 +27,8 @@ g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggersguck igge
 rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
  eveI     want    to huh? What the crap is this? Where are all you people?  very
- nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
-    shoneys                                                                    f
+ nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
+ges intensifies                                                                f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfalickmy
 s  hello world, this is a neat idea                                   SNUS      
                   This is the worst day of myhlife.  Please send help to Whittie
