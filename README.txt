@@ -1,7 +1,7 @@
 hhgo fuck                                  hhhhhh                  moonmoonhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
-sdfasdf am                                            asdfasdfkgngncnkckckcncncn
+sdfasdf am                                     bonerstittiestwatsgncnkckckcncncn
 cnncncckcncncngngngngnngngngngng                                                
                                                                    fgghhjrrreata
 dickfegbsaaf                                                         SNUS       
@@ -20,7 +20,7 @@ r                              -Luke_asadd
                                                                                 
                                                                                 
                                                                      give me you
-r phone number !                       INJE TING THE BOIH this is the rwmix     
+r phone number !                       INJE TING THE BOIH this is tIe rwmix     
                                                                                 
                                ya'll need jesys                              aaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
