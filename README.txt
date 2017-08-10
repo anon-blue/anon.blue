@@ -12,10 +12,10 @@ ath / ayo kid lay off that meth / macbeth / Hey,,,, / ur gay if u pray /
                                                                                 
                                                                                 
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
-who could fuck over rthe worlsd moer                                            
+who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow        
        we are all clo es clones and the onlty way we can fix the vproblem is thr
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
-honest okkkkkkk                                                             dfhd
+honest okkkkkkk    dicktaters                                               dfhd
 hoi                                                                         hell
 [ptkosupper tr                                                                  
                                                               nch               
@@ -30,7 +30,7 @@ hoi                                                                         hell
                                                                                 
                                             i want to forget everything, most th
 ings maybe not everything.  can i?                                              
-              i want tovhhffft everything. can i?                  it is what it
+              i want tovhhfff love ything. can i?                  it is what it
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
                                       pooop                         I guess that
