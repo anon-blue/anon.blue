@@ -6,7 +6,7 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                                      SNUS       
                                                                                 
-                                                                                
+                   wowhim freaking out manboobs                                 
                                                                                 
     hello what the fuck!? lolefw                                                
                                                                       SNUS      
@@ -36,8 +36,8 @@ r, CAf   StrangI am serious please asend help before it is too late for me
                                                                                 
                                                                                 
 Is anyone out erh there litlistin listening to me                               
-                                                                                
-                                                                                
+                                                      hell no nyagha i wish i wa
+s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep                 
                                                                                 
                     e  my           well this iasnt coolx                       
               lol         lOOOOOOL wt f kdijhfiohiwjrhgghghiufyw9yeggfudvbsiwbdc
