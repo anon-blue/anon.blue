@@ -4,15 +4,15 @@ hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødød�
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
                                asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
-bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjj              pThe Lazy browndogGOD   
+bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
                                                                           WAS   
                                                                           HERE  
   holy fucking srtgdqué está suciendarittoconiconfessidon't love anybodytand im 
 desperateand depresedck!? lolefw                                                
      ballfungus is a nasty affliction        doot d                   SNUS      
                                                                               sh
-ablagooodoohow does thsi go now gfgfgfgfgfgfgfgfgfheurrururuueueueururbdh3bdhrhd
-hr                                                                              
+ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
+41442dasthe lazy brown dgo jujmped   er ethe lazy xfovss                        
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interesting link.... i must book mark it i mith5tteeeeeeeeeeeqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq                               
@@ -26,7 +26,7 @@ r phone number !                       INJE TING THE BOIH this is tI am bill. if
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggersguck igge
 rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
- eveI     want    to huh? What the crap is this? Where are all you people?  very
+ eveI     want    to huh? What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfalickmy
@@ -55,6 +55,6 @@ hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdasdfasdfdsafhhh
-hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnat   
-                                                                                
-                                                            why bother writinhg 
+hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnation
+.Cons  er nowBoobs.BOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOooooooooooooooBS.Consider 
+boobs.;D                                                    why bother writinhg 
