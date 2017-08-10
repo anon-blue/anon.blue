@@ -15,12 +15,12 @@ ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovss                        
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interestincooliebai561murdashurkhangangstaswoooooooooooooooooooooooo
-oooooooooooooooooooóookieqqqqqqqqqqqqqqqqqqqqqqqq                               
+oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq                               
                                                                                 
                                                                                 
 huk,hyki                                                                        
-                                                                     give me you
-r phone number !                       INJE TING THE BOIH this is tI am bill. if
+         mmmhellochowefeqfeqeqfeqkfofkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkddkd
+kkdplease suer !                       INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                           
                                               This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
