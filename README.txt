@@ -26,7 +26,7 @@ r phone number !                       INJE TING THE BOIH this is tI am bill. if
                                                                          aaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaashedonealreadydonehadhersesaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaastroyer   kilerererereI will be the next great biophsysicist in the world,
- everyone will remember me and yes when I get the Nobel I will mention this very
+ eveI     want    to     die    es when I get the Nobel I will mention this very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
                                                                                f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfasdasdk
