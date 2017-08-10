@@ -11,8 +11,8 @@ dickfegbsaaf                                                         SNUS
     hello what the fuck!? lolefw                                                
                                              doot d                   SNUS      
                                                                               he
-llolllq      this works?                                   llgff                
-                                                                                
+llolllq      this works?ehrhrrhrhrhrhrhrrurrhrhrheheurrururuueueueururbdh3bdhrhd
+hr                                                                              
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interesting link.... i must book mark it and see whatt is added late
 r                              -Luke_asadd                                   cas
@@ -50,7 +50,7 @@ time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhyhyhyhyhyhyh
 yhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
 hyhyhyhyhyhyhhyhyh*touches duirt* something terrible happerned herehyhyhyhyhyhyh
-yhyhyhyhyhyhyhyfhhhhhhhhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
+yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
