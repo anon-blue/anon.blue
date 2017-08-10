@@ -20,8 +20,8 @@ r                              -Luke_asadd
                                                                                 
                                                                                 
                                                                      give me you
-r phone number !                       INJE TING THE BOIH this is tIe rwmix     
-                                                                                
+r phone number !                       INJE TING THE BOIH this is tI am bill. if
+ you can hear me let me out.                                                    
                                ya'll need jesys                              aaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa    
