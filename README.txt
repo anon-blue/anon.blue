@@ -39,22 +39,22 @@ sfdfddddddddddd;ioiutdysertestresdddddkdjfasd  abcdefghijklmnopqrstuvwxyz alkjds
 f;alsdkjflakjeklfjaldkfjslkdjflaksjd kf12ajknvn.vzx,cvnkfkljsadklfjoiwejfsaskdfj
 lkasdjf lkasjdklfjlk1j3k1j3l13lk13jdgnnrYou can tototall But it looks to me as i
 f theres's no on e else around. GmnHm. No backpsace. BackWoah! There's a person!
-I am! Eyy, hi friend! How's your day? Very nice! I'mLO]]]\mmmmmI am you   dddddd
-ddddyou si w                                                                    
-                                              Hello ? who is writing up there ? 
-Iam too? I'm on vacation so everyihing's smoooooooooooth . you ?           `````
-```QEWWWWWWWWWWWEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddcccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccdsdasdfsdfcc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccaaaaaaaaaaaaaaaaaaaaaaaa
+I am! Eyy, hi friend! How's your day? Very nice! I'm screwing around at work so 
+that's pretty greay. Evhey there                                                
+                                               Hello ? who is writing up there ?
+ Iam too? I'm on vacation so everyiim quitting smokingoth . you ? no problem the
+ end of the day will come :) be trippy! EEEEEEEEEEEEEEEEEEEEEEEEdddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccdsdasdfsdfc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaapppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
-pppppppppppppppppppppppppppppppppppppppppppppppppppppppppuuuuuuuuuuuuuuuuuuuuuuu
+aaaaappppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
+ppppppppppppppppppppppppppppppppppppppppppppppppppppppppppuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuucccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccchhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbbbbnmn,nmnm,mn,mnm,nmbfl,lslDcbbcv ccbgrwgKNE
-Nvjdnsjz nnxznkihjugbhvbeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeee   Can y ou say it? I mean, my favorite word?                         
+uuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccccccccccccccccccccccccchhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbbbbnmn,nmnm,mn,mnm,nmbfl,lslDcbbcv ccbgrwgKN
+ENvjdnsjz nnxznkihjugbhvbeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeee   Can y ou say it? I mean, my favorite word?                        
                                                                                 
-                                 STGFUFSDGDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF 
+                                  STGFUFSDGDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
