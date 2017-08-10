@@ -29,7 +29,7 @@ hoi                                                                         hell
                                                                                 
                                                                                 
                                             i want to forget everything, most th
-ings                                                                            
+ings maybe not everything.  can i?                                              
               i want to forget everything. can i?                    aaaaaaaaaaa
 aaAAAAAAAAAAAAAAAApa                                                            
                                                                      ron        
