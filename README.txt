@@ -5,8 +5,8 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                          kj   l; j                              
                                                                                 
                                    mmmmmmm all dis clean space, watch the pome  
- follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee /    
-                                                                                
+ follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
+low @callum_rocket dont be a pzn panzy**/                                       
                                                                                 
                                                                                 
                                                                                 
