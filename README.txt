@@ -40,8 +40,8 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                                                 
                     e  my           well this iasnt coolx                       
-              lol         lol          lol         lol          lol             
-                lawl      looool         lawling                             bow
+              lol         lOOOOOOL wt f kdijhfiohiwjrhgghghiufyw9yeggfudvbsiwbdc
+nbd             lawl      looool         lawling                             bow
  wow                                                                            
      whats up everybody!?!where are you from?                                   
                                                                                 
