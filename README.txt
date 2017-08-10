@@ -23,9 +23,9 @@ qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 r phone number !                       INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                           
                                                                                 
-                                ahit the fuck up                         aaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaashedonealreadydonehadhersesaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaastroyer   kilerererereI will be the next great biophsysicist in the world,
+                                ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
+j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcj n xn dj jxnxncnfuck iggersguck igge
+rsfuckniggersbfuckniggersfucmniggersguvk iggersgreat biophsysicist in the world,
  eveI     want    to huh? What the crap is this? Where are all you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
     shoneys                                                                    f
