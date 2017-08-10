@@ -14,7 +14,7 @@ ath / ayo kid lay off that meth / macbeth / Hey,,,, / ur gay if u pray /
        9/11 was a cirpotate scheme betaeweefarts equals funny ALWAYS ALWAYS FART
 who could fuck over rthe worlsd moer                                            
        we are all clo es clones and the onlty way we can fix the vproblem is thr
-ojugh the ai d of the most powerful being alive; alex jonessssssssssseful to be 
+ojugh the ai d of the most powerful being aliveturn back for Susano!seful to be 
 honest okkkkkkk                                                             dfhd
 hoi                                                                         hell
 [ptkosupper tr                                                                  
