@@ -39,13 +39,13 @@ AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT
                                                                                 
                                                                                 
                     MERICA FUCK YE                                              
-                                                                                
-                                                                                
+                                                                   MERICA FUCK Y
+EA                                                                              
                                                                                 
      MERICA FUCK YEA                                                            
                                                                                 
                                                                                 
-                                                                                
+       lol                                                                      
              MERICA FUCK YEA                                                    
                                                                                 
                                                                                 
@@ -56,5 +56,5 @@ AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT
               ghhhh              GA                                             
                                                                                 
                                          GAY                                   M
-y name is thoss                                                                 
-8======D~~~`~~                                                                  
+y name is thoss o i am a doctor , my nam i thiooossssss i yamma dokttor mynameis
+thiss i am a d                                                                  
