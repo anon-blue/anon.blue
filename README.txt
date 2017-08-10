@@ -7,18 +7,18 @@ PENIS         WEINER WEINER
 AGI A LOL                                                                       
                                                                                 
                                                                 WEINR           
-            YOU CANT STOMP THE PENIS                             PENIS          
-        PENIS         PENIS IS BALL                                             
+    YEAH,   YOU CANT STOMP THE PENIS                             PENIS          
+        PENIS         PENIS IS BALL                      PENIS                  
                           8=========D                                           
                                PENIS                                            
-                           MMMMMMMMMMM   M     M    d:D; NO STO    O   I DONT LI
+                           MMMMMMMMMMM   M     M    d:D;  .,..,    O   I DONT LI
 KE PE I   K  ERP M  P M RP M  P I  ENIS IS BAD  K M    MER NOOOOOOOOOOOOOOOOOOOO
 O    OOOOOOOOOOOOOOOO    O    O    O    O                  OOOOOO    OOOOOOOOOOO
 OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO====O===DO    OO     E N E MERP      EN  IS B
 AD OK NO MO   LOLOL L thats a bad work mword  penisdickikeiowpo nt   y that  k  
 E    M    M    M    M         M    M    M    M    MMMMMM    MPENIPENISM    M8888
 888888888=================D~PENIS~~~              MMMMMMMMMMMMMMMMMMMMMMMMMMMMMM
-MMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM    M    M    M  WEINER M    
+MMMMMMMM                                     MMMMMM    M    M    M  WEINER M    
 MMMMMM    M    M    MMMMMM    M    MMMMMMMMMMM    MMMMMMMMMMMMMMMMMMMMMMMMMMMMMM
 MMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMEIN
 ER  M    MMMMMMMMMM     M    M    MMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM
@@ -42,9 +42,9 @@ ike this whatwhawhat are you saying wtf
            PENIS OWNS ANON.BLUE  PENIS                                          
                                                                                 
                   PENIS IS EVERYWHERE                                           
-                                                                       8 ====   
+                   PENIS IS LIFE                                       8 ====   
    D                                    PENIS                                   
-                                                                                
+             PENIS                                                              
                                                            PEPENIS              
                                                                                 
                                                                                 
@@ -52,9 +52,9 @@ ike this whatwhawhat are you saying wtf
      PENIS                                                                 GO ET
 ELL YOUR PENIS                                                 PENIS            
    PENIS                                                                        
-                                 PENOS                                          
+                                 PENOS                   PENIS OWNS ANON.BLUE   
 PENISPENISR LEFT                                            8========D          
                           PENIS                                                 
                   PENIS                                                         
                                                     PENISPENISPENISPENIS        
-         PENIS PENIS PENIS PENIS                                                
+         PENIS PENIS PENIS PENISPENIS                                           
