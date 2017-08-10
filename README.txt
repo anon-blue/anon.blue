@@ -36,11 +36,11 @@ r, CAf   StrangI am serious please asend help before it is too late for me
                                                                                 
                                                                                 
 Is anyone out erh there litlistin listening to me                               
-                0whereismypop                         hell no nyagha i wish i wa
-s somwewhere else  thi ss place dux sixsux* 'i'm going to sleep , bye.!.!>>>    
+                0whereismypopscicleeeee              dicksdicksdicksdicks       
                                                                                 
-                    e  my     poopshit destroywr                                
-              lol         lOOOOOOL wt f kdijhfiohiwjrhgghghiufyw9yeggfudvbsiwbdc
+                                                                                
+                                                                                
+                                      amialoneinhererhgghghiufyw9yeggfudvbsiwbdc
 nbduwbwixp vnvdlalwllalwllalwlalalwlalalwlwlalwwllasalwlwllalawlwlwlwlalalwlleiu
 fhhfrhjfhjdisdddddddddddddddddddddddddddddddwhat the fuck happened hereddddddddd
 dddddddd,,kmmmmmm,,,,,,;hello dssddmsfffflsdkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
