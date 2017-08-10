@@ -30,9 +30,9 @@ hoi                                                                         hell
                                                                                 
                                             i want to forget everything, most th
 ings maybe not everything.  can i?                                              
-              i want to forget everything. can i?                    aaaaaaaaaaa
-aaAAAAAAAAAAAAAAAApa                                                            
-                                                                     ron        
+              i want to forget everything. can i?                  it is what it
+ is. everythung eis everything . and nothing is more anything than anythinhg els
+e.                                                                   ron        
                                       pooop                         I guess that
  you could speak out whenever. is it me or i'm alone?                           
    there is a pure hopelessness in me that won't go quiet.                      
