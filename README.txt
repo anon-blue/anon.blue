@@ -2,10 +2,10 @@
 or kekem, but the glorious Kek                                                  
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
-         for (vvar                     •••••••••THE BOHEMIAN GROVE - FOR ONCE IN
+  PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENISGROVE - FOR ONCE IN
  MY WHOLE LIFE••••••••••                                 ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
-                                                                                
+                                       d    ;a                                  
                                                                                 
             8==>~0:       8===>~0:        8===D~0:          8===)~~0:           
                                                                                 
@@ -23,7 +23,7 @@ yuytu
                          jigjigtyjngu8im                                        
                                                                                 
                                                                          WHAT IF
- THIS IS CODE FOR THE MATRIX MATRIX !!!!!                                       
+ THIS IS CODE FOR THE MATRIX MATRIX !!!!!     8======D~~0:                      
                 8====D~~0:                                                      
                     I AM INLOVE WITH KYLE YONEV - DREWWW    I love dick         
                                                                                 
@@ -32,12 +32,12 @@ yuytu
 kingsmaybe not everything.  can i?                                              
               i want tovhhfff love ything. can i?         canf stop the penis   
  8==============D~~~~0:                                                         
-    hajabababababahahahahahahaha                                     ron        
+    hajabababababahahahahahahahahahahah penis                        ron        
                                      I'm looking forwawrd to eatnging some chees
 efffswsdfsdfwe built this city, we built this city on rock and roll take it the 
 to the lmit dont let your dreams be dreams man get up off of that ass and wgo fo
-r a run or some shit idk man do it to it lifes a garden dig it life is full of i
-ce cream sundae blooesrr together we can trty to fill it... endlessly.    it's a
+r a run or some shit idk man do it to it lifes a gardlkhgkhgklglkjThis is not wo
+king so aThis is not working.ther we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
        lol this shit cra y bruhwow cant even back swhattt So what is foing on ih
