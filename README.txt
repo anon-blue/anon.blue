@@ -4,7 +4,7 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
                                          kj   l; j                              
                                                                                 
-                                                                                
+                                   mmmmmmm a                                    
                                                                                 
                                                                                 
                                                                                 
@@ -31,10 +31,10 @@ hoi                                                                         hell
                                             i want to forget everything, most th
 ings maybe not everything.  can i?                                              
               i want to forget everything. can i?                  it is what it
- is. everythung eis everythinbazl is ableist stay lengnything than anythinhg els
+ is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
                                       pooop                         I guess that
- you could speak out whenever. is it me or i'm alone?                           
+ you could speak out whenevdimsodamnhoooorni'm alone?                           
    there is a pure hopelessness in me that won't go quiet.                      
                                                     I wish i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
@@ -46,7 +46,7 @@ rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
 e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth        
           pace oooops?                                                          
                                                                         suck it 
-long and suck it hard trebek                                                    
+longwhat is the world trebek                                                    
         crap! i lost my underwear!                                       here   
                                                             t he internet isdsdw
 okay what the hell is going on here i dont ebven know what iim rwriting he e hek
