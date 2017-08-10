@@ -1,27 +1,8 @@
-bwubwIT PENIS WAS SAYING BYPENIS                                                
-                                                                                
-                                                                                
-                                                                                
-   t                                                                            
-                                                                                
-                                                ko ok[[ppppppppppppppppppppppppp
-pppppppppppppppppppko                                                           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                  f vwazaphjng              n o penisesjust yes you candi usuall
-y amounts and such                                                              
-                                                                                
-                                                                                
-                                                                                
-                                   what does the numbers mean masson?           
-                                                                        OKAY OBE
- OMORE I CANT TYPE ANYMORE                                                      
+hhh                                        hhhhhh                    hhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     hhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh  hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhh                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -34,17 +15,6 @@ y amounts and such
                                                                                 
                                                                                 
                                                                                 
-                      whats the ni                                              
-                                                                                
-                                                                                
-                                                                       fffvvhbvf
-fwedfvgfvvv2344                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                  88======DD`~~~
- PENIS HAHHAHAHAHAHA                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -54,7 +24,37 @@ fwedfvgfvvv2344
                                                                                 
                                                                                 
                                                                                 
-                                   ubwubwubwubwubwubwubwubwubwubwu   ubwubwubwub
-wubwubwu  ubwubwubwubwubwPENIS BYE!!:))))))ubwubwubwubwubwubwubwubwubw  wubwubwu
-bwubwubwubwubwubwubwubwubwbuwubwubwubwubwubwubwubwubwubwubwubwubwuwubwubwubwubwu
-bwubwubwubwubwubwubwubwubwubwubwubwuwubwubwubwubwubwubwubwubwubwubwubwubwubwubwu
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                    e  my           well this iasnt                             
+                snsusjskskskskslsldl ta i bug bug bifournrkfodidkdldododo       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      ow                        
+                    wobwobowbowb                                                
+                                                                                
+                                                                                
+                                                                                
