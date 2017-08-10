@@ -6,8 +6,8 @@ or kekem, but the glorious Kek
  MY WHOLE LIFE••••••••••                                 ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
-low @callum_rocket don 8====>~~Ov         i got the dank g / feminism iscancer c
- / i get ma jerk chiken for free / thats not me / Stay sTronK in thevalley of de
+low @callum_rocket don 8====>~~Ov         i==                                   
+            8==>~0:       8===>~0:        8===D~0:          8 in thevalley of de
 ath / ayo kid lay off thatfghklhvj,hv,jhjv,jgv,jgv,jgc,jgvljgv,jggcljgclugcljggc
 ljgcljggclugcg                                                                  
                            gjg                                                  
