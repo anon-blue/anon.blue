@@ -1,10 +1,10 @@
 anuxnebhxnunnjnc iin wnxnu xwunxwh jns wj ccwcwxw    w             moonmoonhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
-sdfasdf am                                     bonerstittiestwatsgncnkckckcncncn
-cnncncckcncncngdgngngnngngngngng                                                
-                                                                   fgghhjrrreata
-dickfegbsaaf                                                         SNUS       
+sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
+                               asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
+ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa s df  as df     
+                                                                     SNUS       
                                  nyello my duudes                               
                    wowhihjnhioninininhbhbhbhjbhjbhjbh                           
   holy fucking sgjit   m               i got manvoobs                           
@@ -18,7 +18,7 @@ hr
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq                               
                                                                                 
                                                                                 
-                                                                                
+huk,hyki                                                                        
                                                                      give me you
 r phone number !                       INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                           
