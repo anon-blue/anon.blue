@@ -32,7 +32,7 @@ m dreams . hey, stop erasing ! ok thanl you.
                                                                                 
               i want to forget everything. can i?                    aaaaaaaaaaa
 aaAAAAAAAAAAAAAAAApa                                                            
-                                                                                
+                                                                     ron        
                                                                     I guess that
  you could speak out whenever. is it me or i'm alone?                           
                                                                                 
@@ -51,7 +51,7 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth
                                                             t he internet isdsdw
 okay what the hell is going on here i dont ebven know what iim rwriting he e hek
 ohelphelphelphelphelphelphelphelphelphelphelphelphelp here? i'll call you or cal
-l me please83858484274                                             hullo?       
+l me please83858484274          ron                                hullo?       
                           D on ot stop playing, freedom is so near, can't you he
 ar it?                                                                          
                                                                                 
