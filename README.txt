@@ -34,8 +34,8 @@ ings maybe not everything.  can i?
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
                                      I'm looking forwawrd to eatnging some chees
-e tonight hey why isn't here a bkacspace option!? if ( e been so far as do want 
-to do more like?re hopelessness in me that won't go quiet.                      
+e tonight hey why isn't hDFHDdgjdgjfdkhkfkfhkfhkfhkj13`1247gjfdgjkfgjfgjfgjfgjfg
+jfgjfgjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjggdssaon't go quiet.                      
                                                     I wisi i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
@@ -48,7 +48,7 @@ ks to your parents. come one people stop wirring all over my shit. ive worked ha
 rd thfor this .................................................................w
 ere am i?       •••••••••••••••••••••••••listen to the bohemian grove - for once
  in my whole life ••••••••••••••••••••••••• NEWCASTLE UK•• TOON TOO  WIN••••••••
-••••• THE BOHEMIAN GROVE- FOR On items) { } shiit for( int i = 0; i < 666; i++) 
+••••• THE BOHEMIAN GROVE- FOR ONVE IN  WHOLE LIFE {youtubre}••••••• < 666; i++) 
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
                         kjnkjbjn bheart ,<3,#KJNAKJZ                            
