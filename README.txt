@@ -8,7 +8,7 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+    hel                                                                         
                                                                       SNUS      
                                                                                 
                                                                                 
@@ -25,7 +25,7 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                               k                 
                                                                                 
-   oo eee aa  ting tang wzllw walla bing bang                                   
+   oo eee aa  ting tang wzllw walla bing bang    fuck it                        
                                                    gfdvhoo ee oo aa aa ting tang
  sawalla                                                                        
                                                                                 
