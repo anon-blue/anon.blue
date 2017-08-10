@@ -8,8 +8,8 @@ be ok?  o wpmde  i wonder if humanity can get therei it goes in
                                  cold meatloaf sandwich                         
                     bgi it goes out . hey! dont touch that!                     
                         hello                                          is it so 
-important that you need it kept here forever?                                I a
-m a sweaty mess and I need a shower pbad                                        
+important that you need it kept here forever?          6uhhhhhhhhhI am the kne e
+der I kneeed thibgas a lot a shower pbad                                        
                 hu?         WAKE UP TIM, WAKE UP                                
                                                                                 
                                                                                 
@@ -33,7 +33,7 @@ ings maybe not everything.  can i?
               i want to forget everything. can i?                    aaaaaaaaaaa
 aaAAAAAAAAAAAAAAAApa                                                            
                                                                      ron        
-                                                                    I guess that
+                                      pooop                         I guess that
  you could speak out whenever. is it me or i'm alone?                           
    there is a pure hopelessness in me that won't go quiet.                      
                                                     I wish i had ice cream right
