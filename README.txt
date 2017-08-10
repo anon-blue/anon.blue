@@ -16,7 +16,7 @@ who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
  (var i = 0; i <= array.length; i++) AMIRITEy way we can fix the vproblem is thr
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas                    dfhd
-hoi                                                                         hell
+hoi                                      ffpens                             hell
 yuytu                                                                           
    WHY IS THIS WEBSITE USING PATCHES INSTEAD OF WEBSOCKETS???????? DEV CHANGE IT
 !                                                                               
@@ -34,10 +34,10 @@ ings maybe not everything.  can i?
  is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
 e.                                                                   ron        
                                      I'm looking forwawrd to eatnging some chees
-efffswsdfsdfwe built this citygjdgjfdkhkfkfhkfhkfhkj13`1247gjfdgjkfgjfgjfgjfgjfg
-jfgjfgjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjggdssaon't go quiet.                      
-                                                    I wisi i had ice cream right
- now. so void indeed but together we can trty to fill it... endlessly.    it's a
+efffswsdfsdfwe built this city, we built this city on rock and roll take it the 
+to the lmit dont let your dreams be dreams man get up off of that ass and wgo fo
+r a run or some shit idk man do it to it lifes a garden dig it life is full of i
+ce cream sundae blooesut together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
        lol this shit cra y bruhwow cant even back swhattt So what is foing on ih
