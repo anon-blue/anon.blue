@@ -1,5 +1,5 @@
-                                                                           sup r
-ight corner                                      bgi it goes in                 
+                                       is there a time whreereerereeeee we will 
+be ok?  o wpmde  i wonder if h                   bgi it goes in                 
                                                                                 
                                                                                 
                                                                                 
