@@ -5,8 +5,8 @@ sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df
                                asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
-                                                      yeah man yo whats f WAS   
-                                                                          HERE  
+                                                      yeah man yo whats fucking 
+good my niggerb XD                                                        HERE  
   holy fucking srtgdqué está suciendarittoconiconfessidon't love anybodytand im 
 desperateand depresedck!? lolefw                                                
      ballfungus is a nasty affliction        doot d                   SNUS      
@@ -14,7 +14,7 @@ desperateand depresedck!? lolefw
 ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovss                        
                                     I have a bonner          byron from napier  
-    §♀☺§§§☺ interesting link.... i must book mark it i mith5tteeeeeeeeeeeqqqqqqq
+    §♀☺§§§☺ interestincooliebai561murdashurkhaark it i mith5tteeeeeeeeeeeqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq                               
                                                                                 
                                                                                 
@@ -44,7 +44,7 @@ fefifo
                                                                          hi what
 s koing on?           hello woah dude.iad              .l.                      
                 hello world               12323456                              
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
+kkkkkkkkkkkkkkkkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
