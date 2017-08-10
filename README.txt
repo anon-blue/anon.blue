@@ -6,7 +6,7 @@ or kekem, but the glorious Kek
  MY WHOLE LIFE••••••••••                                 ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
  follow my soundcloud - Gan'zhi / call meforhotsex 07577707517im themansee / fol
-low @callum_rocket dont be a pzn panzy**/ i got the dank g / feminism iscancer c
+low @callum_rocket don 8====>~~Ov         i got the dank g / feminism iscancer c
  / i get ma jerk chiken for free / thats not me / Stay sTronK in thevalley of de
 ath / ayo kid lay off thatfghklhvj,hv,jhjv,jgv,jgv,jgc,jgvljgv,jggcljgclugcljggc
 ljgcljggclugcg                                                                  
@@ -15,7 +15,7 @@ ljgcljggclugcg
 who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow     for
  (var i = 0; i <= array.length; i++) AMIRITEy way we can fix the vproblem is thr
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
-hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas                    dfhd
+hhhgffghfffffhghfg lol?dddsdadsaddasd hello there fellas    hi gjg          dfhd
 hoi                                      ffpens                             hell
 yuytu                                                                           
    WHY IS THIS WEBSITE USING PATCHES INSTEAD OF WEBSOCKETS???????? DEV CHANGE IT
@@ -37,7 +37,7 @@ e.                                                                   ron
 efffswsdfsdfwe built this city, we built this city on rock and roll take it the 
 to the lmit dont let your dreams be dreams man get up off of that ass and wgo fo
 r a run or some shit idk man do it to it lifes a garden dig it life is full of i
-ce cream sundae blooesut together we can trty to fill it... endlessly.    it's a
+ce cream sundae blooesrr together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
        lol this shit cra y bruhwow cant even back swhattt So what is foing on ih
