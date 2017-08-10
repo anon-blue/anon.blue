@@ -42,7 +42,7 @@ Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!!!!!!!!!
              im bored...                                                        
                                       amialoneinhere                            
                                                                          hi what
-s koing on?                     eatadick eat a dick e a t  a  d i c k           
+s koing on?           hello woah dude.iad              .l.                      
                 hello world                                                     
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkskfdsmkdfskfdjmmqlsdkfjmqlskdfpe
 nispenuspendsqdssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
