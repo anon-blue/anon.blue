@@ -1,11 +1,11 @@
-whhhhhhaaaaaaaattttttttt? heo dies this work how*                               
+                                                 call me smilemime              
                                                                        zsvzdsvsd
 sdvbwsaffafnjashbbhidfqiwydgh9wdhiwdjoqwhdfqewhofvahufwahhuwvhjoidhegvhwogvawhnu
 awreh9ghw9gh9wegh9wg9h4984978479527835                                          
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+              8-===========================D~~~~~~                              
                                                                                 
                                                                                 
                                                                                 
@@ -36,8 +36,8 @@ AY AS FUCKKKKKKKKKKKK U IS A FAGGGG MANGOT
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                         meruca 
+  fuck yea                                                                      
                     MERICA FUCK YE                                              
                                                                    MERICA FUCK Y
 EA                                                                              
@@ -52,9 +52,9 @@ EA
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                     merica fuck yea                            
               ghhhh              GA                                             
                                                                                 
                                          GAY                                   M
-y name is thoss o i am a doctor , my nam i thiooossssss i yamma dokttor mynameis
-thiss i am a d                                                                  
+y name is thoss o i am a doctor , my nam i t                                    
+                thoss is gay                                                    
