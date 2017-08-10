@@ -14,8 +14,8 @@ important that you need it kept here forever?
                                                                                 
                                                                                 
  It sgoes a little something like this...hyte it?                               
-                                                      I'm not that cruel my plea
-sure, OK cya                                                                dfhd
+                                                      I'm not that useful to be 
+honest okkkkkkk                                                             dfhd
 hoi                                                                         hell
 [ptkosupper tr                                                                  
                                                               nch               
