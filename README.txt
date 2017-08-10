@@ -1,7 +1,7 @@
 hhgo fuck                                  hhhhhh                    hhhhhhhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøø øøødødødødødødødødøasdfa
-sdfasdf am                                            RRORkgkgkgngncnkckckcncncn
+sdfasdf am                                            asdfasdfkgngncnkckckcncncn
 cnncncckcncncngngngngnngngngngng                                                
                                                                                 
                                                                      SNUS       
