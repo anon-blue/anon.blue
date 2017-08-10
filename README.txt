@@ -1,9 +1,9 @@
                                                                                 
+                                                    PHONE FAGGOT KYAS           
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                              8=====D                                G          
+                    G                             G                             
+               G                G                                               
                                                                                 
                                                                                 
                                                                                 
@@ -43,8 +43,8 @@ a @lilpumpfollowmeoninsta@konokibi follow me on insta !konokibi
                                 G                     G                         
 G                        G                  F A GG O T        F A G G T         
       that what i call my ciggies ya bitch                        what dod you s
-ay to me ya c                        G                       G                  
-        G                  G                       G      G                 G   
+ay to me ya cunyt i cant fucking type that fast on my god damn pos phone so suck
+ my d 888888=============DDDDDD ~~~~~~~~~          G      G                 G   
                          G             GG                   G              G    
               G       G          GG   G     G       G    G G                 G  
    G G     G    G      G           G            G                               
@@ -55,6 +55,6 @@ ay to me ya c                        G                       G
                     ONLY BITCH HERE IS U AND YU R DAD IS LOVING I T             
                                                                                 
                                                                                 
+                    STFU U GFAGGOT                                              
                                                                                 
-                                                                                
-                                                                                
+                                                             SOZ BIT MAN        
