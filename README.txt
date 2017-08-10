@@ -13,7 +13,7 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                            llgff                
                                                                                 
-                                                                                
+                                    I have a bonner                             
            leb the t13                                                          
                                                                                 
                                                                                 
@@ -32,10 +32,10 @@ cnncncckcncncngngngngnngngngngng
                                            LAB 13                               
                                                                       SNUS      
                   This is the worst day of my life.  Please send help to Whittie
-r, CAf   Strange !!!! oooooo                                                    
+r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-                                                                                
+Is anyone out erh there litlistin listening to me                               
                                                                                 
                                                                                 
                                                                                 
