@@ -14,13 +14,13 @@ desperateand depresedck!? lolefw
 ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovss                        
                                     I have a bonner          byron from napier  
-    §♀☺§§§☺ interestincooliebai561murdashurkhangangstaswoooooooooooooooooooooooo
+    §♀☺§§§☺ interestincoolieb:)dfiiibgfjjjgfhbuhggbjbbhhgyuooooooooooooooooooooo
 oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq                               
                                                                                 
                                                                                 
 huk,hyki                                                                        
          mmmhellochowefeqfeqeqfeqkfofkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkddkd
-kkdplease suer !                       INJE TING THE BOIH this is tI am bill. if
+kkdplease sucyka blyat                 INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                           
                                               This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
@@ -29,8 +29,8 @@ rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
  eveI     want    to huh? What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
-]]]  I'm not sure wgat to say... Damnit *what to say*                asdfalickmy
-s  hello world, this is a neat idea                                   SNUS      
+]]]  I'm not sure wgat to say... Damnit *what to say*                asdfassssss
+ssssssssssssHey aAre you serious?ea                                   SNUS      
                   This is the worst day of myhlife.  Please send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
