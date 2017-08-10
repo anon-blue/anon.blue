@@ -25,13 +25,13 @@ hoi
                                                                                 
                                                                                 
                                                                                 
-                   i  'm a voice too. what is                                   
+                   i  'm a voice too. what is ghourt? tell me. aa yourself.     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-              i want to forget everything. can i?                               
-                                                                                
+              i want to forget everything. can i?                    aaaaaaaaaaa
+aaA                                                                             
                                                                                 
                                                                     I guess that
  you could speak out now.                                                       
