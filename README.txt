@@ -8,7 +8,7 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                                                 
                                                                                 
-    hel                                                                         
+    hello what the fuck!? lolefw                                                
                                                                       SNUS      
                                                                                 
                                                                                 
@@ -25,14 +25,14 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                               k                 
                                                                                 
-   oo eee aa  ting tang wzllw walla bing bang    fuck it                        
+   oo eee aa  ting tang wzllw walla bing bang    fuck it dd                     
                                                    gfdvhoo ee oo aa aa ting tang
  sawalla                                                                        
                                                                                 
                                            LAB 13                               
                                                                       SNUS      
                                                                                 
-                                                                                
+         Strange !!!! oooooo                                                    
                                                                                 
                                                                                 
                                                                                 
@@ -43,7 +43,7 @@ cnncncckcncncngngngngnngngngngng
               lol         lol          lol         lol          lol             
                 lawl      looool         lawling                             bow
  wow                                                                            
-                                                                                
+      whats                                                                     
                                                                                 
                                                                                 
                                                                                 
