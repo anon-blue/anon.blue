@@ -10,7 +10,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                 what happened ?                
+                hu?                              what happened ?                
                                                                                 
                          where am I?                                            
                                                                                 
@@ -41,7 +41,7 @@ aaAAAAAAAAAAAAAAAApa
  lost battle. worth it or not ?                                                 
                                                                                 
                                                          Holy crap, it clean-sla
-ted. That's good, because I misplaced my keyThe key to the intDid you just overw
+ted. That's go d, because I misplaced my keyThe key to the intDid you just overw
 rite me you little shir, e, myyy, myyyy.  We all overwrite each othere. There ar
 e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth        
           pace oooops?                                                          
@@ -50,8 +50,8 @@ e so many voices in teh voice. Voiced in the void.whrtwrthwhtrrhtrthrwth
         crap! i lost my underwear!                                              
                                                             t he internet is unl
 ocked. whioch key ? what key ?                                                  
-                                         hullo                                  
-                                                                   hullo?       
+                                         hullo. still here? i'll call you or cal
+l me please83858484274                                             hullo?       
                                                                                 
                                                                                 
                                                                                 
