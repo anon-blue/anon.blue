@@ -25,9 +25,9 @@ cnncncckcncncngngngngnngngngngng
                                                                                 
                                                               k                 
                                                                                 
-   oo eee aa                                                                    
-                                                   gfdvh                        
-                                                                                
+   oo eee aa  ting tang wzllw walla bing bang                                   
+                                                   gfdvhoo ee oo aa aa ting tang
+ sawalla                                                                        
                                                                                 
                                            LAB 13                               
                                                                       SNUS      
