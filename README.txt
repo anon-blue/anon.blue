@@ -17,7 +17,7 @@ who could fuck over rthe worlsd moer         apapaoommowmowpapaoommowmow
 ojugh fdfdfdffdsfsthe most powerful being aliveturn back for Susano!seful to be 
 honest okkkkkkk    dicktaters                                               dfhd
 hoi                                                                         hell
-[ptkosupper tr        ia                                                        
+[ptkosupper tr        ia I am k  i am                                           
                                                               nch               
                                                                                 
                                                                                 
@@ -36,7 +36,7 @@ e.                                                                   ron
                                       pooop                         I guess that
  you could speak out whenevdimsodamnhoooorny  has anyo e been so far as do want 
 to do more like?re hopelessness in me that won't go quiet.                      
-                                                    I wish i had ice cream right
+                                                    I wisi i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
  lost battle. worth it or not ?                                                 
                            why ntot eat a fuk                                   
@@ -51,7 +51,7 @@ er?     crap! i lost my underwear!                                       here
                                                             t he internet isdsdw
 okay what the hell is going on here i dont ebven know what iim rwriting he e hek
 ohelphelphelpfffffI mean WAKE UP, BEFORE YOU FORGET HOW TO fdfd UP BEFORE YOU FO
-RGET HOT WO WAKE UP WAKE UP WAKE UP WAKE PEEPEPEP PEPE  PE  P$rgbdfbvcco?       
+RGET HOT WO WAKE UPfuck this shiptP WAKE PEEPEPEP PEPE  PE  P$rgbdfbvcco?       
                           D on ot stop playing, freedom is so near, can't you he
 ar it?                                                                          
                                                    m  y nipples explode with del
