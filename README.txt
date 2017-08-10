@@ -21,7 +21,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+            tell me tell me                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -41,7 +41,7 @@
                                                                                 
                                                                                 
                                                          Holy crap, it clean-sla
-ted.                                                   kdu Yo   Im not locked he
+ted. That's good, because I misplaced my key    Ywa what key?   Im not locked he
 re with you, youre locked in here with me.                                      
                                                                                 
           pace oooops?                                                          
@@ -49,7 +49,7 @@ re with you, youre locked in here with me.
                                                                                 
                                                                                 
                                                             t he internet is unl
-ocked                                                                           
+ocked. whioch key ? what key ?                                                  
                                                                                 
                                                                                 
                                                                                 
