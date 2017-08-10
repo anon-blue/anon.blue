@@ -30,9 +30,9 @@ yuytu
                                                                                 
                                             i want to forget everykkkkknothing  
 kingsmaybe not everything.  can i?                                              
-              i want tovhhfff love ything. can i?                  it is what it
- is. everythung eis everythinbazl is ableist stay leng overyg than anythinhg els
-e.                                                                   ron        
+              i want tovhhfff love ything. can i?         canf stop the penis   
+ 8==============D~~~~0:                                                         
+    hajabababababahahahahahahaha                                     ron        
                                      I'm looking forwawrd to eatnging some chees
 efffswsdfsdfwe built this city, we built this city on rock and roll take it the 
 to the lmit dont let your dreams be dreams man get up off of that ass and wgo fo
@@ -52,9 +52,9 @@ ere am i?       •••••••••••••••••••••�
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
                         kjnkjbjn bheart ,<3,#KJNAKJZ                            
-hello penisi                                                           8==)~0:  
-  8======================D~~~~\                                                 
+hello penisi s\see you ejactulating                                             
+      yumyumyum       delicious                                                 
                                                                                 
-                                                    for ( var i = 0; array.lengt
-h                                               go for golddofiajspdofijpaoisjdf
+                                                        hahahahhhahahhahahhhahah
+ahahhahahahahaha                                go for golddofiajspdofijpaoisjdf
 poisjdapfoijaspdoifjsdsdsdasdasdasdfpoiasdjfpoiasdjfpoiadsjf                    
