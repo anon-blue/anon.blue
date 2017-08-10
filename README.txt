@@ -25,7 +25,7 @@ r phone number !                       INJE TING THE BOIH this is tI am bill. if
                                                                                 
                                 ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcj n xn dj jxnxncnfuck iggersguck igge
-rsfuckniggersbfuckniggersfucmniggersguvk iggersgreat biophsysicist in the world,
+rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
  eveI     want    to huh? What the crap is this? Where are all you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfsdfsdfsdfon this thing?        
     shoneys                                                                    f
