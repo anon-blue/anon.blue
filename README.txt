@@ -9,12 +9,12 @@
                                                                                 
                                                                                 
                                                                                 
+                                              uk is best uk             ;'_)(*$)
+         (8)                                                                    
                                                                                 
-                                                                                
-                                                                                
-                     8========D~~~~~~~                                          
-                                                               f                
-                                                                                
+              (7)                                                               
+                                 (43)                       g           DF      
+   $ gh69                      3ggs0                                            
                                                                f                
                                                                                 
                                                                                 
@@ -42,7 +42,7 @@ a @lilpumpfollowmeoninsta@konokibi follow me on insta !konokibi
                                              G                          G       
                                 G                     G                         
 G                        G                  F A GG O T        F A G G T         
-      that what i call my ciggies ya bitch                        what dod you s
+      that what i call m     gies ya bitch                        what dod you s
 ay to me ya cunyt i cant fucking type that fast on my god damn pos phone so suck
  my d 888888=============DDDDDD ~~~~~~~~~          G      G                 G   
                          G             GG                   G              G    
@@ -57,4 +57,4 @@ ay to me ya cunyt i cant fucking type that fast on my god damn pos phone so suck
                                                                                 
                     STFU U GFAGGOT                                              
                                                                                 
-                                                             SOZ BIT MAN        
+             soz bit man is a faggot and lokes cock 88===D~0:SOZ BIT MAN        
