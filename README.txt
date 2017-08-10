@@ -43,11 +43,11 @@ cnncncckcncncngngngngnngngngngng
               lol         lol          lol         lol          lol             
                 lawl      looool         lawling                             bow
  wow                                                                            
-      whats                                                                     
+     whats up everybody!?!where are you from?                                   
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                         whats f
+ood  fam its ya boy az                                                          
             sslol                                                               
                                                                                 
                                                                                 
