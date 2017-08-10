@@ -1,5 +1,5 @@
-                                                                                
-                                                 bgi it goes in                 
+                                                                           sup r
+ight corner                                      bgi it goes in                 
                                                                                 
                                                                                 
                                                                                 
@@ -25,7 +25,7 @@ m dreams . hey, stop erasing ! ok thanl you.
                                                                                 
                                                                                 
                                                                                 
-                   i  'm a voice too. what is ghourt? tell me. aa yourself. stoo
+                   i  'm a voice too. what is ghourt? tell me  aa yourself. stoo
 p ! no As are allowed here, did't you read the sign?                            
                                                                                 
                                                                                 
@@ -34,7 +34,7 @@ p ! no As are allowed here, did't you read the sign?
 aaAAAAAAAAAAAAAAAApa                                                            
                                                                                 
                                                                     I guess that
- you could speak out now.                                                       
+ you could speak out whenever. is it me or                                      
                                                                                 
                                                     I wish i had ice cream right
  now. so void indeed but together we can trty to fill it... endlessly.    it's a
