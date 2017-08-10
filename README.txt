@@ -5,8 +5,8 @@ sdfasdf am                                            asdfasdfkgngncnkckckcncncn
 cnncncckcncncngngngngnngngngngng                                                
                                                                                 
                                                                      SNUS       
-                                 nyello                                         
-                   wowhim freaking out manboobs                                 
+                                 nyello my duudes                               
+                   wowhihjnhioninininhbhbhbhjbhjbhjbh                           
   holy fucking sgjit   m               i got manvoobs                           
     hello what the fuck!? lolefw                                                
                                              doot d                   SNUS      
@@ -22,11 +22,11 @@ r                              -Luke_asadd
                                                                      give me you
 r phone number !                       INJE TING THE BOIH this is the rwmix     
                                                                                 
-                                                                             aaa
+                               ya'll need jesys                              aaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa    
                                                                                 
-                                                                                
+          yes, yes they c                                                       
                                     wait can anyone write on this thing?        
                                                                                 
                                            LAB 13                    asdfasdasdk
