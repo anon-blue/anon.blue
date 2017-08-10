@@ -2,10 +2,10 @@
 or kekem, but the glorious Kek                                                  
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
-  PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENISGROVE - FOR ONCE IN
- MY WHOLE LIFE••••••••••                                 ytytyt                 
+  PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PENIS PES PENKS PENIS PE
+NIS                                                      ytytyt                 
                                    mmmmmmm all dis clean space, watch the pome  
-                                       d    ;a                                  
+                                       d    ;a aan  t                           
                                                                                 
             8==>~0:       8===>~0:        8===D~0:          8===)~~0:           
                                                                                 
@@ -51,7 +51,7 @@ ere am i?       •••••••••••••••••••••�
 ••••• THE BOHEMIAN GROVE- FOR ONVE IN  WHOLE LIFE {youtubre}••••••• < 666; i++) 
 { std::cout << ""SATAN!""; }                                                    
                                                                                 
-                        kjnkjbjn bheart ,<3,#KJNAKJZ                            
+                        kjnkjbjn bheart ,<3,#KJNAKJZ                 you all    
 hello penisi s\see you ejactulating                                             
       yumyumyum       delicious                                                 
                                                                                 
