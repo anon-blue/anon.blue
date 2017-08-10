@@ -1,5 +1,5 @@
                                        is there a time whreereerereeeee wehwill 
-be ok?  o wpmde  i wonder if humanity can get therei it goes in                 
+be ok?  o wpmde  i wondea if humanity can get therei it goes in                 
                                                                                 
                lkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                ljl;kj 
                                          kj   l; j                              
