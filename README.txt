@@ -1,8 +1,36 @@
 hhh                                        hhhhhh                    hhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     hhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh  hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhh                                                                   
+ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
+hhædædæfæfææfæfæfæfæfææææææææææøclclclclcøcøcøcøøcøvæøø øøødødødødødødødødødødød
+ødølfjcjcjcjcjckckkcncn n ncmxmdøxøxmøcclckkfldødøxøgkgkkgkgkgkgngncnkckckcncncn
+cnncncckcncncngn    snus                                                        
+                                                                                
+                                                                     SNUS       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                      SNUS      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+           leb the t13                                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                       INJE TING THE BOIH this is the rwmix     
+                                                                                
+                                                                                
+                                                              k                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                           LAB 13                               
+                                                                      SNUS      
                                                                                 
                                                                                 
                                                                                 
@@ -11,37 +39,9 @@ hhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                    e  my           well this iasnt                             
-                snsusjskskskskslsldl ta i bug bug bifournrkfodidkdldododo       
-                                                                                
+                    e  my           well this iasnt coolx                       
+              lol         lol          lol         lol          lol             
+                lawl      looool         lawling                                
                                                                                 
                                                                                 
                                                                                 
