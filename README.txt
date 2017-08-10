@@ -1,10 +1,10 @@
-                                                                                
+                 englamd                                                        
                                                     PHONE FAGGOT KYAS           
                                                                                 
                               8=====D                                G          
                     G                             G                             
                G                G                                               
-                                                                                
+                           uk is gayes t uk                                     
                                                                                 
                                                                                 
                                                                                 
@@ -14,27 +14,27 @@
                                                                                 
               (7)                                                               
                                  (43)                       g           DF      
-   $ gh69                      3ggs0                                            
-                                                               f                
+   $ gh69                      3ggs0                    #F4h1                   
+                           lls-                         4od9             gdsr   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                         glook T THIS GY bot                    
+                                                                                
+                                                                                
+                                                                                
+                                                               U IS FOR FAGS/   
+                                                                                
+                                                                                
+                                                                                
+                                         UK IS FOR FAGGS                        
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                               o       follow me
- on insta @koonodwdfwfefefefefdgfgrfhghghghgfghfghfghyjkuylui;lio/p/asfjtkyjujdf
-bdgghgngrngnmghkkkgkkkgkkkgkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfollow me on inst
-a @lilpumpfollowmeoninsta@konokibi follow me on insta !konokibi                 
-                                                                                
-                                    fagggs everywhere                           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                            fagghggggggggs                      
+                                            fagghggggggggs         uk aucks dick
                                                                           DDFDFF
  GET FUCKED HAHAHA                                                              
                                               COMING FOR U CUNT                 
