@@ -21,7 +21,7 @@ oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq
 huk,hyki                                                          uohdIck       
          mmmhellochowefeqfeqeqf]]]]\the consioucness encompassed all of what had
  been a univesresND brooded over what was now chaos step by step it must be done
- and i said let there be light gggggg                                cool beans 
+ and i said let there be light and there was light                   cool beans 
 bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
@@ -35,7 +35,7 @@ ssssssssssssHey aAre you serious?ea                                   SNUS
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!             
+Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag         
                 riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
 jkmmmmmk Hello? I don't thget how this works ummmmm                 suck it b;ue
