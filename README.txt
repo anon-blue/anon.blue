@@ -25,7 +25,7 @@ huk,hyki                                                          uohdIck
 bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
-n is werid Once there was a man named kenneth mckracken , he lived in tree down 
+n is werid Once there was a man named kenneth hhhhhcken , he lived in tree down 
 bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
@@ -38,7 +38,7 @@ r, CAf   StrangI am serious please asend help before it is too late for me
 Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag ich lieb
 e ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
-jkmmmmmk Hello? I don't thget how this works ummmmm                 suck it b;ue
+jkmmmmmk Hello? I don't thgewwhow this works ummmmm                 suck it b;ue
  screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
