@@ -7,11 +7,11 @@ limp with a long sigh. The sight of her cumming had made my own cock fully hard
 again. She saw it sticking up as I stood to wipe off my hand and her stomach. Sh
 e groaned and rolled her eyes. "Go to bed, Knob," she said, tugging hm of thrs b
 ack up. "Just remember that I owe you a beating." She grinned evilly and I made 
-a hasty exit before she decided to make good on it. Things were quiet for a few 
-days. It was obvious to me that I was getting more and more attracted to my own 
-sister, and it was just as obvious that it didn't bother me much. I knew it was 
-wrong but it didn't feel like what we did was hurting anybody. Anyway, thinking 
-about it too much just gave me a headache, so I stopped worrying. I did know tha
+a hasty exit before she decided to make good on it. Things                      
+                                                                                
+      ,           THIS IS ME : MY LINE  DON'T DISTURB ME I'M BUDYBUSY           
+                                                      anybody. Anyway, thinking 
+about it too much just gave me a NO GOING BACK YOUopped worrying. I did know tha
 t the idea of playing with another guy's dick still grossed me out. With        
 it was different. One afternoon we were doing chores. I'd felt hyperactive all d
 ay, and when I saw Cassie leaning over in the kitchen to get something from unde
