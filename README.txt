@@ -47,7 +47,7 @@ neless bonelessge
                                                                                 
          boredom mindleesssssssssss             We alllosst to help one another.
                        alone                       straya        go gooncebefore
-    dbuuyuudb                   stoned expressions of nothing                   
+    dbuuyuudb       nuijuuuju   stoned expressions of nothing                   
                                                                                 
                  sen                                   death                    
       miss you mom rbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
