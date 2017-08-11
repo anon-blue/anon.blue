@@ -19,9 +19,9 @@ one how to look at his watch correctly.......i mean its not THAT hard.      but
 what is tiome??? it is it's hammer time actualluykekekekekekekekekekekekekekekek
 ekekekekekekeekekekekekekeekekekekekekeekekekekekeekekek no u ..................
 ....................................................................dont make ba
-by jesus cry mam    ooooh, now he be cery well, mispeslling things    there once
- was a man from nantucket, he hammmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+by jesus cry mam    ooooh, now he be cery well  misspelling things    there ince
+ was a man fronnnfuckcket, he had a ..... well, lets just say he liked sucking t
+hings.....mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmm el que lo lea lol                   This an opportu ity to say an
 ything and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxx
 nxnnsj jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverw
@@ -30,7 +30,7 @@ down bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people?
  very nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political 
 messages intensifies        hello am I good enough?                             
     f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello all      heyhoe r uhah
-a me too no cry no cry re you serious?ea                                   SNUS 
+a me too no cry no cry bickez                                              SNUS 
                        This is the worst day of myhhellohelloase send help to Wh
 ittier, CAf   StrangI am serious please asend help before it is too late for me 
                                                                                 
