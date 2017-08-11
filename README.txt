@@ -1,60 +1,60 @@
-                   fuck you     en                                 ds and ma    
-      aids.                                                                     
+                   fuck you     en                                 ds and mastrb
+    fuck                                                               hi       
+                        hi    our friends an      y              o              
+                                                                                
+                                                                                
+  isolation                                                                     
+                                    ponies                                      
+                                                                                
+                                                                                
+                                                               i eat shit       
+                                                      loss                      
+                                                                                
+              overwhelming                                                      
+                                                                                
+      i dont wna to die                                                         
+                                                                                
+                                loathing                                        
+         devin's probably an ok guy                                             
+                                        fear                      useless       
+        soul crushing                                                           
+                                                                                
+                                                                                
+                                                                              Th
+at.s not my business.                                                           
+                                                                                
+                                           o _o                                 
+                                                                                
+                                                                                
+        empeorororo of what?                              rage     meaningless  
+voices                                                                          
                                                                                 
                                                                                 
                                                                                 
-isolation                                                                       
-                                  ponies                                        
                                                                                 
                                                                                 
-                                                             i eat shit         
-                                                    loss                        
-                                                                                
-            overwhelming                                                        
-                                                                                
-    i dont wna to die                                                           
-                                                                                
-                              loathing                                          
-       devin's probably an ok guy                                               
-                                      fear                      useless         
-      soul crushing                                                             
+                         I should like to help everyone if possible; Jew gentile
+, black, white.                                                                 
                                                                                 
                                                                                 
-                                                                            That
-.s not my business.                                                             
+                                         Human beings are like that.            
+disconected                                                                     
                                                                                 
-                                         o _o                                   
+                          paranoia hatred                                       
+                                                          I'm sorry, but I don't
+ want to be an emporer.                                                         
+    obediance                                                                   
+                                                                                
+        boredom mindleesssssssssss             We alllosst to help one another. 
+                      alone                                                     
                                                                                 
                                                                                 
-      empeorororo of what?                                       meaningless  vo
-ices                                                                            
+                sen                                                             
+             Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj               
+                                      numb                                      
                                                                                 
+                                    ant empreror?d                              
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                       I should like to help everyone if possible; Jew gentile, 
-black, white.                                                                   
-                                                                                
-                                                                                
-                                       Human beings are like that.            di
-sconected                                                                       
-                                                                                
-                        paranoia hatred                                         
-                                                        I'm sorry, but I don't w
-ant to be an emporer.                                                           
-  obediance                                                                     
-                                                                                
-      boredome                               We alllosst to help one another.   
-                    alone                                                       
-                                                                                
-                                                                                
-              sen                                                               
-           Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj                 
-                                    numb                                        
-                                                                                
-                                  ant empreror?d                                
-                                                                                
-                                                                                
-                                                                                
-               ds and                                                           
+                 ds and                                                         
