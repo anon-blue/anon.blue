@@ -22,7 +22,7 @@ kek
                                                             aww. well time to di
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
                                                                                 
-                                                                   how do you me
+ fuck you man why i am even writing something umm help i dunno what's heo you me
 an? it's just some km            dnnnvvnvnnv  f  ddd d d fg d d d d   fd        
                                                                                 
                                                                                 
