@@ -52,7 +52,7 @@ ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhihihihyhyhhyhyhykn
 gguuten tAg guten tag gutan tag huten tag guten tag fuckYOU ;)FUCK YOU TOO BITCH
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
-hhdwDun   8ck kann n      Deungeon     Dungeon      das is a goooot kaybord     
+hhdwDun   8ck kann ncht schlafen       Dungeon      das is a goooot kaybord     
       i have goood humor in myhahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbhnjbhjjjjjjsuicide thirsdayhdasdfasdfdsafhhh
 hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnation
