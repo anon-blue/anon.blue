@@ -29,7 +29,7 @@ d about conspiracy theories. idon't even take care of my kinds anymore? like how
 ou know. i love them conspiracy teheories. thank s for listening to me. i like y
 ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
 y else                          is there such a thing?                          
-                              Tellement de douceur                              
+                              Tellement de douceur      sssds                   
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 .ksdhf.dnfgINOT YET NOT YET                                                     
                                                 You're right, this is RED     He
