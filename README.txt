@@ -36,25 +36,25 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
 h friends therWHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAATTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTT ?????
-?seg                                                                            
-                                          I am alone still          HAHA lkjhkjh
-kjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hras
-tnikain for too long. it may not open again adterwardo. i tested me!? oh i hope 
-the stars are beautiful. owahsatawawrwarawrwarwarwarYOU WHAT TOPPEST OF THE KEKS
- THIS IS BRETTY GUD omageance here, but i lived in coocadoo before..... hahaha n
-o youre nhi thereable at all :)                  i'm trapped on this line..  eve
-rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see i
-t green too and when ItrwvhsrIt's me%!Can someone read this?Maybe from UPGRADE?-
+?seg                     rrrereerfffggv                                         
+                                           I am alone still          HAHA lkjhkj
+hkjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hra
+stnikain for too long. it may not open again adterwardo. i tested me!? oh i hope
+ the stars are beautiful. owahsatawawrwarawrwarwarwarYOU WHAT TOPPEST OF THE KEK
+S THIS IS BRETTY GUD omageance here, but i lived in coocadoo before..... hahaha 
+no youre nhi thereable at all :)                  i'm trapped on this line..  ev
+erybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
+it green too and when ItrwvhsrIt's me%!Can someone read this?Maybe from UPGRADE?
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
------------------------------------------v  adfafasfasfkjasfaslfkasfasfaslafaksj
-f-------------------------------------------------------------------------------
+------------------------------------------v  adfafasfasfkjasfaslfkasfasfaslafaks
+jf------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
--------------------------------------------------bakllsballsballsballsokekgoedic
-k           dick      dick        dick        penis penis pnis penis------------
-                                          l    qqqq                  no i wotst 
-xooxo fu          the engd anyone here?                                 end     
-                                Yes I can read it                               
+--------------------------------------------------bakllsballsballsballsokekgoedi
+ck           dick      dick        dick        penis penis pnis penis-----------
+-                                          l    qqqq                  no i wotst
+ xooxo fu          the engd anyone here?                                 end    
+                                 Yes I can read it                              
