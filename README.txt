@@ -7,8 +7,8 @@
 n, it"s a wave of evil. I think I made this. it's the morning here, i thought i'
 d havT a look at what happened during the night. Yes i saw it live, it's seen ot
 her spammers, s it's like humanity, goofd or evil, everything will come down you
-r lane some poetry too, love and hate, craziness and just some du fuck you fuck 
-you fuck you all over the pagelol that's awesomeINVESTIGATE 311 !!! INVESTIGATE 
+r lane some poetry too, love and hate, craziness and just some dumb shit. there'
+s a bug, if we are too many, the page will just wipe down E 311 !!! INVESTIGATE 
 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 
 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 11 !!! INVESTIGA
 TE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 31 311 !!! INVEII
