@@ -1,4 +1,4 @@
-                   fuck you divided                                ds and mastrb
+                 disdainyou divided                                ds and mastrb
     fuck                                                               hi       
                         hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
@@ -55,6 +55,6 @@ neless bonelessge
                                                     detached                    
                                      ant empreror?d                             
                                                                                 
-                                                                                
-                                                                                
+                                                                              ap
+athy                                                                            
                   ds and                                                        
