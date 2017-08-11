@@ -12,8 +12,8 @@ gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
 asdasdasdasdasdasdadadadadadadafuckfuckfuckfuckfucklolololololwhythothisiscrazy 
 i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
-i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
+i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
+o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
    ij klllllllllllllllllllllllj        you think so? it's me down here, your dou
 ble soul i recognize your typing style hwho are you? im not crazy????;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
