@@ -1,6 +1,6 @@
 hhhhhhhhhhhhhhhhhhhhhh                                                          
-                                      hhhhhhh                                   
-                                                                  hjkdhsnsbhhhhh
+                                      hhhhhhh                        This is the
+ full feelnig that morning brings                                 hjkdhsnsbhhhhh
                                                                   lel           
                                                                                 
                                                                                 
@@ -16,23 +16,23 @@ fwfrwerqwrweqrwet354654
 ung warthog                                                                     
 This is the empty feeling that night brinhgs aaasdk1423                      hhh
 hhhhhhhhhh   hh   hhhh             hhhhhhh              hh       hhhh           
-                                               h      hhhhhh      hhhhhh        
+                                              Th      hhhhhh      hhhhhh        
                                                                                 
                                                                    hhhhhh       
                                                                                 
-                                                                                
+                                This is the night that brings the dark drea     
                                                                                 
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                                                 
               hhhh          hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hh hhhhhhhhhhhhhhhhhhhhhhhhhhhhThe old man pushed the table.                    
-                                                                                
-                                                                                
+                                                                 This is the ful
+l feeling that morning brings.                                                  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
       hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhthis is the empty 
+hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
