@@ -3,17 +3,17 @@ make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
 l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
-                                                                     kh pogkh pf
-okh pfoghp ofkghp ofgphof kgphok fpgohk fpgokh pfogkpfoghk pogkhp ogh gffgfghfgf
-ghğp0909k0kı0ok         oh i get it sn=smart this is a crazy honecettttttttttttt
+                                                                                
+                                                                                
+                     ##    ######  ##   mart this is a crazy honecettttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tt fyck damn wonder if anybody called him     sane same here  ask for sadok same
 not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup 
 is cute husky          it was a story about a miami guy for the record.pace for 
 you        as conceived in 60003432 by portuguese printing press operator dsjklf
-djsfsdf                                                                         
+djsfsWhat is ASPTT?                                                             
                                                    LOVE U 2 - LOVE THIS BLUE    
-                                                                                
+            THIS IS RED                                                         
   this is what we asked for people. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
