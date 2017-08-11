@@ -53,7 +53,7 @@ had an argument she sshoved me and i shoved back she came at me with a knifeso i
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkk                           why tiyping something?asdf         
+kkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello    
                                                      ;;;;;;;;;;;;;;;;;;;;helo mo
 thafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                  
                             ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;         
