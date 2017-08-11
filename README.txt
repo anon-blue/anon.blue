@@ -17,7 +17,7 @@ eally you or a robot? Ah, I was so sure about that LOVE U 2 - LOVE THIS BLUE
 ILETS". it's a robot. I think. ple. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel lopiayyyyyyyyyylmaooooooois ok t                          
-  Your MOTHER WAS AMAZING                                    thank you for her  
+  Your MOTHER WAS  ausedoyoukonw ialove you if id ont want to go with your her  
 rywhere?    i guess so +##äö#äö#äö#äö hello buttocjlasdölkasdölkammcööwww.asd0KE
 RN                               I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
