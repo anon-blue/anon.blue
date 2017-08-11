@@ -16,12 +16,12 @@ fwfrwerqwrweqrwet354654
 ung warthog                                                                     
 This is the empty feeling that night brinhgs aaasdk1423  The night that brings o
 n the dark dream of whispering woods and broken ambitions                       
-                                              This moonhe full feeling that morn
-ing brings                                                               But ash
-jetyhetyetyetyets, full moon' can't pay the heating bill           hhhhhh       
-                                                                                
-                                This is the night that brings the dark drea     
-                                                                                
+                                              This moonhe THE MEANING OF LIFE IS
+ ALWAYS HAVING SOMETHING TO LOOK FORWARD TO                              But ash
+jetyhetyetyetyets, full moon' can't pay the heating bill, but turning tricks on 
+the corner sure can                                                             
+                                This is the night that brings the dark dreadlock
+rasta                                                                           
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                          several penises, erect 
 penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
@@ -54,7 +54,7 @@ are making yu want to jump...just the parasites...really..."                  h
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhh                                                                            
-       h                         hhh                                            
-                                                                                
+       h                         hhh                                           d
+ddddddddddddunkd                                                                
                                                 everybody here is insane i swear
  emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w
