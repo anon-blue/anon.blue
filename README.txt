@@ -22,10 +22,10 @@ rywhere?    i guess so +##äöhobitchesaintshitbuthoesandtricksif anyone is here
 et me know nbush did 9/11 sadly its truth you know, back in my dya we were all a
 bout conspairacy theories. oh yeah, ltell me about it. hitler did nothing wrong?
 we sdiscuessed that. all the rage. hitler iwas one but elvis, you know the king 
-of pop? his death wasWe I wogim tripping balls right now. this is pretty cpppooo
-l lmao i cant type -romage -sage sur un nuyage- errance entre 2 tranche de pain 
-Cant find me anymores start with a simple rhyme. you know french? i don't so it 
-wil  have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
+of pop? his death was another. all these little things. consiraacy theories are 
+pretty much my life now, i like to go home after a long day of work and just rea
+d about conspiracy theories. idon't even take care of my kinds anymore? like how
+ sad, HAHAHA JK NO Iwhat is the disctssion about hitler?uuvyghjvjyjromage? nice 
 i'm rapping it right now, just miss the beat. the mixtape is coming saaaa we'll 
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
