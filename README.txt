@@ -38,7 +38,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
 at nihi how are you doing tonight friends i dont know waht i am typing but i am 
 tying anyways tittes hhhhhhhhhhh That's the sound of the police. Woop, woop, tha
 t's the sound of the beast.hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
+hhhhhhhhhhhhhhhhHe lljhbljljhkhhgg edge and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
  lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
