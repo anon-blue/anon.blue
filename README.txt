@@ -48,8 +48,8 @@ is this?   who am i ?     what am i ?     is this real ?         110001011101001
 ----------------------penis-----------------------------------------------------
 -----------------------------------------------------soemtime- -ilike to take lo
 ng walks on the beach dnd fart , sometimes even shit on the sand, it's very thar
-eupric. you know? --------------------------------------------------------------
---------------------------------------------------------------------------------
+eupric. you know? --------------OI also enjoy ass-fucking my dog from time to ti
+me. OIt helps me realease all the inner demons by exp---------------------------
 --------If you sprinkle when you ti----, be a sweety and wipe the seaty.elcome!-
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
