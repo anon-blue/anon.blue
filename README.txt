@@ -31,16 +31,16 @@ ny, table that morning6gghhhhjjjjjj          penis is kewl kjkfjllskldfji hitler
  did nothe hitler did nothing wrong nothing wrongtrump is my suger daddy        
                                                                                 
                                                                                 
-                                                                                
-            s the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
-feeling that night bringshhhhhhgfdhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+jet fuel can't melt steel beams                                                 
+     g                                                    we gather here to day 
+to worship our one true god, lord chanka {- 7    ou i like pbanannashhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
 at nihi how are you doing tonight friends i dont know waht i am typing but i am 
 tying anyways tittes hhhhhhhhhhh That's the sound oya 420 blaze it  yo we smokin
  weed? peter piper picked a paxk of pickled dicks oand on the throne a cat balls
  did lick hhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
-re causing your suicidal thoughts...just the parasites and nothing more" hIn the
- lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
+re causing your suicidal thoughts...just the parasites ajeJET FUEL CANT MELT STE
+EL BEEMS ow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
 Im gay sp o                                                              lol[   
                                                                                 
