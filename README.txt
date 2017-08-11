@@ -19,12 +19,12 @@
                                                                                 
                                                                                 
                                                                                 
-                               I'mthere          I                             w
+                               I'mthere. yes I think you know. Of course       w
 omenshouldhavenirighttovotejskaoalnc xxjkakwkqidjdndiskfjfjdjsjfjsjdjdjdjndkdkks
 ooqoqidjnfrbff                                                                  
                        mmmmh i guess one could say that, or the other way around
-, i don't know I'm here !                                                       
-                                                                                
+, i don't know I'm here ! you see me? know what? are you just letters typing the
+mselves                                                                         
    it was too gross, sorry, i hit the secret clear button.                      
                                                                                 
                                                                                 
@@ -40,8 +40,8 @@ ooqoqidjnfrbff
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                           班我们的心情好的吧唧了吗啡的确有了了吗啡的
+了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                          
                                                                                 
                                                                                 
                                                                                 
