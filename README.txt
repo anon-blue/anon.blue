@@ -1,9 +1,9 @@
 kek                                                                             
                                                                                 
                                                                                 
-                                                                     pensi or pe
-nis what is it                                                                  
                                                                                 
+                                                   @shiftedgames who just delted
+ t  that*                                                                       
                                                                                 
                                                                                 
                                                                                 
@@ -47,12 +47,12 @@ im really doing lil : nobody does:
   whya dothis to me                                                             
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                04447gysfhfdshfss404sfssa0s4                                    
-                                                                                
-                                                                                
+                                                           jiooü+mälökmlömlmlömk
+lmlkmölmlmölömmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmm   mmmmmmmmmmmmmmmmmmmmmmmmmm  mmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmssmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm     
                                                                                 
                                                                                 
                                                                                 
