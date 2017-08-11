@@ -8,7 +8,7 @@ gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggjhow does one fined the soul when its too far to be seen;;;;;;;;;;;;;;;;;
+gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whered oes
  this end is there any sihtg to be maed of he beings? ;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
@@ -31,7 +31,7 @@ gggggggjhow does one fined the soul when its too far to be seen;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                                   
            fuck foot ronaldy name is ronald    there is no god                  
-tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
+tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
  or otther people ,  tttttt                                                     
                           TRUMP              LOL jk its all trash GO noles      
