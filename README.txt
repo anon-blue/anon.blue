@@ -5,31 +5,31 @@ sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df
                                asdkm,im scARED of fallling in love againpoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
-                                                   hello?.............s fucking 
-good my niggerb XD                                                        HERE  
-  holy fucking sthis isn't good.  ndarittoconiconfessidon't love anybodytand im 
-desperateand depresedck!? lolefw                                                
-     ballfungus is a nasty affliction   oops, now i ga ve it to yopu  SNUS      
+                                                   hello?.......................
+................................................................................
+................................................................................
+................................................................................
+...................................................................no SNUS      
                                                                               sh
 ablagooodoohow does thsi go niooanythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovsseeerreereeerrrrewwwww3 I
  DONT LOVE YOU ANYMORE Rain drop drop top llllllllllllkjilIl byron from napier  
-    §♀☺§§§☺ interestincoolieb:)dfiiibgfjjjgfhbuhggbjbbhhgyuooooooooooooooooooooo
-oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq                               
-                                                                                
-                                                                                
-huk,hyki                                                          uohdIck       
-         mmmhellochowefeqfeqeqf]]]]\the consioucness encompassed all of what had
- been a univesresND brooded over what was now chaos step by step it must be done
- and i said let there be light and there was light                   cool beans 
-bro iPuto el que lo lea lol                   This an opportu ity to say anythin
+    §♀☺§§§☺ interestincoolieb:)dthis guy has no idea how to tell the time let al
+one how to loooooooóookiehiqqqqqqqqqqqqqqqlkmlk;l;'k;k;m,l;kmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm     mmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmm el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
 n is werid Once there was a man named kenneth hhhhhcken , he lived in tree down 
 bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
-]]]  I'm not sure wgat to say... Damnit *what to say*                asdfassssss
+]]]  I'm not sure wgat to say... DamnazxcvcasfdH say*                asdfassssss
 ssssssssssssHey aAre you serious?ea                                   SNUS      
                   This is the worst day of myhhellohelloase send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
