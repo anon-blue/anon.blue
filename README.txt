@@ -1,7 +1,7 @@
 k you fuck you fuck you fuck you fuck you fuck you fuck you fuck youk you fuck y
-ou fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck 
-you fuck you fuyou fuck you fuck you fuck you fuck you fuck you fuck you fuck yo
-u fu fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuc
+ou fuck you fuck you fu i he is not happy I think. yes, but i hope it helps him 
+vent. sorry i will er so mean I'm I know right? what a dickheadahhh get away fro
+m me, I'm going to to gfurther dowck you fuck you fuck you fuck you fuck you fuc
 k you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fu
 ck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you f
 uck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you fuck you 
