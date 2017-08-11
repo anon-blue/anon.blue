@@ -28,7 +28,7 @@ isperer because he was the first of 5 different damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                                                                 
                                  fat fst fat                                    
-               voces precisam tomar rivotrihahahahahahababababahahahajahahahahah
+               voces precisam tomar rivotrilahahahahahababababahahahajahahahahah
 ahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahah
 ahahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○○           
                                                             ♡♡♡♡♡♡              
