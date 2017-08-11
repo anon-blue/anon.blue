@@ -1,5 +1,5 @@
-                                    Th;;;   There is no ther;;there is only here
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
+                      florentina florentina, florentina de jesus. nao sei se tu 
+me amas ou sepq tu me seduz?;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
 mean... does "to bea" aslo mean "to not be"? Isn¿t that the definition of "beint
 g" one thing? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;dd;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ggggggggggg
