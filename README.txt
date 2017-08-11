@@ -13,10 +13,10 @@ isolation
             overwhelming                                                        
                                                                                 
     i dont wna to die                                                           
-                                                poo kinda looks like a pickle   
-                              loathing                                          
                                                                                 
-                                                                useless         
+                              loathing       devon is a botch p                 
+                                                                                
+                                      fear                      useless         
       soul crushing                                                             
                                                                                 
                                                                                 
@@ -40,7 +40,7 @@ black, white.
                                        Human beings are like that.            di
 sconected                                                                       
                                                                                 
-                                 hatred                                         
+                        paranoia hatred                                         
                                                         I'm sorry, but I don't w
 ant to be an emporer.                                                           
                                                                                 
@@ -51,10 +51,10 @@ ant to be an emporer.
                                                                                 
               sen                                                               
            Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj                 
+                                    numb                                        
                                                                                 
+                                  ant empreror?d                                
                                                                                 
-                                                                                
-                                                                                
-                                                  8==========D                  
-                                        afraid                                  
+                             aaaaaaaaaaaaaaaaaaaa\\\aaaaaa;ajka;lkj             
+          it aint easy being cheesy      afraid                                 
                                                                                 
