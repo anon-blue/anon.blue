@@ -27,18 +27,18 @@ rasta to commune at the altar of Ras Tafari
 penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
 storm blew a table through the old men, he pushed the table. Time to suck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
-ny, table that morning6gghhhhjjjjjj                       Silver Bells they ri  
-                                   houo  girl  horse mouth d hh h hh hh hh hhhh 
-        hhhhhhhh                                 yooo, can anyoene here me?===jj
-djdijijdjvddjjjjjjjjjjjjjjjjjjjjjjjjjjjjkhello niggwe   eeebbeilhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
-feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+ny, table that morning6gghhhhjjjjjj          penis is kewl kjkfjllskldfji hitler
+ did nothe hitler did nothing wrong nothing wrongtrump is my suger daddy        
+                                                                                
+                                                                                
+                                                                                
+            s the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
+feeling that night bringshhhhhhgfdhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
 at nihi how are you doing tonight friends i dont know waht i am typing but i am 
 tying anyways tittes hhhhhhhhhhh That's the sound oya 420 blaze it  yo we smokin
  weed? peter piper picked a paxk of pickled dicks oand on the throne a cat balls
- did lickhhhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
+ did lick hhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
  lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
