@@ -28,8 +28,8 @@ penises were lined in a row, waiting to be sucked adthe windtattled the door an
 storm blew a table through the old men he pushed the table time to  cuuck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
 ny, table that morning6gghhhhjjjjjj          penis is kewl kjkfjllskldfji hitler
- did nothe hitler did nothblooottyiraeatbuttwrongtrump is my suger daddy        
-                                                                                
+ did nothe hitler did nothblooottyiraeatbuttwrongtrump is my This is not the yea
+r of the Linux desktop.                                                         
                                                                lost here        
 jet fuel can't melt steel beams                                                 
      go                                                   we gather here to day 
@@ -41,13 +41,13 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhxcvxcvxcvxcvxcvxcvxcvxc  titties!!!!!!!
  did lick hhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites ajeJET FUEL CANT MELT STE
 EL BEEMS if tommy has tliberalizmhilaryclintonhates americal CANT MELT STEEL BEE
-MASSOJZNENIANS                                                  Who has an xbox 
-send me a message is you have one my gamer name is CoffeeTitan6553 oh... am d   
-                                                                                
-                            this is the empty uphuntwhat           when itgoes Y
-ouknow theghhybcchuhhgguidebookgunkhi-techoftenruggedKurd unhook  Thinkoutcryopp
-ortunity                                                   dddddd               
-                                                                    fff fff fff 
+MASSOJZNENIANS                ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;          ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                          fff fff fff 
 fff fff fff fff fffhe looked over the edge and said "it's just the parasites tha
 t are making yu want to jump...just the parasites...really..."                  
 h     so why not go nanyo              mayonnaiseody pustules were now sweldnigg
