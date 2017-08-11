@@ -4,8 +4,8 @@ owadoi Life would ebe harder for me. Aand I havMOOT WAS HEREdege that nut still
                                                                   lel           
              niggettttttttttttttttttin                                          
                  kkljkljkl;jkl;uuiiiooklllljjjjjjjjjjjjiohyutfihoj nigger       
-               sunbutt                             You just write nan  aCan;t sd
-fwfrwerqwrweqrwet354654                                                         
+               lm qeflmwLEG LNFODASESEEEEEEEEEE[LMWE [GMwe[ gknwe GKSD G OMwgo m
+ewWE W WE wg w/E Gw 654                                                         
                                                                                 
      tthisistheemptyfeelingthatnightbringsbrings                                
                                                              h                  
@@ -24,7 +24,7 @@ the corner sure can
 rasta to commune at the altar of Ras Tafari                                     
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                          several penises, erect 
-penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
+penises were lined in a row, waiting to be sucked adthe windtattled the door an 
 storm blew a table through the old men, he pushed the table. Time to suck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
 ny, table that morning6gghhhhjjjjjj          penis is kewl kjkfjllskldfji hitler
