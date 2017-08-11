@@ -26,9 +26,9 @@ of pop? his death was another. all these little things. consiraacy theories are
 pretty much my life now, i like to go home after a long day of work and just rea
 d about conspiracy theories. idon't even take care of my kinds anymore? like how
  sad, HAHAHA JK NO IT'S NOT. I' prefer to read about repetalian , life is good y
-ou know. i love them conspiracy tou don't harm anybody.    repetalians rule ull 
-make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
-                                is there such a thing?                          
+ou know. i love them conspiracy teheories. thank s for listening to me. i like y
+ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
+y else                          is there such a thing?                          
                               Tellement de douceur                              
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 .ksdhf.dnfgINOT YET NOT YET                                                     
