@@ -35,7 +35,7 @@ d me, just hate e
                                              hello this is me                   
                                                                                 
                                                                                 
-                                    ded                                         
+                   asasda WHY CAN'T YOU BACK SPACE? UHH -Scythetryx             
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ jnjdkjdkdbbbbbbbbbbbbbbb
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+       jesus wasn't real                                                        
                                                                                 
                                           Plaguis the Wise?                     
