@@ -12,7 +12,7 @@ not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup
 is cute husky          it was a story about a miami guy for the record.pace for 
 you        as conceived in 60003432 by portuguese printing press operator dsjklf
 djsfsdf                                                                         
-                                                                                
+                                                   LOVE U 2                     
                                                                                 
   this is what we asked for people. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
@@ -41,7 +41,7 @@ aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
                   j j yourself it happens you know . it will get better   nonono
  fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
-lace though. cool from france here, but i lived in coocadoo before..... hahaha n
+lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                                                 
             i prefklmmkcm dklsmfdsfkd fkdlfk kf adsjkf ,llllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
