@@ -27,9 +27,9 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
                                                                                 
                                                                                 
                                                                                 
-                     o boy it all going to be ov                                
+                     o boy it all going to be over written                      
                                                                                 
-                                                                                
+              well why not it sounds like a fin timefunnnn     vdsight idk what 
                                                                                 
                                                                                 
                                                                                 
@@ -41,8 +41,8 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
                                                                                 
                                                                                 
                                                                                 
-                                          : getoutt :                           
-                                                                                
+                                          : getoutregregaergzeragragaergaergagkl
+;kjrtwhat is theis website                                                      
                                                                                 
   whya dothis to me                                                             
                                                                                 
