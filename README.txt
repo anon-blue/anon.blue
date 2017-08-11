@@ -11,8 +11,8 @@ kek
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+          what are people doing on here? odoDO people usdee this in the way that
+ I think they do?                                                               
                                                                                 
                                                                                 
                                                                                 
@@ -22,8 +22,8 @@ kek
                                                             aww. well time to di
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
                                                                                 
-                                                                                
-                                                                                
+                                                                   how do you me
+an? it's just some kind of weird expirement                                     
                                                                                 
                                                                                 
                                                                                 
