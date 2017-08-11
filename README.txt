@@ -23,8 +23,8 @@ ing brings
                                 This is the night that brings the dark drea     
                                                                                 
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
-                                                                                
-              hhhh          hhhhhhhhhh                                      The 
+                                                         several penises, erect 
+penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
 storm blew a table through the old men, he pushed the table.                    
                    The table, much to thr old men's surprise,    This is the ful
 l feeling that morning brings.                                                  
@@ -34,8 +34,8 @@ l feeling that morning brings.
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
+at night brings hhhhh hhhhhhhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhHe looked over the edge and said "ithhhhust the parasites that a
