@@ -44,7 +44,7 @@ tly presented party presents play people's preferences proportionatelyy
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                 v              
                                                                                 
                                                                                 
                                                                                 
