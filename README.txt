@@ -2,26 +2,27 @@
                   <>  <> d n't  other with ty os don't bother  ith typos        
                                                                                 
                                                                                 
-  ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 31the fucking 
-coolest chat room ever. ERIC ANDRE!!!!!!! uh oh... it's coming I thought that te
-xt at the bottow      . type shit. typo again, you know what? fuck this shit man
-, there's no room for mistakesE 31 !!! IVESTIGATE 311 !!! INVESIGATE 31 !!! IVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! I                                           STIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE         INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES       311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!      
+                             HEY! INENDTwGere are you?                          
+                                         HE's gone now he'll come again and agai
+n, it"s a wave of evil. ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATOOOOOOOOOOOO! INVESTIOOOOOOGATE 311 !!!INVESTIOO11 OOO
+OOOOOOOOOOVESTIGATE 311!!! INVESTIG shit11it cauNghESme fuuuck get waway from me
+beat off, man who even made thisNVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGA
+TE 311 !!! INVESTIGATE 311 !!! ESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 
+311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 
+311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 11 !!! INVESTIGA
+TE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! !! INVEII
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!        
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE         INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+S       311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!!                                                                 
                                                                                 
                                                                                 
                                                                                 
@@ -34,27 +35,26 @@ TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311        ESTIG
-ATE 311 !!!                                              TIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTISTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!!          TE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!     STIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVES
-TIGATE 311 !!! INGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGAT
-E 311 !!! INVESTIGATE 311 !!! ININVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIG
-ATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!         
-                                                                                
-                                                                                
+                                                                     !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311        ESTIGATE 311 !!!                                              TI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTISTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!          TE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!!     
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVE
+STIGATE 311 !!! INVESTIGATE 311 !!! INGATE 311 !!! INVESTIGATE 311 !!! INVESTIGA
+TE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! ININVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTI
+GATE 311 !!!                                                                    
+                                                              fu                
                                                                                 
                                                                                 
