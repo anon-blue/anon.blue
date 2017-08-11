@@ -47,7 +47,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaa                                                      
                 hello?                                                          
         hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrhybtobro
-bribroooooooowwaitareyoustillthere                        jnunwhaä oh okay so ev
+bribroooooooowwaitareyoustillthere fda,m                  jnunwhaä oh okay so ev
 erything i write is being unwritten. i feel like a natasha beddingfield song. I 
 wish i were high man. are you real? am I real??????? what's happenig to me,,....
 ................................................................................
