@@ -6,7 +6,7 @@
  t  that*l ol shittedgames                                                   hel
 lo what us going onvffshvdf                                                     
                                                                         Jelly be
-ans si what are you                                                             
+ans si what are you doing? playinghhhhhhhhh im high :) the smiley looks so high 
                      hello whos there>?   hjkufkukfdukf  oh i see i cant change 
 line unless i speak all the ywwa way* lol, sorry im a  it high. I ve just won a 
 game of herarthstonbe yay me :D 3------>````````  yay drugs sent me here        
@@ -24,13 +24,13 @@ llllllllllllllllllllllllllllllllllllllllllllllllllleeeeeeeee
                                                                                 
 fuck you man why i am ev                                                        
                                                                                 
-                                                                      fd        
-                        wt          f help meeeeeeeeeehelphelphelphelp          
-                                  mln/kn\\ help me I am sadfgdg9696969696mjjjjjk
+                                                                      fd wow all
+ the things we could write and this is what has been written.  Not that I have b
+done any better then the rest. so maybe I shold stop am sadfgdg9696969696mjjjjjk
 969696  969696969696969696969696969696969696969696969696969                     
                                                                                 
-             well why not it sounds like a fin timefunnnn     vdsight idk what i
-m really doing lil : nobody does:                hujjujjjujjjjjjjjghjhgm        
+             well why not it sounds like a fin timefunnnn     vdsight we are all
+ puppets tangled in stringswe are puup           hujjujjjujjjjjjjjghjhgm        
                                      drink coca cola!     u                     
    ...                               8====D~~~~~                                
                                                     no                          
