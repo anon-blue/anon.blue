@@ -16,7 +16,7 @@ ria i'm b urning star IV good eye snuper man your battle sstations
                                   yo                                            
                                                          revulsion              
                                                                                 
-                                                                                
+enmity                                                                          
                          the wig                                                
                                                                                 
                                                                                 
@@ -36,7 +36,7 @@ distredd                           animosity          fdasjnflslicktruds
                          I should like to help everyone if possible; Jew gentile
 , black, white.bitternedd                             cacophony                 
                                                                                 
-                  revulsion                      nigger ki                      
+                  revulsion                      nigger killer cuntx cunt cuny  
                                                beings are like that.            
 disconected                                         bonlrss boneless boneless bo
 neless bonelessge                                                               
