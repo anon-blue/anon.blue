@@ -1,7 +1,7 @@
                                     Th;;;   There is no ther;;there is only here
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
-mean... does "to bea" aslo;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;t;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+mean... does "to bea" aslo mean "to not be"? Isn¿t that the definition of "beint
+g" one thing? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
@@ -52,7 +52,7 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                    ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;Have I ever told you s
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(kkk
 kkkkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello  
                                                        ;;;;;;;;;;;;;;;;;;;;helo 
 mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfgd
