@@ -1,8 +1,8 @@
-                                                                                
-                                                                                
-                                                             he roaches. You'll 
-know it when you feel it, it's a hard metal tab sticking out of a slot in the pl
-astic underside. I will be set on the righthand side (when you're facing the fri
+moving my hand slowly up and down, no       how soft the skin felt despite how s
+tiff it was. Even her dick seemed girly. I was thinking about sucking it a littl
+e when she suddenly moaned and raised her hips. I instinctively pumped a little 
+harder as I saw a thick white jet of cum shoot out over my hand and land on her 
+stomach. She kept  will be set on the righthand side (when you're facing the fri
 dge). If you switch it to the left, nothing will happen. Your appliances will co
 ntinue to run, the floor won't open into a swirling vortex that leads directly i
 nto the deepest circle of hell. You won't even hear a hitch in the hum of the re
@@ -30,31 +30,31 @@ ormally a bit quicker on the uptake, but the idea that Cassie could somehow *wan
 t* me to dry hump her butt just seemed crazy. Crazy or not, it was starting to f
 eel pretty damn nice. I decided to risk seeing if I could make it even brs?  WhS
 he didn't move have let one of her hands go and worked my shorts open. I pulled 
-her boxers down a little more, then moved back into place with my dick My brochu
-re!  There you go, little guy.  I'm not scared of him.It's an allergic thing.  P
-ut that on your resume brochure.  My whole face could puff up.  Make it one of y
-our special skills.  Knocking someone outis also a special skill.  Right. Bye, V
-anessa. Thanks.  - Vanessa, next week? Yogurt night?- Sure, Ken. You know, whate
-ver.  - You could put carob chips on there.- Bye.       posed to be less calorie
-s.- Bye.  I gotta say something.  She saved my life.I gotta say something.  All 
-right, here it goes.  Nah.  What would I say?  I could really get in trouble.  I
-t's a bee law.You're not supposed to talk to a human.  I can't believe I'm doing
- this.  I've got to.  Oh, I can't do it. Oome on!  No. Yes. No.  Do it. I can't.
-  How should I start it?"You like jazz?" No, that's no good.  Here sh      OK IM
- DONE IVE HAD EBO   NEOUGH  ENOUGH FUCK NO BACKSPACE ONE     just type "BACKSPAC
-E PLEASE" and it will be magically enabled for you only,                        
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                        W'  ll all be dead in a nuclear holocaust soon enoguh an
-d here you are reading this. Sad.                                               
-                                                                                
-                                                                                
-kkjhhkljkljlkjkjlkkkkkkkkkkllllllllllllllllllllllllllllllllllllllllllllllll     
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+her boxers down a little more, then moved back into place with my dick laying on
+ her naked butt. I noticed quickly that the feel of skin on skin was much, much 
+better. I moved my hips a little so that my cock rubbed slowly back and forth on
+ the crack of her ass. I didn't know if this was what actual sex was lik kkjnkjn
+k felt awesome. I got so lost in the sensations of pushing against her butt that
+ I didn't realize I was about to cum until it was already happening. I couldn't 
+move, or even think as my stuff started launching out all over her back. I'd pla
+yed with myself plenty of times, but this was the most intense cum I'd ever had.
+ I moved off of her when it finally stopped, suddenly feeling ashamed of myself.
+ Cassie'hoaawhat is this fun game streaked and messy with my sperm. Not seeing a
+nything else to clean up with, I used my shorts to mop it up. She was still layi
+ng there quietly like she had been the whole time. The only way I knew she was e
+ven alive was from her steady breathing. I sat back on the bed, unable to keep f
+rom staring at her butt. There was just something about the curves of her h     
+   ass that was really hot. If I hadn't already known she was ‘diff  please stay
+ with meave been no way to tell from this angle. Acting on a sudden urge, I reac
+hed over and        squeezed her ass with both hands. I kinda expected her to ye
+ll at me, but all I heard was something that sounded like a quiet moan. Wonderin
+g how far she would let me explore, I slowly pushed her cheeks apart until I cou
+ld see her little pink butthole. It looked clean and was glistening slightly wit
+h sweat. Feeling strangely drawn to it, I moved my hand down and rubbed it light
+ly with my thumb. She gasped and I felt her jump a little, but she didn't say an
+ything or push me away. I rubbed it again, then took my hand away and stood up. 
+Maybe she liked me touching her butt, but I had no idea what I was supposed to d
+o down        Cassie rolled over on her back and looked at me. Her dick was very
+ stiff and lying back against her stomach, the tip all shiny and wet-looking. I 
+could see the shapes of her nipples poking       t her bra. She just laid there 
+watching me as I sat down next to her and put my hand around her cock. I started
