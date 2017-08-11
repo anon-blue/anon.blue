@@ -28,7 +28,7 @@
   it was too gross, sorry, i hit the secret clear button.                       
                                                                                 
                                                                                 
-                                                                                
+                             is there such a thing?                             
                                                                                 
                                                                                 
                                                                                 
@@ -51,7 +51,7 @@
                                                                                 
                                                                                 
                                                        i've had a loooong day, i
- ju                                                                             
+ just want to smoke already                                                     
                                                                                 
                                                                                 
                                                                                 
