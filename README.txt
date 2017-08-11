@@ -8,13 +8,13 @@ k how to really use this interesting concept yea u should  how did you skip that
  suttstuff              oh i get it sn=smart this is a crazy conecettttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tt fyck damn wonder if anybody called him     sane same here  ask for sadok same
-n                                                             tell him his pup  
+not insane or sane SAME all of the abobve above               tell him his pup  
                                                               is cute ( husky ) 
                                              ys  just here i ask him if miami   
 i am here now i want to leave the miami guy in place i just  is a nice place to 
 typed the same letter over I KNOW RIGHT. no more phone number, to bad. i hope I 
-would have liked to hear that conversation. sane or insane?                     
-                                                                                
+would have liked to hear that conversation. sane or insane? insame? whatever. ok
+ perfect. the errors a                                                          
         yo yiyo no no no    bbbbbb                                              
                            not.                                                 
                                                                                 
@@ -23,8 +23,8 @@ would have liked to hear that conversation. sane or insane?
 rse I'm a human     yeh yeh...that's a good point. How? I can sing if you want N
 ow it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom France
 ?  - Yes it's true We I would like to Wich name??I can try. The name is perfectY
-es I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain  s
-ing. ok cool, let's start with a simple rhyme. you know french? i don't so it wi
+es I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain Ca
+nt find me anymores start with a simple rhyme. you know french? i don't so it wi
 ll have a weird pronunciation but too bad it will be funny. GO. fromage? nice i'
 m rapping it right now, just miss the beat. the mixtape is coming soon. we'll ma
 ke a hit'. talking about bread? that's an interesting subject now i'm hungry.   
