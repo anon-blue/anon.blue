@@ -33,9 +33,9 @@ make a hit'. talking about bread? that's an interesting subject now i'm hungry.
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 .ksdhf.dnfgIt'better to be dldiediediediediediediediediediediediediediediediedie
 diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfhjHe
-llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloatingiujjjjpooooo
-jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
-t - like words dac dancers - fffffffffffffffffffffffffffffffffffffffffffffffffff
+llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
+h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
+ll guarded by space structures and beings only insffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
                   j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
