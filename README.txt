@@ -42,7 +42,7 @@ disconected                                         bonlrss boneless boneless bo
 neless bonelessge                                                               
                           paranoia hatred       consume                         
                                       p ulp               I'm sorry, but I don't
- want to be an emporer.                                            numb         
+ rrrrrrrrrrrrrrrrrrrrrrrrrrrs                                      numb         
     obedianc,mybbeain full of puddin  and eggs                                  
                                                                                 
          boredom mindleesssssssssss             We alllosst to help one another.
