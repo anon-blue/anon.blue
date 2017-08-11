@@ -9,22 +9,22 @@ and masturbate fuck your friends and masturbate fuck your friends and masturbate
                                                                                 
                                                                i eat shit       
                                                       loss       coheed and camb
-ria i'm b urning star IV good eye snuper                                        
-              overwhelming                                                      
+ria i'm b urning star IV good eye snuper man your battle sstations              
                                                                                 
-      i dont wna to die                                                         
-                              detached                                          
-                                loathing                                        
-         devin's probably an ok guy                                             
-                                        fear                      useless       
-        soul crushing                                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                         the wig                                                
                                                                                 
                                                                                 
                                            hdgdgsajd hfsafkh fkhsfuhsa fhhfa  hf
  hhfkja fjhjhfkaskfashfjr8fsafahsf hkafhahfu fhafa     ahfkahf afaf afa fafafafa
 fafafafafaffafaffafam fjl fjajfi   AFAU iu ui duusdiusyw  dsns gj\gds gisdu gsd 
 dyf7ef fdsiouf d                           o _o                                 
-                                                                                
+                indifferent                                                     
                                                                                 
         empeorororo of what?                              rage     meaningless  
 voices                                             empty                        
@@ -32,7 +32,7 @@ distredd                                              fdasjnflsk4
                                                          tttttt                 
                                                                                 
                                                                                 
-                                                                                
+                       leaky green frye                                         
                          I should like to help everyone if possible; Jew gentile
 , black, white.                                                                 
                                                                                 
@@ -46,12 +46,12 @@ disconected
     obedianc,mybbeain full of puddin  and eggs                                  
                                                                                 
          boredom mindleesssssssssss             We alllosst to help one another.
-                       alone                                     go gooncereject
-ed                                                                              
+                       alone                                     go gooncebefore
+    dbuuyuudb                                                                   
                                                                                 
                  sen                                   death                    
       miss you mom rbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
-                                       numb                                     
+                                       numb               alienated             
                                                     detached                    
                                      ant empreror?d                             
                                                                                 
