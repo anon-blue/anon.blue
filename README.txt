@@ -9,8 +9,8 @@ e groaned and rolled her eyes. "Go to bed, Knob," she said, tugging hm of thrs b
 ack up. "Just remember that I owe you a beating." She grinned evilly and I made 
 a hasty exit before she decided to make good on it. Things                      
                                                                      ddOKAY THEN
-I dind't know this thingS ME : MY LINE  DON'T DISTURB ME I'M BUDYBUSY           
-                                                     i goof all the yime but too
+I dind't know this thing what is ist for ? Oh we cannot erase, great I can't mak
+e any mistake. I gfkljnfls                           i goof all the yime but too
  bad, it's not a problem, we're hoomans why are you wiping the good movie?      
 +++++++++++++++++ i think someone made a bot ++++++++++++                       
                                                                                 
@@ -23,9 +23,9 @@ could make the stairs. I tried to fake her out and jump past
                                                                                 
                                                                                 
                                                                                 
-                                a brat, you're gonna get treated like one," she 
-said, her voice sounding stern though I was sure that she had a huge grin on her
- face. It wasn't really a typical spanking either. She rested her hand on my but
+                                                                                
+                                                                                
+  ace. It wasn't really a typical spanking either. She rested her hand on my but
 t for a little while in between smacks, sometimes even squeezing it a bit. It wa
 s embarrasing and the spanking part hurt, but thazy or nentle stuff felt kinda g
 ood. After a few minutes she suddenly reached underneath me and put her hand on 
