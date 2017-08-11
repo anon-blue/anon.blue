@@ -13,11 +13,11 @@ isolation
             overwhelming                                                        
                                                                                 
     i dont wna to die                                                           
-                                                                                
+                                                poo kinda                       
                               loathing                                          
                                                                                 
                                                                 useless         
-                                                                                
+      soul crushing                                                             
                                                                                 
                                                                                 
                                                                             That
@@ -45,16 +45,16 @@ sconected
 ant to be an emporer.                                                           
                                                                                 
                                                                                 
-                                             We all want to help one another.   
+      bore                                   We all want to help one another.   
                                                                                 
                                                                                 
                                                                                 
               sen                                                               
-           Masterbate more and be nice to people. gSometimes, like, do you ever 
-get this? Like, when              ponies                            buttplugs   
-    I don't want to rule or conquer anyone.p         conquer all of the peoples 
-                                                                                
-                                                                                
+           Masterbate more and be means your food isn't being dike, do you ever 
+get this? Like, when you sometimes to a shit that smells really good. Like? not 
+like poo a tall. It actually smells like something you'd really enjoy eating. Ha
+ha. I mean, I'd never actually eat it, but y'jnow, the thought does cross my min
+d.                                                                              
                                                                                 
                                         afraid                                  
                                                                                 
