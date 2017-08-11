@@ -46,8 +46,8 @@ o youre nhi thereable at all :)
             i Les déconnections sont rapides           ,llllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
-_____________________________Ste   Still alone__________________________________
-________________________________________________________________________________
+_____________________________Ste   Still alone - not just quebec libre _________
+_______________________________________just don't jump__________________________
 _THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
 ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM  
