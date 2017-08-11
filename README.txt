@@ -36,13 +36,13 @@ hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
 at nihi how are you doing tonight friends i dont know waht i am typing but i am 
-tying anyways tittes hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+tying anyways tittes hhhhhhhhhhh That's the sound of the police. Woop, woop, tha
+t's the sound of the beast.hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
  lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
-h                                                                               
+Im gay sp o                                                                     
                                                                                 
                             this is the empty feeling thiI'm te one             
 THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
@@ -50,11 +50,11 @@ THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO
                                                                                 
   hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
-    so                                  The bloody pustules were now swelling to
+    so why not go nanyo                 The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhh                                                                            
-       h                         hhh                                           d
-ddddddddddddunkdfudgy knockers blap                                             
-                                                everybody here is insane i swear
- emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w
+hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhh                                                                             
+      h                         hhh                                           dd
+dddddddddddunkdfudgy knockers blap                                              
+                                               everybody here is insane i swear 
+emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w 
