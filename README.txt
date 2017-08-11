@@ -43,9 +43,9 @@ aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool from france here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                                                 
-            i prefklmmkcm dklsmfdsfkd fkdlfk kf adsjkf s french. what is going o
-n? uh no plea e. i am non guiltty====================================i like the 
-egg sandwich here=======--------------------____________________________________
+            i prefklmmkcm dklsmfdsfkd fkdlfk kf adsjkf ,llllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 ________________________________________________________________________________
 ________________________________________________________________________________
 _THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED _______________________
