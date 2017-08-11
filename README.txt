@@ -24,7 +24,7 @@ bout conspairacy theories. oh yeah, ltell me about it. hitler did dfgdfgdfghuh,
 cool iscuessed that. all the rage. hitler iwas one but elvis, you know the king 
 of pop? his death was another. all these little things. consiraacy theories are 
 pretty much my life now, i like to go home after a long day of work and just rea
-d about conspiracy theories. idon't even take care of my kinds anymore? like how
+d about conspicaccccvvvvvvv'vvvvvvv vvvgghbvcghhbe of my kinds anymore? like how
  sad, HAHAHA JK NO IT'S NOT. I' prefer to read about repetalian , life is good y
 ou know. i love them conspiracy teheories. thank s for listening to me. i like y
 ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
