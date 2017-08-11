@@ -6,8 +6,8 @@
                                          HE's gone now he'll come again and agai
 n, it"s a wave of evil. I think I made this. it's the morning here, i thought i'
 d havT a look at what happened during the night. Yes i saw it live, it's seen ot
-herOOOOOOOVESTIGATE 311!!! INVESTIG shit11it cauNghESme fuuuck get waway from me
-beat off, man who even made this?? some guy just spammed fuck you fuck you fuck 
+her spammers, s it's like humanity, goofd or evil, everything will come down you
+r lane some poetry too, love and hate, craziness and just some du fuck you fuck 
 you fuck you all over the pagelol that's awesomeINVESTIGATE 311 !!! INVESTIGATE 
 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 
 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 !!! INVESTIGATE 311 11 !!! INVESTIGA
