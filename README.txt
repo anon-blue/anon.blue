@@ -38,7 +38,7 @@ h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
 ll guarded by space structures and beings only insde your brian chcmidals       
                                                                                 
                                           I am alone still          HAHA i knew 
-that i was seeing well. uSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
+that i was seeing well. its my speclial skill. EVERYTHING'S RED! SSSSSSSvive le 
 quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
