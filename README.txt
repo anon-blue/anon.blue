@@ -40,11 +40,11 @@ ll guarded by space structures and beings only insde your brian chcmidals
                                           I am alone still          HAHA lkjhkjh
 kjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hras
 tnikain for too long. it may not open again adterwardo. i tested me!? oh i hope 
-the stars are beautiful. of course. never went there. california wseems a nice p
+the stars are beautiful. owahsatawawrwarawrwarwarwarYOU WHATrnia wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                  i'm trapped on this line..  eve
 rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see i
-t green too and when I close my brain - heu - my eyes, it's like a rainbow witho
+t green too and when Itrwvhsrmy brain - heu - my eyes, it's like a rainbow witho
 ut rain. Why that?    Ok. """"""""""3333333#####################################
 #### Ah! I've got it               Still alone - not just quebec libre _________
 _______________________________________just don't jujhhhjjjjjjjj.fuckmeinthrass_
