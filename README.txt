@@ -8,8 +8,8 @@ again. She saw it sticking up as I stood to wipe off my hand and her stomach. Sh
 e groaned and rolled her eyes. "Go to bed, Knob," she said, tugging hm of thrs b
 ack up. "Just remember that I owe you a beating." She grinned evilly and I made 
 a hasty exit before she decided to make good on it. Things                      
-                                                                                
-      ,           THIS IS ME : MY LINE  DON'T DISTURB ME I'M BUDYBUSY           
+                                                                     ddOKAY THEN
+I dind't know this thingS ME : MY LINE  DON'T DISTURB ME I'M BUDYBUSY           
                                                      i goof all the yime but too
  bad, it's not a problem, we're hoomans why are you wiping the good movie?      
 +++++++++++++++++ i think someone made a bot ++++++++++++                       
@@ -19,11 +19,11 @@ r the sink I couldn't resist the urge to snap her with a damp rag. Her ass was j
 ust too tempting a target. The cloth impacted against her butt with a startlingl
 y loud crack, and she yelped and spun around with murder in her eyes. I ran, lau
 ghing like a maniac the whole time. She cornered me in the living room before I 
-could make the stairs. I tried to fake her out and jump past, but she caught me 
-and tackled me down onto the couch. I did my best to escape, but her wet hands g
-ave her an unfair advantage when grabbing my clothes. They also hurt when she pi
-nd kill face down with her knees in my back and started spanking me hard on the 
-butt. "If you're gonna act like a brat, you're gonna get treated like one," she 
+could make the stairs. I tried to fake her out and jump past                    
+                                                                                
+                                                                                
+                                                                                
+                                a brat, you're gonna get treated like one," she 
 said, her voice sounding stern though I was sure that she had a huge grin on her
  face. It wasn't really a typical spanking either. She rested her hand on my but
 t for a little while in between smacks, sometimes even squeezing it a bit. It wa
@@ -42,12 +42,12 @@ he girl next door and I were really good friends. Our parents were both gone for
 ow me e'hoaawI'll show you mine". So anyway theressy wi, 12 years old, heart pou
 nding, blood rushing in my ears, and the chick (who was a year older than me act
 ually) takes off her panties and hikes her little skirtonly wayWhat did I do, yo
-u ask? I whistled for a cab, and when it came near, the license plate said "fres
-h" and there were dice in the mirror. If anything I could say that this cab was 
-rare, but I thought "naw forget it, yo home to bel-air!" I pulled up to the hous
-e about seven or eight and I yelads thithe cabbie "yo homes smell ya later!" Loo
-ked at my kingdom, I was finally there. To settle my throne as the prince of bel
--air. me, but all I heard was something that sounded like a quiet moan. Wonderin
+u ask? I whistled for a cab, anreathing. I sat back on the bed, unable to keep f
+rom staring at her butt. There was just something about the curves of her h     
+   ass that was really hot. If I hadn't already known she was ‘diff  please stay
+ with me stay with me whoever reads this. angle. Acting on a sudden urge, I reac
+hed over and        squeezed her ass with both hands. I kinda expected her to ye
+ll at me, but all I heard was something that sounded like a quiet moan. Wonderin
 g how far she would let me explore, I slowly pushed her cheeks apart until I cou
 ld see her little pink butthole. It looked clean and was glistening slightly wit
 h sweat. Feeling strangely drawn to it, I moved my hand down and rubbed it light
