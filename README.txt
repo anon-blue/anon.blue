@@ -30,8 +30,8 @@ ous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                 fat fst fat                                     
                          this is mine ;ow hahahahahahababababahahahajahahahahaha
 hahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahaha
-hahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○             
-                                                                                
+hahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○○            
+                                                           ♡♡♡♡♡♡               
                                                               who ? who is jesus
  ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
