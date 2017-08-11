@@ -36,7 +36,7 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
 h friends therWHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAATTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTT ?????
-?                                                                               
+?seg                                                                            
                                           I am alone still          HAHA lkjhkjh
 kjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hras
 tnikain for too long. it may not open again adterwardo. i tested me!? oh i hope 
