@@ -2,12 +2,12 @@ owadoi Life would ebe harder for me. Aand I have to ackonolwdege that nut still
                                       hhhhhhh                        This is the
  full feelnig that morning brings                                 hjkdhsnsbhhhhh
                                                                   lel           
-             nigger                                                             
+             nigget                                                             
                                                                                 
-                                                   You just write nan  aCan;t sd
+               sunbutt                             You just write nan  aCan;t sd
 fwfrwerqwrweqrwet354654                                                         
                                                                                 
-     this is the empty feeling that night brings                                
+     tthisistheemptyfeelingthatnightbringsbrings                                
                                                              h                  
                                       hhhhhhhhhh                                
                                                                                 
@@ -16,7 +16,7 @@ fwfrwerqwrweqrwet354654
 ung warthog                                                                     
 This is the empty feeling that night brinhgs aaasdk1423                      hhh
 hhhhhhhhhh   hh   hhhh             hhhhhhh              hh       hhhh           
-                                              This is the full feeling that morn
+                                              This moonhe full feeling that morn
 ing brings                                                                      
                                                                    hhhhhh       
                                                                                 
@@ -24,8 +24,8 @@ ing brings
                                                                                 
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                                                 
-              hhhh          hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hh hhhhhhhhhhhhhhhhhhhhhhhhhhhhThe old man pushed the table.                    
+              hhhh          hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhThe 
+storm blew a table through the old men, he pushed the table.                    
                                                                  This is the ful
 l feeling that morning brings.                                                  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
@@ -48,9 +48,9 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhthis is the empty feeling that night brings hhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh He looked over the edge of th
 e cliff and said to himself "it's just the parasites in you " hhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhS  She looked over the edge and said "ihhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhh    hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhThe bloody pustules were now swelling to
+hhhhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
+are making yu want to jump...just the parasites...really..."                  h 
+                                        The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
