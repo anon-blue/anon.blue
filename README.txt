@@ -19,40 +19,40 @@ I think they do?
 Helloe                                                       lllllllllllllllllll
 lllliiiiiiiiiiiiiollllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllhlello who's out there?              
+lllllllllllllllllllllllllllllllllllllllllllhlello who's out there? ppep vvavagva
+givagivvagivvvagivvivagivvinvagivvinavagivvinavvagivvinavavagivvinavagvagivvinav
+agivagivvinavagimvagivvinavagimavagivvinavagimavvagivvinavagimavavagivvinavagima
+vagvagivvinavagimavagivagivvinavagimavaginvagivvinavagimavagina                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                                  empty                         
+                                                                        d why ar
+e you erasing me hgave you nothing better d to do then erase what I have written
+ who died and made you the it's all good just messing around ;0                 
+                 im sorry. ok good. didn't mean to hurt your feelings.          
+                                                          no                    
+                                                                            jjj 
                                                                                 
                                                                                 
                                                                                 
-                                               empty                            
-                                                                     d why are y
-ou erasing me hgave you nothing better d to                                     
-                                                                                
-                                        8====D~~~~~                             
-                                                       no                       
-                                                                         jjj    
-                                                                                
-                                                                                
-                                                                                
-            ss==oh,man,youcantdelete characters at all...this is i fuck typo...t
-his is hjust going to get filled with racism and memes until more racimsmmswmsms
-msm and meems over fill it like the tides of the ocean                          
-                                    Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+               ss==oh,man,youcantdelete characters at all...this is i fuck typo.
+..this is hjust going to get filled with racism and memes until more racimsmmswm
+smsmsm and meems over fill it like the tides of the ocean                       
+                                       Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                                   
-                    hello?                                                      
-            hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrhybt
-obrobribroooooooowwaitareyoustillthere fda,m                  jnunwhaä oh okay s
-o everything i write is being unwritten. i feel like a natasha beddingfield song
-. I wish i were high man. are you real? am I real??????? what's happenig to me,,
-................................................................................
-..........................................ijiujijijijijijkikik,                 
-                                                                        .       
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                                
+                       hello?                                                   
+               hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrh
+ybtobrobribroooooooowwaitareyoustillthere fda,m                  jnunwhaä oh oka
+y so everything i write is being unwritten. i feel like a natasha beddingfield s
+ong. I wish i were high man. are you real? am I real??????? what's happenig to m
+e,,.............................................................................
+.............................................ijiujijijijijijkikik,              
+                                                                           .    
                                                                                 
                                                                                 
                                                                                 
