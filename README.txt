@@ -37,7 +37,7 @@ tfuckintrustyouii iiiiiiiiiiiiiiiiiiiiii;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we 
 had an argument she sshoved me and i shoved back she came at me with a knifeso i
  trpped tripped* her   she hit her head on the door frame and isn't moving  WHAT
- DO I DO!?                                                                      
+ DO figfvhh                                                                     
                                                                  %%%%%%%;;;;;;;%
 %%%%%%%%%%%%%;;;;%%%%%%%% %%PICKLE RICK%%%%%;;;;;;;;;;;;;;%%%%%% %%%%%%%%%%%%%%%
 %%%%%%;;;;;;;;;;;;;%;;;%%%FT  COQUREASDILDO DILDO BAT IS ROM%%%%%%%%            
