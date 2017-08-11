@@ -51,7 +51,7 @@ eird                                                        YUH TYUH YUH
 dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[ķł
 əřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;;;;
 ;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;                                     
-      pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;this is weirddddddddddddddddddd
+      pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(88
 786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello 
                                                         ;;;;;;;;;;;;;;;;;;;;helo
