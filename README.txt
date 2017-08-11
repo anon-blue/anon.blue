@@ -1,7 +1,7 @@
      A berlin? Oui, le temps y fait beaucoup      Nobody home?          V Can I 
 make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
-l'heurjyuiwasiest. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
+l'heurjyuiwasi st. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
                                                                                 
                                                                                 
@@ -11,10 +11,10 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                      ##    ##  ##  ##    #  ##                                  
                      ####  ######    ###    ######                              
                                                                                 
-                                              It's beautiful your 3"""          
-                                                   LOVE U 2 - LOVE THIS BLUE    
+                                              It's beautiful your 3""" Is this r
+eally you or a robot? Ah, I was so sure about that LOVE U 2 - LOVE THIS BLUE    
             THIS IS RED ()()()() messag  in a bottle that says "WHERE ARE THE TO
-  this is what we asked for people. this is wahat we wanted.                    
+ILETS". it's a robot. I think. ple. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
   Your MOTHER WAS AMAZING                                    thank you for her  
@@ -48,7 +48,7 @@ llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 ________________________________________________________________________________
 ________________________________________________________________________________
-_THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED ___________I'm there, u
+_THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
 ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM  
                                                                                 
