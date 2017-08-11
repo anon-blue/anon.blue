@@ -36,7 +36,7 @@ hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
 at nihi how are you doing tonight friends i dont know waht i am typing but i am 
-tying anyways tittes hhhhhhhhhhh That's the sound of the police. Woop, woop, tha
+tying anyways tittes hhhhhhhhhhh That's the sound oya 420 blaze itoop, woop, tha
 t's the sound of the beast.hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
