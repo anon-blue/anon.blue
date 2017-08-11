@@ -35,7 +35,7 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
  eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
  or otther people ,  tttttt                                                     
                           TRUMP              LOL jk its all trash GO noles      
-                                                                                
+                                                            YUH TYUH YUH        
                                           u ya like jazz                        
                    YUH                             CNN                          
            pepe is raacist                                                      
