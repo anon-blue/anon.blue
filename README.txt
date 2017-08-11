@@ -21,13 +21,13 @@ n the dark dream of whispering woods and broken ambitions
 jetyhetyetyetyets, full moon' can't pay the heating bill, but turning tricks on 
 the corner sure can                                                             
                                 This is the night that brings the dark dreadlock
-rasta                                                                           
+rasta to commune at the altar of Ras Tafari                                     
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                          several penises, erect 
 penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
 storm blew a table through the old men, he pushed the table. Time to suck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
-ny, table that morning brings.                            Silver Bells they ri  
+ny, table that morning6gghhhhjjjjjj                       Silver Bells they ri  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
       hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
@@ -50,11 +50,11 @@ THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO
                                                                                 
   hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
-                                        The bloody pustules were now swelling to
+    so                                  The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhh                                                                            
        h                         hhh                                           d
-ddddddddddddunkd                                                                
+ddddddddddddunkdfudgy knockers blap                                             
                                                 everybody here is insane i swear
  emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w
