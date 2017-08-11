@@ -19,13 +19,13 @@ ILETS". it's a robot. I think. ple. this is wahat we wanted.
 n your welcome i feel lopiayyyyyyyyyylmaooooooois ok t                          
   Your MOTHER WAS  ausedoyoukonw ialove you if id ont want to go with your her  
 rywhere?    i guess so +##äöhobitchesaintshitbuthoesandtricksif anyone is here l
-et me know                       I'mthere. yes I think you know. Of course. Of c
-ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
- Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
-ce?  - Yes it's true We I wogim tripping balls right now. this is pretty cpppooo
+et me know nbush did 9/11 sadly its truth you know, back in my dya we were all a
+bout conspairacy theories. oh yeah, ltell me about it. hitler did nothing wrong?
+we sdiscuessed that. all the rage. hitler iwas one but elvis, you know the king 
+of pop? his death wasWe I wogim tripping balls right now. this is pretty cpppooo
 l lmao i cant type -romage -sage sur un nuyage- errance entre 2 tranche de pain 
 Cant find me anymores start with a simple rhyme. you know french? i don't so it 
-will have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
+wil  have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
 i'm rapping it right now, just miss the beat. the mixtape is coming saaaa we'll 
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
