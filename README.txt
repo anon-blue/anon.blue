@@ -3,9 +3,9 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaydododododpdpdåd�
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødødødødødødøasdfa
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
                          No one knwos... knows... what i've done. no one will ev
-er now... know.hoody hoo  jt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
-bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
-                                                   hello?.......................
+er now... know.hoody hoo  jt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbI eat ass r
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee....................
 ................................................................................
 ........................kkkkkkkHex  Weird - this is kind of interestingk........
 ................................................................................
@@ -32,16 +32,16 @@ messages intensifies        hello am I good enough?
     f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello al hey fags a/s/l? hah
 a me too no cry no cry bickez           eknow thos ; everything zhat you hve eve
 r experinced in your entire oife, has broughz you zo this s exact momentk   ich 
-liebe ,twisz  StrangI am serious please asend help before it is too late for me 
+liebe ,twisz :> uullddrrululdrftabaab start sekect before it is too late for me 
                                                                                 
                                                                                 
      Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag ich
  liebe ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks  
                                                                             isth
-islikjkmmmmmk Hello? I don't thgewwwhatboobsi want to die                suck it
- b;ue screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts th
-eregehdhshshs lovs from sdvd               amialoneinhere                       
-                                                        ??? Meow              hi
+islikjkmmmmmk Hello? I don't thgewwwhatboobsi want to die             rerwegfjbg
+nfvubjngvdfubjndsgdfjgnwefnqbrfwe giwdfuqwefnwqiudwqdoerngiwenfosenr mwhy can't 
+my friend use this? i is frum woahdude     amialoneinhere                       
+                                                        ?? this is the end ???hi
  whats koing on?           hello woah dude.iad              .l.                 
               get kong make her scared of it   12323456                         
     hhhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyo
