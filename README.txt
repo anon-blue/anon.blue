@@ -11,8 +11,8 @@ gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whered oes
  this end is there any sihtg to be maed of he beings? ;;;;;;;;;;bingo;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hello? is it me your looking for?
+i can;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
    ij klllllllllllllllllllllllj                                       ..........
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
@@ -42,19 +42,19 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                 WTF was just typed  You                                         
                                      are                                        
                                  impermanent                                    
+                                                         v v                    
+         Who eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee?             
+                                      arr t                                     
                                                                                 
-        Who eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee?              
-                                     arr t                                      
-                                                                                
-                                xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;;
+                                 xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                          
-     pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(887
-86()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello  
-                                                       ;;;;;;;;;;;;;;;;;;;;helo 
-mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfgd
-fg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3       
-                               penis                                            
+;;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                         
+      pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;a;;;;;;;;;kdddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(88
+786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello 
+                                                        ;;;;;;;;;;;;;;;;;;;;helo
+ mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfg
+dfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3      
+                                penis                                           
