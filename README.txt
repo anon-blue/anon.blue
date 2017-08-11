@@ -31,7 +31,7 @@ e fucked;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;HELLO HUMANS;;;;;;;iiiiii
 i;;;;;;;;;;;what is this                                                        
                 nbmy      my name is ronald    there is no god                  
-tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion ;;;;;;;;;;;;;;;;;;;;;;;;            
+tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything;;;;;;;;;;;;;;            
                                                                                 
              ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we 
@@ -57,4 +57,4 @@ kkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello
                                                      ;;;;;;;;;;;;;;;;;;;;helo mo
 thafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                  
                             ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;         
-                                                                                
+                             penis                                              
