@@ -44,17 +44,17 @@ EL BEEMS if tommy has tliberalizmhilaryclintonhates americal CANT MELT STEEL BEE
 MASSOJZNENIANS                                                         hhhh     
 Im gay sp o                                                              lol[   
                                                                                 
-                            this is the empty uphuntwhat                        
-THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
-                                                         dddddd                 
-                                                                  fff fff fff ff
-f fff fff fff fffhe looked over the edge and said "it's just the parasites that 
-are making yu want to jump...just the parasites...really..."                  h 
-    so why not go nanyo              mayonnaiseody pustules were now sweldnigger
-sliberalismisa sickness ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now                  
-      life is pretty good atm            whaa?                                  
-      h                         hhh                                           dd
-dddddddddddunkdfudgy knockers blap                                              
- fggv                                          everybody here is insane i swear 
-emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w 
+                            this is the empty uphuntwhat           when itgoes Y
+ouknow theghhybcchuhhgguidebookgunkNG SOMETHING TO LOOK FORWARD OTO             
+                                                          dddddd                
+                                                                   fff fff fff f
+ff fff fff fff fffhe looked over the edge and said "it's just the parasites that
+ are making yu want to jump...just the parasites...really..."                  h
+     so why not go nanyo              mayonnaiseody pustules were now sweldnigge
+rsliberalismisa sickness ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now                 
+       life is pretty good atm            whaa?                                 
+       h                         hhh                                           d
+ddddddddddddunkdfudgy knockers blap                                             
+  fggv                                          everybody here is insane i swear
+ emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w
