@@ -28,9 +28,9 @@ isperer because he was the first of 5 different damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                                                                 
                                  fat fst fat                                    
-               voces precisam tomar rivotrilahahahahahababababahahahajahahahahah
-ahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahahah
-ahahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○○           
+               voces precisam tomar rivefsdfosdjfodnanana                       
+                                                                                
+                       hahahahahellhahahahahahahahah fatty hehe <3 ○○           
                                                             ♡♡♡♡♡♡              
                                                                who ? who is jesu
 s ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are
