@@ -1,8 +1,8 @@
      A berlin? Oui, le temps y faiasdf     no i'm typing here mang      you can 
 do you     there was a little boy   bonsjours a tours et a toutes, zugourd'hue a
    sleep to make dreams? fate jour, maizec'est en tres grande partie a cause de 
-l'heurjyuiwasi st. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
-i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
+l'heurjyuiwast si. Eneffet, vers minuit, il devrait fairy nut.  Le temps reel qu
+i passe, pour etre exact. ASPTT. ASPTT. ASPTT.                                  
                                                                                 
                                                                                 
                      ##    ######  ##   ##  ######                              
