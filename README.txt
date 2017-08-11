@@ -19,7 +19,7 @@ s bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhjbsdvbsdbs
 dlvbsVSdbcsdvs                                                                  
                                                                                 
                                                                                 
-     dddddddddrghedddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+     dddddddddrghelp me help me help me help me help me help me help meddddddddd
 dddddddddddddddddddddddddddddddddddddddddd  ddxdeabdyfffffffffffffffffdfdfdfdfdf
 dfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
@@ -50,7 +50,7 @@ EE
  d b  8====D - - ~@ ME                                                          
              VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
 CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJIO
-ETJRTEWIGTOKWROGTIOJWGHJIJIEJWOAISHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KGFN
+ETJRTEWIGTOKWhrlloOJWGHJIJIEJWOAISHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KGFN
 DN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK;K
 LMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;DFG
 KMCMSNSMNMwhoever did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO T
