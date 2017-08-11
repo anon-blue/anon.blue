@@ -27,7 +27,7 @@ Yes I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain
 sing. ok cool, let's start with a simple rhyme. you know french? i don't so it w
 ill have a weird pronunciation but too bad it will be funny. GO. fromage? nice i
 'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll m
-ake a hit'.                                                                     
+ake a hit'. talking about bread? that's an interesting subject now i'm          
                                is there such a thing?                           
                                                                                 
                                                                                 
