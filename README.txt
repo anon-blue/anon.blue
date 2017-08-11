@@ -11,7 +11,7 @@ good my niggerb XD                                                        HERE
 desperateand depresedck!? lolefw                                                
      ballfungus is a nasty affliction        doot d                   SNUS      
                                                                               sh
-ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
+ablagooodoohow does thsi go niooanythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovsseeerreereeerrrrewwwww3 I
  DONT LOVE YOU ANYMORE Rain drop drop top llllllllllllkjilIl byron from napier  
     §♀☺§§§☺ interestincoolieb:)dfiiibgfjjjgfhbuhggbjbbhhgyuooooooooooooooooooooo
@@ -19,13 +19,13 @@ oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq
                                                                                 
                                                                                 
 huk,hyki                                                          uohdIck       
-         mmmhellochowefeqfeqeqfeqkfofkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkddkd
+         mmmhellochowefeqfeqeqf]]]]\fkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkddkd
 kkdplease sucyka blyat                 INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                cool beans 
-bro                                           This an opportu ity to say anythin
+bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
-j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggersguck igge
-rsfuckniggersbfuckniggersfucmniggersguvk iggerscum stain donkey cum stain donkey
+j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
+n is werid Once there was a man named kenneth mckracken  donkey cum stain donkey
  eveI     want    to huh? What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
@@ -39,7 +39,7 @@ Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!
                 riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
 jkmmmmmk Hello? I don't thget how this works ummmmm                 suck it b;ue
- screen...   im bored...    kkkk just bexaje you feel it dosenr mean uts therege
+ screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
 s koing on?           hello woah dude.iad              .l.                      
@@ -49,7 +49,7 @@ a be kiddin me ssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
 ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
-hyhyhyhyhyhyhhyhyh*touches duirt* something terrible happerned herehyhyhyhyhyhyh
+hyhyhTOUCH MEV TILL I CAN GET MY* something terrible happerned herehyhyhyhyhyhyh
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
