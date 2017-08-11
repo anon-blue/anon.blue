@@ -1,11 +1,11 @@
                    fuck you     en                                 ds and mastrb
     fuck                                                               hi       
-                        hi    our f                                             
+                        hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
-k about sex and mastermabate fuck your friends and masturbate fuck your friends 
+k about sex and mastermabation     our friends and masturbate fuck your friends 
 and masturbate fuck your friends and masturbate fuck your friends and masturbate
  dddddddddddddddddddddd             ponies                                      
-                                                                                
+                                                      : ()p-0-=                 
                                                                                 
                                                                i eat shit       
                                                       loss                      
@@ -28,7 +28,7 @@ dyf7ef fdsiouf d                           o _o
                                                                                 
         empeorororo of what?                              rage     meaningless  
 voices                                             empty                        
-                                                                                
+                                                      fdasjnflsk                
                                                          tttttt                 
                                                                                 
                                                                                 
@@ -36,12 +36,12 @@ voices                                             empty
                          I should like to help everyone if possible; Jew gentile
 , black, white.                                                                 
                                                                                 
-                                                                                
+                  revulsion                                                     
                                          Human beings are like that.            
 disconected                                                                     
              rage                                                               
                           paranoia hatred                                       
-                                                          I'm sorry, but I don't
+                                      p ulp               I'm sorry, but I don't
  want to be an emporer.                                                         
     obediance                                                                   
                                                                                 
