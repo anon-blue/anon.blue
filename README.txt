@@ -19,8 +19,8 @@ is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhjbsdvbsdb
 sdlvbsVSdbcsdvs                                                                 
                                                                                 
                                                                                 
-      dddddddddrghelp me help me help me help me help me help me help medddddddd
-ddddddddddddddddddddddddddddddddddddddddddd  ddxdeabdyfffffffffffffffffdfdfdfdfd
+      dddddddddrghelp me help me help me help me help me help me help msend nude
+s ddddddddddddddddddddddddddddddddddddddddd  ddxdeabdyfffffffffffffffffdfdfdfdfd
 fdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
@@ -47,7 +47,7 @@ le                                                    blub is blub    g
                   &                                             True that       
                                                                CUNTY CUNTS      
   Nn                                                                    givepurp
-le                              this is why we cant have nive things....da      
+le                              this is why we cant have nive things....dammit  
                VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
 CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
