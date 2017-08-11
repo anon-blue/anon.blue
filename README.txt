@@ -4,21 +4,17 @@
                                                                                 
                                                                                 
                                                                                 
+                                  ponies                                        
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+            overwhelming                                                        
                                                                                 
     i dont wna to die                                                           
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                          ponies
-                                                                                
+                              loathing                                          
                                                                                 
                                                                                 
                                                                                 
@@ -28,7 +24,11 @@
                                                                                 
                                                                                 
                                                                                 
-                      penis                                                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -49,7 +49,7 @@
                                                                                 
                                                                                 
                                                                                 
-              sen                        lonliness                              
+              sen                                                               
                                                                                 
                                  ponies                                         
                                                                                 
