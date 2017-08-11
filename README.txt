@@ -1,7 +1,7 @@
      A berlin? Oui, le temps y fait beaucoup      Nobody home?          V Can I 
 make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
-l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
+l'heurjyuiwasiest. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
                                                                                 
                                                                                 
@@ -9,11 +9,11 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                       #    ##  "#  ##   ##   #                                  
                      ##    ##  ##  ##   ##  ####                                
                      ##    ##  ##  ##    #  ##                                  
-                     ####  ######    ##bout a miami guy for the record.pace for 
-you        as conceived in 60003432 by portuguese printing press operator dsjklf
-djsfsWhat is ASPTT? I prefer **************   It's beautiful your               
+                     ####  ######    ###    ######                              
+                                                                                
+                                              It's beautiful your 3"""          
                                                    LOVE U 2 - LOVE THIS BLUE    
-            THIS IS RED                                                         
+            THIS IS RED ()()()() messag  in a bottle that says "WHERE ARE THE TO
   this is what we asked for people. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
