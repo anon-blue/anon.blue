@@ -26,8 +26,8 @@ e?  - Yes it's true We I would like to Wich name??I can try. The name is perfect
 Yes I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain  
 sing. ok cool, let's start with a simple rhyme. you know french? i don't so it w
 ill have a weird pronunciation but too bad it will be funny. GO. fromage? nice i
-'m rapping it right now, just miss the beat.                                    
-                                                                                
+'m rapping it right now, just miss the beat. the mixtape is coming soon. we'll m
+ake a hit'.                                                                     
                                is there such a thing?                           
                                                                                 
                                                                                 
