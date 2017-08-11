@@ -25,36 +25,36 @@ ck")*;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hy hugsfds jf ;;;;;;;;;;;;;;;;;;;
 an that thought he knew them all. A n average looking guy with a tendency oto sm
 oke weed and an above average knowledge;in music. They called him the virgin whi
 sperer because he was the first of 5 different damsels. Had sex in public numore
-ous times and, idk where im going with this. im too hiiiiigh loffnsnjfob chillin
-g chilling. You all should suppot this artist collective called nowigo.elves dam
-n fat fat fat fa;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                              is th
-e anyonerooty k foot ronaldy name is ronald    there is no god                  
-tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything                          
- eve you,andevegrubbing youand you and erything aromdnfjesus who ? who is jesus 
-? the back space is back in space!               woot who is nowigo? butts are a
-lrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is w
-eird                   i  iike noise and bumps but i agree   YUH TYUH YUH  9    
-                                          uuyyaalikejjazzzzzzzzzzzzzzzz         
-                    YUH LIEK JAZZ                666CNN666                      
-            POPE IS MEH                                                         
-                 WTF was just typed  You                                        
-                                      are                                       
-                                  impermanent                                   
-                                                          v vwoah dudeks'd;lfk;l
-k';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?            
-                                       arr t                                    
-                 great green gobs                                               
-                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a
-sdfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[ķ
-łəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;;;
-;;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;            hhjhhh                  
-       pooppingin my a sssssssss;;;;;; why nuts ;;this is weirdddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(8
-8786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello
-                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;hel
-o mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsf
-gdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3     
-                                 penis                                          
+ous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois 
+                                                                                
+                                fat fst fat                                     
+                         this is mine ;ow ha                                    
+                                                                                
+                                                                                
+                                                                                
+                                                              who ? who is jesus
+ ? the back space is back in space!               woot who is nowigo? butts are 
+alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
+weird                   i  iike noise and bumps but i agree   YUH TYUH YUH  9   
+                                           uuyyaalikejjazzzzzzzzzzzzzzzz        
+                     YUH LIEK JAZZ                666CNN666                     
+             POPE IS MEH                                                        
+                  WTF was just typed  You                                       
+                                       are                                      
+                                   impermanent                                  
+                                                           v vwoah dudeks'd;lfk;
+lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?           
+                                        arr t                                   
+                  great green gobs                                              
+                                   xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+asdfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[
+ķłəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;;
+;;;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;            hhjhhh                 
+        pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
+88786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhell
+o                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
+lo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghs
+fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3    
+                                  penis                                         
