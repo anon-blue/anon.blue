@@ -25,7 +25,7 @@ ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
 ce?  - Yes it's true We I would like to Wich name??I can try. The name is perfec
 tYes I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain 
 Cant find me anymores start with a simple rhyme. you know french? i don't so it 
-will have a weird pronunciation but too bad it will be funny. GO. fromage? nice 
+will have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
 i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll 
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
