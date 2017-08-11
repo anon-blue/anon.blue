@@ -7,54 +7,54 @@ kek
 lo what us going onvffshvdf                                                     
                                                                                 
                                                                                 
-                      hello whos there>?   hjkufkukfdukf  oh i see i cant change
- line unless i speak all the ywwa way* lol, sorry im a  it high. I ve just won a
- game of herarthstonbe yay me :D 3------>````````  yay drugs sent me here       
+                     hello whos there>?   hjkufkukfdukf  oh i see i cant change 
+line unless i speak all the ywwa way* lol, sorry im a  it high. I ve just won a 
+game of herarthstonbe yay me :D 3------>````````  yay drugs sent me here        
                                                                                 
-          what are people doing on here? odoDO people usdee this in the way that
- I think they do?                                                               
-                        g                                                       
-                                                                                
-                                                                                
-                                                                   koool aid isn
-'t so bad                                                                       
-                                                                                
-                                                            aww. well time to di
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
-                                                                                
- fuck you man why i am ev                                                       
+         what are people doing on here? odoDO people usdee this in the way that 
+I think they do?                                                                
+                       g                                                        
                                                                                 
                                                                                 
-                         wt          f help meeeeeeeeeehelphelphelphelp         
-                                        66  96969696969696969696969696969696    
- 969696  969696969696969696969696969696969696969696969696969                    
+                                                                  koool aid isn'
+t so bad                                                                        
                                                                                 
-              well why not it sounds like a fin timefunnnn     vdsight idk what 
-im really doing lil : nobody does:                                              
+                                                           aww. well time to die
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                    
                                                                                 
-    ...                               8====D~~~~~                               
-                                                     no                         
-                                                                       jjj      
+fuck you man why i am ev                                                        
                                                                                 
                                                                                 
+                        wt          f help meeeeeeeeeehelphelphelphelp          
+                                       66  96969696969696969696969696969696     
+969696  969696969696969696969696969696969696969696969696969                     
                                                                                 
-                                    x   ddk\ddddddddddkikldddddddddddd          
-              d       a q p                                                     
-                 k kkw    w   a q p                                             
-                                  Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+             well why not it sounds like a fin timefunnnn     vdsight idk what i
+m really doing lil : nobody does:                                               
+                                                                                
+   ...                               8====D~~~~~                                
+                                                    no                          
+                                                                      jjj       
+                                                                                
+                                                                                
+                                                                                
+                                   x   ddk\ddddddddddkikldddddddddddd           
+             d       a q p                                                      
+                k kkw    w   a q p                                              
+                                 Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaa                                                     
+aaaaaaaaaaaaaaaaaaaaaaaaaa                                                      
                                                                                 
                                                                                 
-                                                           jiooü+mälökmlömlmlömk
-lmlkmölmlmölömmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmm   mmmmmmmmmmmmmmmmmmmmmmmmmm  mmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmhhhhfffffffffflmfao hows it going ghhhhhhhhhhhhhhhhhhhhhooooooo
-ooooooooooooooooooooooooooooooooooooooook,,,,,,,,,,,,,,,,,,,,,,,,...............
-.............................................................................nec
-k....................................................... sawns send jerhelpsendh
-elps sos send help                           loolokkkkik                        
+                                                          jiooü+mälökmlömlmlömkl
+mlkmölmlmölömmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmm   mmmmmmmmmmmmmmmmmmmmmmmmmm  mmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmhhhhfffffffffflmfao hows it going ghhhhhhhhhhhhhhhhhhhhhoooooooo
+oooooooooooooooooooooooooooooooooooooook,,,,,,,,,,,,,,,,,,,,,,,,................
+............................................................................neck
+....................................................... sawns send jerhelpsendhe
+lps sos send help                           loolokkkkik                         
                                                                                 
                                                                                 
-                                           no  Yougetout you first              
+                                          no  Yougetout you first               
