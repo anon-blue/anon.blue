@@ -1,29 +1,29 @@
-   jou just f         florentina florentina, florentina de jesus. nao sei se tu 
-me amas ou sepq tu me seduz?;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
-mean... does "to bea" aslo mean "to not be"? Isn¿t tfffffwefinsfinsdfinsdfindfif
-sdfn       g? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;dd;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggok ok ok my name is e
-lephant gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjggggggggggggggggg this
- is a letter to mu future self, hope yit will reach me ggggggggggggggggggggggggg
-gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
-asdasdasdasdasdasdadadadadadadafuckfuck fucfuck   @@@@@@@@@@@@whythothisiscrazy 
-i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
-i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
-o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
-   ij klllllllllllllllllllllllj really?you think so? it's me down here, your dou
-ble soul i recognize your typing style hwho are you? im not crazy????;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;UUYUYUIYIHIIOIIUUUUUUUIIYYIUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUDo dUuUgsGood thinkg;alskdjf;a
-lksjdfI oncve succed a penis that belonged to my self jffffffffffffffffffff;asld
-fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
-kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
+e you the fuck out with precision the likes of which has never been seen before 
+on this Earth, mark my fucking words. You think you can get away with saying tha
+t shit to me over the Internet? Think again, fucker. As we speak I am contacting
+ my secret network of spies across the USA and your IP is being;;;;;;; right now
+ so you better prepare for the storm, maggot. The storm that wipes out the pathe
+tic little thing you call your life. You’re fucking dead, kid. I can be anywhere
+, anytime, and I can kill you in over seven hundred ways, and that’s just with m
+y bare hands. Not only am I extensively trained in unarmed combat, but I have ac
+cess to the entire arsenal of the United States Marine Corps and I will use it t
+o its full extent to wipe your miserable ass off the face of the continent, you 
+little shit. If only you could have known what unholy retribution your little “c
+lever” comment was about to bring down upon you, maybe you would have held your 
+fucking tongue. But you couldn’t, you didn’t, and now you’re paying the price, y
+ou goddamn idiot. I will shit fury all over you and you will drown in it. You’re
+ fucking dead, kiddo. fuck did you just fucking say about me, you little bitch? 
+I’ll have you know I graduated top of my class in the Navy Seals, and I’ve been 
+involved in numerous secret raids on Al-Quaeda, and I have over 300 confirmed ki
+lls. I am trained in gorilla warfare and I’m the top sniper in the entire US arm
+ed forces. You are nothing to me but just another target. I will wipe you the fu
+ck out with precision the likes of which has never been seen before on this Eart
+h, mark my fuckiUUUUUUUU. You think you can get away with saying that shit to me
+ over the Internet? Think again, fucker. As we speak I am contacting my secret n
+etwork of spies across the USA and your IP is being traced right now so you bett
+er prepare for the storm, maggot. The storm that wipes out the pathetic little t
+hing you call your life. You’re fucking dead, kid. I can be anywhere, anytime, a
+nd I can kill you in over seven hundred ways, and that’s juslasdjflak;jsldjfkalk
 sjdfI have thoughts of fucking my owbn bodyrent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                  (what comment?)trained in unarmed combat, but I
@@ -57,4 +57,4 @@ ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
 o   i can see you in your room             jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
 lo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghs
 fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3 bod
-ies die                           penis                                         
+ies die                           peni to me but just another target. I will wip
