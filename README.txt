@@ -14,17 +14,17 @@ asdasdasdasdasdasdadadadadadadafuckfuckfuckfuck   @@@@@@@@@@@@whythothisiscrazy
 i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
 o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
-   ij klllllllllllllllllllllllj        you think so? it's me down here, your dou
+   ij klllllllllllllllllllllllj really?you think so? it's me down here, your dou
 ble soul i recognize your typing style hwho are you? im not crazy????;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;UUYUYUIYIHIIOIIUUUUUUUIIYYIUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUDo dUuUgsGood thinkg;alskdjf;a
-lksjdfI UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUe tell you the sottory of thUU
-Uan that thought he knew them all. A n average looking guy with a tendency oto s
-moke weed and an above average knowledge;in music. They called him the virgin wh
-isperer because he was the first of 5 different damsels. Had sex in public numor
+lksjdfI oncve succed a penis that belonged to my self jffffffffffffffffffff;asld
+fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
+kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
+sjdfI have thoughts of fucking my owbn boderent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                                                                 
                                  fat fst fat                                    
@@ -35,11 +35,11 @@ eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                                               who ? who is jesus
  ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
-weifuck shitsksisisskkksissisisiissiwiwiwiwiwiiiiate                            
-   i a   i hare my life                    uuyyaalikejjazzzzzzzzzzzzzzzz        
-                     YUH LIEK JAZZ                666CNN666                     
+weifuck shitsksisisskkksissisisiisgjgxgjgddhkkfewrumncethkijbfedvnkiyfedvbjkuygh
+m,nvxaqsvjihfcvnjhfddcvhjuyredvbnjiuyyjjnvd//:;)$865)'mingfswecbnjugfcbnhfffbbnn
+jhgfr()7(::( !876?€# YUH LIEK JAZZ                666CNN666                     
              POPE IS MEH                                                        
-                  WTF was just typed  You                                       
+                  WTF was jusno np no no this n                                 
                                        are                                      
                                    impermanent                                  
                                                            v vwoah dudeks'd;lfk;
