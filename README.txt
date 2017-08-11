@@ -35,10 +35,10 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
  eve you,andevegrubbing youand you and erything aromdnfjesus who ? who is jesus 
 ? the back space is back in space!               woot who is nowigo? butts are a
 lrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is w
-eird                   i  iike noise                         YUH TYUH YUH  9    
+eird                   i  iike noise and bumps but i agree   YUH TYUH YUH  9    
                                           uuyyaalikejjazzzzzzzzzzzzzzzz         
                     YUH LIEK JAZZ                666CNN666                      
-            POPE IS Maacist                                                     
+            POPE IS MEH                                                         
                  WTF was just typed  You                                        
                                       are                                       
                                   impermanent                                   
