@@ -20,8 +20,8 @@ oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq
                                                                                 
 huk,hyki                                                          uohdIck       
          mmmhellochowefeqfeqeqf]]]]\the consioucness encompassed all of what had
- been a univesresblyat                 INJE TING THE BOIH this is tI am bill. if
- youggggggggggggggggggggggggggggggggg                                cool beans 
+ been a univesresND brooded over what was now chaos step by step it must be done
+ and i said let there be light gggggg                                cool beans 
 bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
@@ -49,7 +49,7 @@ a be kiddin me ssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
 ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhihihihyhyhhyhyhykn
-gguuten tAg guten tag gutan tag huten tag guten tag fuckYOU ;) herehyhyhyhyhyhyh
+gguuten tAg guten tag gutan tag huten tag guten tag fuckYOU ;)FUCK YOU TOO BITCH
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
