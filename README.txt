@@ -28,9 +28,9 @@ ggggggggggggggggg;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;HELLO HUMANS;;;;;;;iiiiii
-i;;;;;;;;;;;what is this                                                        
-                nbmy      my name is ronald    there is no god                  
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
+UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                                   
+           fuck foot ronaldy name is ronald    there is no god                  
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
  or otther people ,  tttttt                                                     
@@ -38,8 +38,8 @@ tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything
                                                                                 
                                           u ya like jazz                        
                    YUH                             CNN                          
-           pepe is ra                                                           
-                                    You                                         
+           pepe is raacist                                                      
+                WTF was just typed  You                                         
                                      are                                        
                                  impermanent                                    
                                                                                 
