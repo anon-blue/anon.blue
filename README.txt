@@ -8,7 +8,7 @@ and masturbate fuck your emptyds and masturbate fuck your friends and masturbate
                                                       : ()p-0-=                 
                                                                                 
                      frrrdfr                                   i eat shit       
-                                                      loss       coheed and camb
+                                          lethargy    loss       coheed and camb
 ria i'm b urning star IV good eye snuper man your battle sstations              
                                                                                 
                                                                                 
@@ -17,7 +17,7 @@ ria i'm b urning star IV good eye snuper man your battle sstations
                                                          revulsion              
                                                                                 
 enmity                                                                          
-                         the wig                                                
+                         the wig                           contempt             
                                                                                 
                                                                                 
                                            hdgdgsajd hfsafkh fkhsfuhsa fhhfa  hf
@@ -38,14 +38,14 @@ distredd                           animosity          fdasjnflslicktruds
                                                                                 
                   revulsion                      nigger killer cuntx cunt cuny  
                                                beings are like that.            
-disconected                                         bonlrss boneless boneless bo
-neless bonelessge                                                               
-                          paranoia hatred       consume                         
-                                      p ulp               I'm sorry, but I don't
- rrrrrrrrrrrrrrrrrrrrrrrrrrrs                                      numb         
-    obedianc,mybbeain full of puddin  and eggs                                  
-                                                                                
-         boredom mindleesssssssssss             We alllosst to help one another.
+disconected      [poiuhghhhhhhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhessghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhobedhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh             We alllosst to help one another.
                        alone                       straya        go gooncebefore
     dbuuyuudb       nuijuuuju   stoned expressions of nothing                   
                                                                                 
