@@ -8,7 +8,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                   now i feel empty.                            
                                                                                 
                                                                                 
                                                                                 
@@ -50,8 +50,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                       i've had a loooong day, i
+ ju                                                                             
                                                                                 
                                                                                 
                                                                                 
