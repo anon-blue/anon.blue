@@ -38,9 +38,9 @@ bleisimpeachmentisimpermanent take notwhatihavegiventoy
                                    You                                          
                                     are                                         
                                   doomed                                        
-                                                                  %%%%%%%;;;;;;;
-%%%%%%%%%%%%%%;;;;%%%%%%%% penxilvester!!! %%;;;;;;;;;;;;;;%%%%%% %%%%%%%%%%%%%%
-%%%%%%%;; jjhjjj    i miss you.   UREASDILDO DILDO BAT IS ROM%%%%%%%%           
+                                                                                
+                                    You                                         
+                                     are                                        
                                   %%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
 %% %%5;ifanyoneeverknew;;;;;;fhgfhfghe is no  njustice. There is;;;;;;;;;;;;;;;;
 ; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                                          
