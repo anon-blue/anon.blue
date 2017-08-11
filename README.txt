@@ -34,8 +34,8 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
 .ksdhf.dnfgIt'better to be dldiediediediediediediediediediediediediediediediedie
 diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
 jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
-jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldkfjgldfk <-- so true       
-               fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
+t - like word  fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
                   j j yourself it happens you know . it will get better   nonono
