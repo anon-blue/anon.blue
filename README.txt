@@ -44,7 +44,7 @@ tly presented party presents play people's preferences proportionatelyy
                                                                                 
                                                                                 
                                                                                 
-                                                                 v              
+                 &                                               v              
                                                               CUNTY CUNTS       
  Nn                                                                             
  d b  8====D - - ~@ ME                                                          
