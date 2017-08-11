@@ -10,7 +10,7 @@ gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjggggggggggggggggg this
  is a letter to mu future self, hope yit will reach me ggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
-asdasdasdasdasdasdadadadadadadafuckfuckfuckfuck   @@@@@@@@@@@@whythothisiscrazy 
+asdasdasdasdasdasdadadadadadadafuckfuck uckfuck   @@@@@@@@@@@@whythothisiscrazy 
 i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
 o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
@@ -26,14 +26,14 @@ fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
 kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
 sjdfI have thoughts of fucking my owbn bodyrent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
-                                         sively trained in unarmed combat, but I
+                                 (what comment? trained in unarmed combat, but I
  have access to the entire arsenal of the United States Marine Corps and I will 
 use it to its full extent to wipe your miserable ass off the face of the contine
 nt, you little shit. If only you could have known what unholy retribution your l
 ittle “clever” comment was about to bring downfghdfhffu, maybe you would have he
 ld your fucking tongue. But you couldn’t, you didn’t, and now you’re paying the 
 p       ou goddamn idiot. I will shit fury all over you and you will drown in it
-. You’re fucking dead, kiddo.Wckintacting my secret networkis nowigo? butts are 
+. You’re fucking dead, kiddo.Whkintacting my secret networkis nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
 weifuck shitsksisisskkksissisisiisgjgxgjgddhkkfewrumncethkijbfedvnkiyfedvbjkuygh
 m,nvxaqsvjihfcvnjhfddcvhjuyredvbnjiuyyjjnvd//:;)$865)'mingfswecbnjugfcbnhfffbbnn
