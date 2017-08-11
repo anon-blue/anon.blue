@@ -13,7 +13,7 @@ kek
                                                                                 
           what are people doing on here? odoDO people usdee this in the way that
  I think they do?                                                               
-                                                                                
+                        g                                                       
                                                                                 
                                                                                 
                                                                    koool aid isn
@@ -38,7 +38,7 @@ im really doing lil : nobody does:
                                                                                 
                                                                                 
                                                                                 
-                                    x   ddk\dddddddddddddddddddddddddd          
+                                    x   ddk\ddddddddddkikldddddddddddd          
               d       a q p                                                     
                  k kkw    w   a q p                                             
                                   Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
@@ -50,11 +50,11 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                            jiooü+mälökmlömlmlömk
 lmlkmölmlmölömmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmm   mmmmmmmmmmmmmmmmmmmmmmmmmm  mmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmssmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmhhhhfffffffffflmfao hows it going ghhhhhhhhhhhhhhhhhhhhhooooooo
+oooooooooooooooooooooooooooooooooooooooommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm                                
-                                                                                
+                                             lool                               
                                                                                 
                                                                                 
                                            no  Yougetout you first              
