@@ -1,4 +1,4 @@
-                      florentina florentina, florentina de jesus. nao sei se tu 
+   jou just f         florentina florentina, florentina de jesus. nao sei se tu 
 me amas ou sepq tu me seduz?;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
 mean... does "to bea" aslo mean "to not be"? Isn¿t tfffffwefinsfinsdfinsdfindfif
 sdfn       g? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
@@ -10,7 +10,7 @@ gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjggggggggggggggggg this
  is a letter to mu future self, hope yit will reach me ggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
-asdasdasdasdasdasdadadadadadadafuckfuck uckfuck   @@@@@@@@@@@@whythothisiscrazy 
+asdasdasdasdasdasdadadadadadadafuckfuck fucfuck   @@@@@@@@@@@@whythothisiscrazy 
 i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
 o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
@@ -26,7 +26,7 @@ fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
 kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
 sjdfI have thoughts of fucking my owbn bodyrent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
-                                 (what comment? trained in unarmed combat, but I
+                                 (what comment?)trained in unarmed combat, but I
  have access to the entire arsenal of the United States Marine Corps and I will 
 use it to its full extent to wipe your miserable ass off the face of the contine
 nt, you little shit. If only you could have known what unholy retribution your l
@@ -44,7 +44,7 @@ e a nuisance                           are
                                    impermanent                                  
                                                            v vwoah dudeks'd;lfk;
 lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?           
-                                        arr t                                   
+             gdfgsince when do i have to poop                                   
                   great green gobs                                              
                                    xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;bush ddi dwtf is;whr
