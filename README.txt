@@ -7,14 +7,14 @@ and masturbate fuck your emptyds and masturbate fuck your friends and masturbate
  fuck your dddddddddddd             ponies                                      
                                                       : ()p-0-=                 
                                                                                 
-                                                               i eat shit       
+                     frrrdfr                                   i eat shit       
                                                       loss       coheed and camb
 ria i'm b urning star IV good eye snuper man your battle sstations              
                                                                                 
                                                                                 
             ttttttttttssaddwefzwrgc fuck the police 911 is aj outside job       
                                   yo                                            
-                                                                                
+                                                         revulsion              
                                                                                 
                                                                                 
                          the wig                                                
@@ -34,7 +34,7 @@ distredd                                              fdasjnflslicktruds
                                                                                 
                        leaky green frye                                         
                          I should like to help everyone if possible; Jew gentile
-, black, white.bitternedd                                                       
+, black, white.bitternedd                             cacophony                 
                                                                                 
                   revulsion                                                     
                                                beings are like that.            
