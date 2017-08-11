@@ -39,12 +39,12 @@ Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!
                 riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthisliy
 fefifo                                                                          
-             im bored...    kkkk just bexa                                      
-                                      amialoneinhere                            
+             im bored...    kkkk just bexaje you feel it dosenr mean uts therege
+hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
 s koing on?           hello woah dude.iad              .l.                      
-         get kong make her scared of it   12323456                              
-kkkkkkkkkkkkkkkkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
+         get kong make her scared of it   12323456                             h
+hhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
 a be kiddin me ssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
