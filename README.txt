@@ -2,9 +2,9 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                          delted
- t  that*l ol shittedgames                                                   hel
-lo what us going onvffshvdf                                                     
+                                                                                
+                                                                                
+                          f                                                     
                                                                         Jelly be
 ans si what are you doing? playinghhhhhhhhh im high :) the smiley looks so high 
 on this font men.. or maybe ist es weil estoy hifgh ugonorrea see i cant change 
@@ -49,12 +49,12 @@ u?
                                                                                 
                                                                                 
                                                                                 
-              sending everyone good vibes and                                   
+              sending everyone dick picks and happiness :))                     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                            nigger              
+                                     wretched                                   
                                                                                 
-            death                                                               
+                                                                                
