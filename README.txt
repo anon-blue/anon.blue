@@ -21,8 +21,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa this =========°=°°°°°=============>   call
                                                                         where yo
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
-Now it wil rainWe are in the place, a blue one. No?here-no Can't dance          
-                        mmmmh i guess one could say that, or the other way aroun
+Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Franc
+e?                      mmmmh i guess one could say that, or the other way aroun
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
 emselves or a real human being? ththethe seay that, prove it oooopd oooopd oooop
 d! if you are not in the same country, i don't care, i just want a nice song. re
@@ -41,7 +41,7 @@ aaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
                  j j yourself it happens you know . it will get better   nonono 
 fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope t
 he stars are beautiful. of course. never went there. california wseems a nice pl
-ace though. cool from france here, but i lived in canada before. fra.. hahaha no
+ace though. cool from france here, but i lived in coocadoo before..... hahaha no
  youre not miserable at all :)                                                  
            i prefer english even if my mother tongue is french. what is going on
 ? uh no plea e. i am non guiltty================================================
