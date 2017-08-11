@@ -31,8 +31,8 @@ e fucked;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;HELLO HUMANS;;;;;;;iiiiii
 i;;;;;;;;;;;what is this                                                        
                 nbmy      my name is ronald    there is no god                  
-tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything;;;;;;;;;;;;;;            
-                                                                                
+tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
+ eve you,andevegrubbing youand you and                                          
              ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we 
 had an argument she sshoved me and i shoved back she came at me with a knifeso i
