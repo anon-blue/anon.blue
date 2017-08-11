@@ -49,8 +49,8 @@ neless bonelessge
                        alone                       straya        go gooncebefore
     dbuuyuudb       nuijuuuju   stoned expressions of nothing                   
                                                                                 
-                 sen                                   death                    
-      miss you mom rbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
+                 sen                            what happens next?o oh wow... no
+ backspace eitherm? this is crazy. im so loneoly. lonely*** and very high       
                                        numb               alienated             
                                                     detached                    
                                      ant empreror?d                             
