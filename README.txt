@@ -34,11 +34,11 @@ i;;;;;;;;;;;what is this
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
  or otther people ,  tttttt                                                     
-                          TRUMP              LOL jk                             
-                                   You                                          
-                                    are                                         
-                                  doomed                                        
+                          TRUMP              LOL jk its all trash GO noles      
                                                                                 
+                                          u ya like jazz                        
+                   YUH                             CNN                          
+           pepe is ra                                                           
                                     You                                         
                                      are                                        
                                  impermanent                                    
