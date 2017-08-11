@@ -15,7 +15,7 @@ i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
    ij klllllllllllllllllllllllj        you think so? it's me down here, your dou
-ble soul ;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
+ble soul i recognize your typing style hwho are you? im not crazy????;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;PICK BRENT SPINE There is one single U.S> dollar bill in my 
 wallet.;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;*(tfghhinl joke ref
@@ -35,7 +35,7 @@ hahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○○
                                                               who ? who is jesus
  ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
-weird                   i  iike noise and bumps but i agree   YUH TYUH YUH  9   
+weifuck shit            i  iike noise and bumps but i agree   YUH TYUH YUH  9   
                                            uuyyaalikejjazzzzzzzzzzzzzzzz        
                      YUH LIEK JAZZ                666CNN666                     
              POPE IS MEH                                                        
@@ -56,5 +56,5 @@ ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
 88786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhell
 o                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
 lo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghs
-fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3    
-                                  penis                                         
+fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3 bod
+ies die                           penis                                         
