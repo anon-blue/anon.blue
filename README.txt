@@ -3,15 +3,15 @@
                                                                                 
               chingchonglinglongtingtognggnkfdsksjssdgsisajazjsnsasnx           
                                            kljlkjlkjlkjlklkkkkkjohiuhgjhgkj     
-                                   the fyuckuwant?  anyone here? whats up man   
-       saaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                                   the fyuckuwant?  anyone here? whats up man id
+k how to really use this interesting concept yea u should aaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa this =========°=°°°°°=============>   call      
                                                               (408) 531-7839    
                                                               ask for sadok     
                                                               tell him his pup  
                                                               is cute ( husky ) 
-                                             ys  just here   ask him if miami   
-                                                             is a nice place to 
+                                             ys  just here i ask him if miami   
+i am here now i want to leave the miami guy in place         is a nice place to 
                                                              live               
                                                                                 
                                                                                 
