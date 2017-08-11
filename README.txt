@@ -7,7 +7,7 @@ er now... know.hoody hoo  jt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
                                                    hello?.......................
 ................................................................................
-................................................................................
+........................kkkkkkkHex  Weird - this is kind of interestingk........
 ................................................................................
 ...................................................................no SNUS      
                                                                               sh
@@ -25,12 +25,12 @@ hings.....mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmm el que lo lea lol                   This an opportu ity to say an
 ything and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxx
 nxnnsj jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverw
-ritten is werid Once there was a man named kenneth hhhhhcken , he lived in tree 
+ritten is werid Once there was a man named kenneth hhhhhc, he voted for a  tree 
 down bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people? 
  very nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political 
 messages intensifies        hello am I good enough?                             
     f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello all      heyhoe r uhah
-a me too no cry no cry bickez                                              SNUS 
+a me too no cry no cry bickez           eknow                              SNUS 
                        This is the worst day of myhhellohelloase send help to Wh
 ittier, CAf   StrangI am serious please asend help before it is too late for me 
                                                                                 
