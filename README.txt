@@ -38,7 +38,7 @@ r, CAf   StrangI am serious please asend help before it is too late for me
 Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag ich lieb
 e ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
-jkmmmmmk Hello? I don't thgewwhow this works ummmmm                 suck it b;ue
+jkmmmmmk Hello? I don't thgewwwhatboobsi want to die                suck it b;ue
  screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
