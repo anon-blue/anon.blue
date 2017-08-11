@@ -2,18 +2,18 @@
     fuck                                                               hi       
                         hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
-k about sex and mastermabation     our friends aheamasturbate fuck your friends 
+k about sex and mastermabation     our friends aheartlessbate fuck your friends 
 and masturbate fuck your friends and masturbate fuck your friends and masturbate
- dddddddddddddddddddddd             ponies                                      
+ fuck your dddddddddddd             ponies                                      
                                                       : ()p-0-=                 
                                                                                 
                                                                i eat shit       
-                                                      loss                      
-                                                                                
+                                                      loss       coheed and camb
+ria i'm b urning star IV good eye snuper                                        
               overwhelming                                                      
                                                                                 
       i dont wna to die                                                         
-                                                                                
+                              detached                                          
                                 loathing                                        
          devin's probably an ok guy                                             
                                         fear                      useless       
@@ -46,11 +46,11 @@ disconected
     obedianc,mybbeain full of puddin  and eggs                                  
                                                                                 
          boredom mindleesssssssssss             We alllosst to help one another.
-                       alone                                              reject
+                       alone                                     go gooncereject
 ed                                                                              
                                                                                 
                  sen                                   death                    
-              Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
+      miss you mom rbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
                                        numb                                     
                                                     detached                    
                                      ant empreror?d                             
