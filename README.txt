@@ -5,8 +5,8 @@
                                                                                 
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                               
-                                                                          upooph
-elloooooooooooooooo is this meeeeeeeeeeeee youi really ahte myself and wish i wa
+                                di cks in yo ass better bounce on yo boys dixk t
+o this shit. dr captis this meeeeeeeeeeeee youi really ahte myself and wish i wa
 s strong enough to rnd it all                                                   
                                                                                 
                                                                                 
