@@ -32,29 +32,29 @@ e fucked;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 i;;;;;;;;;;;what is this                                                        
                 nbmy      my name is ronald    there is no god                  
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
- eve you,andevegrubbing youand you and                                          
-             ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we 
-had an argument she sshoved me and i shoved back she came at me with a knifeso i
- trpped tripped* her   she hit her head on the door frame and isn't moving  WHAT
- DO figfvhh                                                                     
-                                                                 %%%%%%%;;;;;;;%
-%%%%%%%%%%%%%;;;;%%%%%%%% penxilvester!!! %%;;;;;;;;;;;;;;%%%%%% %%%%%%%%%%%%%%%
-%%%%%%;; jjhjjj    i miss you.   UREASDILDO DILDO BAT IS ROM%%%%%%%%            
-                                 %%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
-% %%5;ifanyoneeverknew;;;;;;;;;;There is no  njustice. There is;;;;;;;;;;;;;;;;;
- ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                                          ;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                                          
+ eve you,andevegrubbing youand you and erything aroundyou isindependentisunfeasi
+bleisimpeachmentisimpermanent;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we
+ had an argument she sshoved me and i shoved back she came at me with a knifeso 
+i trpped tripped* her   she hit her head on the door frame and isn't moving  WHA
+T DO figfvhh                                                                    
+                                                                  %%%%%%%;;;;;;;
+%%%%%%%%%%%%%%;;;;%%%%%%%% penxilvester!!! %%;;;;;;;;;;;;;;%%%%%% %%%%%%%%%%%%%%
+%%%%%%%;; jjhjjj    i miss you.   UREASDILDO DILDO BAT IS ROM%%%%%%%%           
+                                  %%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
+%% %%5;ifanyoneeverknew;;;;;;fhgfhfghe is no  njustice. There is;;;;;;;;;;;;;;;;
+; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                                          
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                                         
                                                                                 
-                                       ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                  
-                 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello    
-                                                     ;;;;;;;;;;;;;;;;;;;;helo mo
-thafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                  
-                            ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;         
-                             penis                                              
+                                        ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                 
+                  ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a;;;;;;;;;kdddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello   
+                                                      ;;;;;;;;;;;;;;;;;;;;helo m
+othafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                 
+                             ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;        
+                              penis                                             
