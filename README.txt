@@ -44,8 +44,8 @@ the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool from france here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                                                 
             i prefer english even if my mother tongue is french. what is going o
-n? uh no plea e. i am non guiltty===============================================
-========================--------------------____________________________________
+n? uh no plea e. i am non guiltty====================================i like the 
+egg sandwich here=======--------------------____________________________________
 ________________________________________________________________________________
 ________________________________________________________________________________
 _THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED _______________________
@@ -55,6 +55,6 @@ ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM
                                                                                 
                                                                                 
                                         t  e  the                               
-                                          l    qqqq                             
-                                                                        end     
+                                          l    qqqq                  no i won't 
+xooxo fu          the engd anyone here?                                 end     
                                                                                 
