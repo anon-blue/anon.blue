@@ -15,7 +15,7 @@ game of herarthstonbe yay me :D 3------>````````  yay drugs sent me here
 I think they do?                                                                
                        g                                                        
                                                                                 
-                                                                           jbukj
+                                                                       alonebukj
 Helloe                                                       lllllllllllllllllll
 lllliiiiiiiiiiiiiollllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
@@ -41,20 +41,20 @@ u?
                                                                                 
                                                                                 
                                                                                 
-                                                 jkl;'aaaaaaa                   
+                                                 k                              
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                    n o racism no anger jus     
+                                                                                
+              sending everyone good vibes and                                   
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                                            nigger              
                                                                                 
-                                                           nigger               
-                                                                                
-                                                                                
+            death                                                               
