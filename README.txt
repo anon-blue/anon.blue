@@ -1,60 +1,60 @@
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeemt mt mt mt mt mtffeeeeeeeeeeeeeeeeeeeeeeefjulieeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeknow.eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeos exacz moment in time eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee.....eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+                                                                                
+                                                                                
+                                                                                
+   jhkjhlkjhjkhjkhhhjhholyshit this is crazyyyyyyy what is all of this?!?!?    e
+e  eeeeeee                                                                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                           lohoolonlinrss lonoin
+es                                                                              
+                                                                                
+                                                                                
+                                                                                
+                                                                            eeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeyour fathet doesnt lovr you he loves mmmmmmm
-mmieeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee.....eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeen borthere was eeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeee eeeeeeeeeeeeeee                                                
-                                                                                
-                                                                                
-                                                           guten tag gten tag gu
-ten tag lol lo                                                                  
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-       eeeee                                                                    
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                         oneeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee          yayikes               So 
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeyour fathet doesnt lovr you he loves mmmmm
+mmmmieeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeen borthere was eeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeee eeeeeeeeeeeeeee                                              
+                                                                                
+                                                                                
+                                                             guten tag gten tag 
+guten tag lol lo                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+         eeeee                                                                  
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
