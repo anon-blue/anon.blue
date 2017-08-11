@@ -1,8 +1,8 @@
-owadoi Life would ebe harder for me. Aand I have to ackonolwdege that nut still 
+owadoi Life would ebe harder for me. Aand I havMOOT WAS HEREdege that nut still 
                                       hhhhhhh                        This is the
  full feelnig that morning brings                                 hjkdhsnsbhhhhh
                                                                   lel           
-             nigget                                                             
+             niggettttttttttttttttttin                                          
                                                                                 
                sunbutt                             You just write nan  aCan;t sd
 fwfrwerqwrweqrwet354654                                                         
@@ -24,9 +24,9 @@ ing brings
                                                                                 
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                                                 
-              hhhh          hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhThe 
+              hhhh          hhhhhhhhhh                                      The 
 storm blew a table through the old men, he pushed the table.                    
-                                                                 This is the ful
+                   The table, much to thr old men's surprise,    This is the ful
 l feeling that morning brings.                                                  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
