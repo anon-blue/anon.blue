@@ -5,28 +5,28 @@
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
---------------------------------------------------------------------------      
-            ##       ##    ##  ##  ##   ##  ##                                  
-            ##       ##    ##  ##  ##   ##  ####                                
-            ## ###   ##    ##  ##   ## ##   ##                                  
-               ##    ####  ######    ###    ######                              
-                                                             ojih               
-                                              It's beautiful your 3""" Is this r
-eally you or a robot? Ah, I was so sure about that LOVE U 2 - LOVE THIS BLUE    
-            THIS IS RED ()()()() messag  in a bottle that says "WHERE ARE THE TO
-ILETS". it's a robot. I think. ple. this is wahat we wanted.                    
-                                    dont know if thatthis ironic or not oh rhthe
-n your welcome i feel lopiayyyyyyyyyylmaooooooois ok t                          
-  Your MOTHER WAS  ausedoyoukonw ialove you if id ont want to go with your her  
-rywhere?    i guess so +##äöhobitchesaintshitbuthoesandtricksif anyone is here l
-et me know nbush did 9/11 sadly its truth you know, back in my dya we were all a
-bout conspairacy theories. oh yeah, ltell me about it. hitler did dfgdfgdfghuh, 
-cool iscuessed that. all the rage. hitler iwas one but elvis, you know the king 
-of pop? his death was another. all these little things. consiraacy theories are 
-pretty much my life now, i like to go home after a long day of work and just rea
-d about conspicaccccvvvvvvv'vvvvvvv vvvgghbvcghhbe of my kinds anymore? like how
- sad, HAHAHA JK NO IT'S NOT. I' prefer to read about repetalian , life is good y
-ou know. i love them conspiracy teheories. thank s for listening to me. i like y
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+-------------------------piracy teheories. thank s for listening to me. i like y
 ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
 y else                          is there such a thing?                          
                               Tellement de douceur      sssdssssssdasssssdasdass
