@@ -30,7 +30,7 @@ xtent to wipe your miserable ass off the face of the continent, you little shit.
  If only you could have known what unholy retribution your little “clever” comme
 nt was about to bring down upon you, maybe you would have held your fucking tong
 ue. But you couldn’t, you didn’t, and now you’re paying the price, you goddamn i
-diot. he is really sad i c over youI am trained in gorilla warfare and I’m the t
+diot. he is really sad i can sense it from here    gorilla warfare and I’m the t
 op sniper in the entire US armed forces. You are nothing to me but just another 
 target. I will wipe you the fuck out with precision the likes of which has never
  been seen before on this Earth, mark my fucking words. You think you can get aw
@@ -39,7 +39,7 @@ ak I am contacting my secret network of spies acrosmncethkijbfedvnkiyfedvbjkuygh
 m,nvxaqs right now so you better prepare for the storm, maggot. The storm that w
 ipes out the pathetic little thing you call your life. You’re fucking dead, kid.
  I can be anywhere, anytime, and I can        u in over seven hundred ways, and 
-that’s just with my bare hands. Not only am I extensively trained in unarmed com
+that's just with my bare hands. Not only am I extensively trained in unarmed com
 bat, but I have access to the entire arsenal of the United States Marine Corps a
 nd I will use it to its full extent to wipe your miserable ass off the face of t
 he continent,       ttle shit. If only you could have known what unholy retribut
@@ -50,7 +50,7 @@ wrtinging intoumy text idiot stio istop ist stoooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 ooooooooo cooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooop okay? okay! you do
-nt have andy army :)  forces. You are nothing to me but just another target. I w
+nt have andy army :) and you dont have any arma army fuckn backthing button. I w
 ill wipe you the fuck out with precision the likes of which has never been seen 
 before on this Earth, mark my fucking words. You think you can get away with say
 ing that shit to me over the Internet? Think again, fucker. As we speak I afhell
