@@ -9,7 +9,7 @@ fwfrwerqwrweqrwet354654
                                                                                 
      tthisistheemptyfeelingthatnightbringsbrings                                
                                                              h                  
-                                      hhhhhhhhhh                                
+                                      hhhhhhhhhh                  ssone         
                                                                                 
                                                                                 
                                                                  When I was a yo
@@ -39,8 +39,8 @@ at night brings hhhhnfndnsndhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
-re causing your suicidal thoughts...just the parasites and nothing more" hhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhWhy hello there! Whats going on?!h     
+re causing your suicidal thoughts...just the parasites and nothing more" hIn the
+ lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
 h                                                                               
                                                                                 
