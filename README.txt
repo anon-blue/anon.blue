@@ -33,8 +33,8 @@ i;;;;;;;;;;;what is this
                 nbmy      my name is ronald    there is no god                  
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aroundyou isindependentisunfeasi
-bleisimpeachmentisimpermanent;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;wow h          what have ai done? she's not breathing...we
+bleisimpeachmentisimpermanent take notwhatihavegiventoy                         
+                                                                     athing...we
  had an argument she sshoved me and i shoved back she came at me with a knifeso 
 i trpped tripped* her   she hit her head on the door frame and isn't moving  WHA
 T DO figfvhh                                                                    
