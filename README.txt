@@ -30,7 +30,7 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
                      o boy it all going to be over written                      
                                                                                 
               well why not it sounds like a fin timefunnnn     vdsight idk what 
-im really doing lil                                                             
+im really doing lil : nobody does:                                              
                                                                                 
     ...                               8====D~~~~~                               
                                                      no                         
