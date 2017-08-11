@@ -36,13 +36,13 @@ then asking for them to be read is iuultiomate futility.  choice is an illusion
 and the real tadegy of our existence is our bitrth                              
                                   aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                   
-                    jj;   ;;hjj with her I am alone still                       
-                 j j yourself it happens you know . it will get better          
-                                                                                
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                       
+                 j j yourself it happens you know . it will get better   nonono 
+fiew is there someone?                                                          
                                                             班我们的心情好的吧唧了吗啡的确有了了吗啡
-的了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                         
-                                                                                
+的了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                     cc H
+ELLO I AM HERE!                                                                 
                                                                                 
                                                                                 
                                                                                 
@@ -52,9 +52,9 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
                                                          i've had a loooong day,
  i just want to whoamialready                                                   
-                                                                             ple
-ase read me.                                                                    
-                                                                                
+                            adfasdfasdfasdfasdfasdfaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaa                                                                             
                                                                                 
                                                            iisis it the end?    
                                                                                 
