@@ -21,20 +21,20 @@ HO OPPOSE US
                                                                         where yo
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
-Now it wil rain                                                                 
+Now it wil rainWe are in the place, a blue one. No?                             
                         mmmmh i guess one could say that, or the other way aroun
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
 emselves or a real human being? they all seay that, prove it :)  h yes please !!
-!! if ywas too gross, sorry, i hit the secret clear button.                     
-                                                                                
+!! if you are not in the same country, i don't care, i just want a nice song. re
+ally blue yes,                                                                  
                                                                                 
                                is there such a thing?                           
                                                                                 
                                                                                 
+                                                  putting things lin places and 
+then ask                                                                        
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                                   praise trump                 
                                                    ] ] °]° [ [                  
                                                                                 
                                                                                 
