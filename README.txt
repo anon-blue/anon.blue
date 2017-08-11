@@ -22,8 +22,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa this =========°=°°°°°=============>   call
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
 Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Franc
-e?  - Yes it's truee oui oui can't dance from france sounds good. ther way aroun
-d, i don't know I'm here ! you see me? know what? are you just letters typing th
+e?  - Yes it's true We I would like to Wich name?nce sounds good. let's start a 
+rap group with that name.  you see me? know what? are you just letters typing th
 emselves or a real human being? ththethe seay that, prove it oooopd oooopd oooop
 d! if you are not in the same country, i don't care, i just want a nice song. re
 ally blue yes, it's very very blue[[(oooopd                                     
