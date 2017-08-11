@@ -1,6 +1,6 @@
      A berlin? Oui, le temps y faiasdf     no i'm typing here mang      you can 
-do youwah  there was a little boy   Bonsjours à toues et à toutes, zujourd'hui à
-To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
+do you     there was a little boy   bonsjours a tours et a toutes, zugourd'hue a
+   sleep to make dreams? fate jour, maizec'est en tres grande partie a cause de 
 l'heurjyuiwasi st. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
                                                                                 
