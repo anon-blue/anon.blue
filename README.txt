@@ -48,7 +48,7 @@ llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 ________________________________________________________________________________
 ________________________________________________________________________________
-_THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED _______________________
+_THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ________________________________________________________________________________
 ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM  
                                                                                 
