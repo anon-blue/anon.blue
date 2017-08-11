@@ -4,25 +4,25 @@
                                                                                 
                                                                                 
                                                                                 
-                          f                                                     
-                                                                        Jelly be
-ans si what are you doing? playinghhhhhhhhh im high :) the smiley looks so high 
-on this font men.. or maybe ist es weil estoy hifgh ugonorrea see i cant change 
-line unless i speak all the ywwa way* lol, sorry im a  it high. I ve just won a 
-game of herarthstonbe yay me :D 3------>````````  yay drugs sent me here        
+                                  ponies                                        
                                                                                 
-         what are people doing on here? odoDO people usdee this in the way that 
-I think they do?                                                                
-                       g                                                        
                                                                                 
-                                                                       alonebukj
-Helloe                                                       lllllllllllllllllll
-lllliiiiiiiiiiiiiollllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllhlello who's out there? ppep vvavagva
-givagivvagivvvagivvivagivvinvagivvinavagivvinavvagivvinavavagivvinavagvagivvinav
-agivagivvinavagimvagivvinavagimavagivvinavagimavvagivvinavagimavavagivvinavagima
-vagvagivvinavagimavagivagivvinavagimavaginvagivvinavagimavagina                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+    i dont wna to die                                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                          ponies
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -40,7 +40,7 @@ u?
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                             no meaning                                         
                                                  k                              
                                                                                 
                                                                                 
@@ -52,7 +52,7 @@ u?
               sending everyone dick picks and happiness :))                     
                                                                                 
                                                                                 
-                                                                                
+                                                       ponies                   
                                                                                 
                                                                                 
                                      wretched                                   
