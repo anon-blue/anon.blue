@@ -31,8 +31,8 @@ a cheetoh??? orange as fuck and not even crunchy, the puffy kind,type political
 messages intensifies        hello am I good enough?                             
     f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello al hey fags a/s/l? hah
 a me too no cry no cry bickez           eknow thos ; everything zhat you hve eve
-r experinced in your entire oife, has broughz you zo this s exact momentk   i Wh
-ittier, CAf   StrangI am serious please asend help before it is too late for me 
+r experinced in your entire oife, has broughz you zo this s exact momentk   ich 
+liebe ,twisz  StrangI am serious please asend help before it is too late for me 
                                                                                 
                                                                                 
      Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag ich
