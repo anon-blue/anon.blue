@@ -1,6 +1,6 @@
-                                                  Nobody home?          V Can I 
-make a cry with your lips?          Bonsjours à toues et à toutes,              
-                       ok                                                       
+     A berlin?                                    Nobody home?          V Can I 
+make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
+ Berlin sur la Saône, il fait jour, mais c'est en très grande partie à          
               chingchonglinglongtingtognggnkfdsksjssdgsidssdzjsnsasnx           
                                            kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
 kkkkşklkşlkghfghfghfghpofghpofk pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
