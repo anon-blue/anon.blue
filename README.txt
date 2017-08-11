@@ -45,8 +45,8 @@ lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                  i'm trapped on this line..  eve
 rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see i
 t green too and when I close my brain - heu - my eyes, it's like a rainbow witho
-ut rain. Why that?    Ok. llllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
-_____________________________Ste   Still alone - not just quebec libre _________
+ut rain. Why that?    Ok. """"""""""3333333#####################################
+#### Ah! I've got it_________Ste   Still alone - not just quebec libre _________
 _______________________________________just don't jump__________________________
 _THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
