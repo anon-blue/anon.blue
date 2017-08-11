@@ -1,5 +1,5 @@
                                                                                 
-                                                                                
+                                         does this mean anything?               
                                                                                 
               chingchonglinglongtingtognggnkfdsksjssdgsisajazjsnsasnx           
                                                                                 
@@ -11,7 +11,7 @@
                                    now i feel empty.                            
                                                                                 
                                                                                 
-                                     towards the end------->follow the ar       
+                                     towards the end------->follow the arrow    
                                                                                 
                                                                                 
                                                                                 
@@ -19,10 +19,10 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                                              wo
+menshouldhavenirighttovotejskaoalnc xxjkakwkqidjdndiskfjfjdjsjfjsjdjdjdjndkdkkso
+oqoqidjnfrbff                                                                   
+                      mmmmh i guess one could say that, or the other w          
                                                                                 
                                                                                 
   it was too gross, sorry, i hit the secret clear button.                       
@@ -46,7 +46,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                   比较                           
                                                                                 
                                                                                 
                                                                                 
