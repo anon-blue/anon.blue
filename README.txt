@@ -27,7 +27,7 @@ everybody's knows, full moon' can't pay the heating bill           hhhhhh
 penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
 storm blew a table through the old men, he pushed the table. Time to suck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
-ny, table that morning brings.                                                  
+ny, table that morning brings.                            Silver Bells they ri  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
       hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
@@ -35,11 +35,11 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
-at night brings hhhhh hhhhhhhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
+at night brings hhhhnfndnsndhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhHe looked over the edge and said "ithhhhust the parasites that a
-re xauseing your suicidal ideation...just the parasiyes and nothing more" hhhhhh
+hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
+re causing your suicidal thoughts...just the parasites and nothing more" hhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhWhy hello there! Whats going on?!h     
                                                                        hhhh     
 h                                                                               
