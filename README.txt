@@ -53,8 +53,8 @@ t green too and when ItrwvhsrIt's me%!Can someone read this?Maybe from UPGRADE?-
 f-------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
---------------------------------------------------bakllsballsballsballsokekgoedi
-ck           dick      dick        dick        penis penis pnis penis-----------
+-------------------------------------------------bakllsballsballsballsokekgoedic
+k           dick      dick        dick        penis penis pnis penis------------
                                           l    qqqq                  no i wotst 
 xooxo fu          the engd anyone here?                                 end     
                                 Yes I can read it                               
