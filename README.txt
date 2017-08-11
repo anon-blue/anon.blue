@@ -34,10 +34,10 @@ i;;;;;;;;;;;what is this
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aroundyou isindependentisunfeasi
 bleisimpeachmentisimpermanent take notwhatihavegiventoy                         
-                                                                     athing...we
- had an argument she sshoved me and i shoved back she came at me with a knifeso 
-i trpped tripped* her   she hit her head on the door frame and isn't moving  WHA
-T DO figfvhh                                                                    
+                                                                                
+                                   You                                          
+                                    are                                         
+                                  doomed                                        
                                                                   %%%%%%%;;;;;;;
 %%%%%%%%%%%%%%;;;;%%%%%%%% penxilvester!!! %%;;;;;;;;;;;;;;%%%%%% %%%%%%%%%%%%%%
 %%%%%%%;; jjhjjj    i miss you.   UREASDILDO DILDO BAT IS ROM%%%%%%%%           
