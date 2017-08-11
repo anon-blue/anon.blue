@@ -3,7 +3,7 @@ kek
                                                                                 
                                                                                 
                                                    @shittedgames who just delted
- t  that*                                                                       
+ t  that*l ol shittedgames                                                      
                                                                                 
                                                                                 
                                                                                 
