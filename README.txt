@@ -23,7 +23,7 @@ RN                               I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
  Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
 ce?  - Yes it's true We I would like to Wich name??I can try. The name is perfec
-tYes I know fraenchfromage -sage sur un nuyage- errance entre 2 tranche de pain 
+tYes I--------------romage -sage sur un nuyage- errance entre 2 tranche de pain 
 Cant find me anymores start with a simple rhyme. you know french? i don't so it 
 will have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
 i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll 
