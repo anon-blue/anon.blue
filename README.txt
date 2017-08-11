@@ -21,16 +21,16 @@ my horn on my head is soft and limp. As you may know this is very devastating to
 t into a fold-out brochure.  You see? Folds out.  Oh, no. More humans. I don't n
 eed this.  What was that?  Maybe this time. This time. This time.This time! This
  time! This...  Drapes!  That is diabolical.  It's fantastic. It's got all my sp
-ecialskills, even my top-ten favorite movies.  What's number one? Star Wars?  Na
-h, I don't go for that...  ...kind of stuff. OF ok for no copy paste. I never sa
-w any rhino outoftheir minds.  When I leave a job interview, they'reflabbergaste
-d, can't believe what I      There's the sun. Maybe that's a way out.  I don't r
-emember the sunhaving a big 75 on it.  I predicted global warming.  I could feel
- it getting hotter.At first I thought it was just me.  Wait! Stop! Bee!  Stand b
-ack. These are winter boots.  Wait!  Don't kill him!  You know I'm allergic to t
-hem!This thing could kill me!  Why does his life haveless value than yours?  Why
- does his life have any less valuethan mine? Is that your statement?  I'm just s
-aying all life has value. Youdon't know what he's cabable of feeling.  My brochu
+ecialskills, even my top-ten favorite movies.  What's number one? let up she wou
+ld kill me. Just then I noticed that she'd mostly stopped struggling. She was st
+ill twisting around a little but it didn't seem like she was trying very hard to
+ knock me off. Mostly it was just making my dick rub against her ass even more. 
+After a few moments it dawned on me that she might be doing it on purpose. I'm n
+ormally a bit quicker on the uptake, but the idea that Cassie could somehow *wan
+t* me to dry hump her butt just seemed crazy. Crazy or not, it was starting to f
+eel pretty damn nice. I decided to risk seeing if I could make it even brs?  WhS
+he didn't move have let one of her hands go and worked my shorts open. I pulled 
+her boxers down a little more, then moved back into place with my dick My brochu
 re!  There you go, little guy.  I'm not scared of him.It's an allergic thing.  P
 ut that on your resume brochure.  My whole face could puff up.  Make it one of y
 our special skills.  Knocking someone outis also a special skill.  Right. Bye, V
@@ -41,8 +41,8 @@ right, here it goes.  Nah.  What would I say?  I could really get in trouble.  I
 t's a bee law.You're not supposed to talk to a human.  I can't believe I'm doing
  this.  I've got to.  Oh, I can't do it. Oome on!  No. Yes. No.  Do it. I can't.
   How should I start it?"You like jazz?" No, that's no good.  Here sh      OK IM
- DONE IVE HAD EBO   NEOUGH  ENOUGH FUCK NO BACKSPACE ONE                        
-                                                                                
+ DONE IVE HAD EBO   NEOUGH  ENOUGH FUCK NO BACKSPACE ONE     just type "BACKSPAC
+E PLEASE" and it will be magically enabled for you only,                        
                                                                                 
                                                                                 
                                                                                 
@@ -52,8 +52,8 @@ t's a bee law.You're not supposed to talk to a human.  I can't believe I'm doing
 d here you are reading this. Sad.                                               
                                                                                 
                                                                                 
-kkjhhkljkljlkjkjl                              of course im alone again         
-                                             FILL THE BLANKS PLEASE             
+kkjhhkljkljlkjkjlkkkkkkkkkkllllllllllllllllllllllllllllllllllllllllllllllll     
+                                                                                
                                                                                 
                                                                                 
                                                                                 
