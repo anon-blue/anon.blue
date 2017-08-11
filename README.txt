@@ -12,7 +12,7 @@ gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whered oes
  this end is there any sihtg to be maed of he beings? ;;;;;;;;;;bingo;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hello? is it me your looking for?
-i can;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
    ij klllllllllllllllllllllllj                                       ..........
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
@@ -42,8 +42,8 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                 WTF was just typed  You                                         
                                      are                                        
                                  impermanent                                    
-                                                         v v                    
-         Who eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee?             
+                                                         v vwoah dudeks'd;lfk;lk
+';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?             
                                       arr t                                     
                                                                                 
                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
