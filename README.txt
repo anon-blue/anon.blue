@@ -1,9 +1,9 @@
      A berlin? Oui, le temps y fait beaucoup      Nobody home?          V Can I 
 make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
- Berlin sur la Saône, il fait jour, mais c'est en très grande partie à cause de 
-l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. sasnx           
-                                           kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
-kkkkşklkşlkghfghfghfghpofghpofk pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
+To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
+l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
+i passe, pour être exact.                  kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
+kkki just want to sleep forever pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
 okh pfoghp ofkghp ofgphof kgphok fpgohk fpgokh pfogkpfoghk pogkhp ogh gffgfghfgf
 ghğp0909k0kı0ok         oh i get it sn=smart this is a crazy honecettttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
