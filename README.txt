@@ -10,8 +10,8 @@ tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tt fyck damn wonder if anybody called him     sane same here  ask for sadok same
 not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup 
 is cute husky          it was a story about a miami guy for the record.pace for 
-you                                                                             
-                                                                                
+you        as conceived in 60003432 by portuguese printing press operator dsjklf
+djsfsdf                                                                         
                                                                                 
                                                                                 
             america is sleeping.                                                
