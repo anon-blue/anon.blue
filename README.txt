@@ -9,7 +9,7 @@ k how to really use this interesting concept yea u should  how did you skip that
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tt fyck damn wonder if anybody called him     sane same here  ask for sadok same
 not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup 
-is cute husky                                                 ill backspace for 
+is cute husky          it was a story about a miami guy for the record.pace for 
 you                                                                             
                                                                                 
                                                                                 
