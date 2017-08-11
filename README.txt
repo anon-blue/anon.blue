@@ -38,8 +38,8 @@ h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
 ll guarded by space structures and beings only insde your brian chcmidals       
                                                                                 
                                           I am alone still          HAHA lkjhkjh
-kjht i was seeing well. its my specliasadas asd asd ass shrastni k hrt close you
-r brain for too long. it may not open again adterwardo. i tested me!? oh i hope 
+kjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hras
+tnikain for too long. it may not open again adterwardo. i tested me!? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                  i'm trapped on this line..  eve
