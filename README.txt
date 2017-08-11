@@ -19,8 +19,8 @@ oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq
                                                                                 
                                                                                 
 huk,hyki                                                          uohdIck       
-         mmmhellochowefeqfeqeqf]]]]\fkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkdkddkd
-kkdplease sucyka blyat                 INJE TING THE BOIH this is tI am bill. if
+         mmmhellochowefeqfeqeqf]]]]\the consioucness encompassed all of what had
+ been a univesresblyat                 INJE TING THE BOIH this is tI am bill. if
  youggggggggggggggggggggggggggggggggg                                cool beans 
 bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
@@ -48,8 +48,8 @@ hhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
 a be kiddin me ssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
-ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhykn
-gguuten tAg guten L I CAN GET MY 547I5F4C7I0N I CAle happerned herehyhyhyhyhyhyh
+ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhihihihyhyhhyhyhykn
+gguuten tAg guten tag gutan tag huten tag guten tag fuckYOU ;) herehyhyhyhyhyhyh
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
