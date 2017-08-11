@@ -40,12 +40,12 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                       
                  j j yourself it happens you know . it will get better   nonono 
 fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope t
-he stars are beautiful. of course                           班我们的心情好的吧唧了吗啡的确有了了吗啡
-的了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                     cc H
+he stars are beautiful. of course. never went there. california wseems a nice pl
+ace though. cool from fra时间吗不好受理智齿不想你的夜                                     cc H
 ELLO I AM HERE! COME HANG OUT WITH ME. What's your name>>>? I'm Khalid. Nice to 
 meet you :) It's midnight, or12:40. Los Anfeles (angeles*). Light pollution galo
-re. No stars tonight.                                                           
-                                                                                
+re. No stars tonight. Ups and downs, but my life here has been generally positiv
+e and without bmajor complaints. Where are you from?                            
                                                      比较多了吗你们呢料到4家你说62说我也要么有个个是要做
 饭桌布什政府军方言传媒集团董事长的人物形象地上午九点半夜里程中的小时间为主任凭空空中花园式不是吗？的说的人家乡土鳖你也3许会是我的家长得到处女生意外惊喜的说的是
   个头晕车上                                                                         
