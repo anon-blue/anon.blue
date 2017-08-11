@@ -25,9 +25,9 @@ ck")*;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hy hugsfds jf ;;;;;;;;;;;;;;;;;;;
 an that thought he knew them all. A n average looking guy with a tendency oto sm
 oke weed and an above average knowledge;in music. They called him the virgin whi
 sperer because he was the first of 5 different damsels. Had sex in public numore
-ous times and, idk where im going with this. im too hiiiiigh lost my job chillin
+ous times and, idk where im going with this. im too hiiiiigh loffnsnjfob chillin
 g chilling. You all should suppot this artist collective called nowigo.elves dam
-n fat gfingers;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+n fat fat fat fa;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                              is th
 e anyonerooty k foot ronaldy name is ronald    there is no god                  
