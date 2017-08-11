@@ -18,8 +18,8 @@ ILETS". it's a robot. I think. ple. this is wahat we wanted.
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel lopiayyyyyyyyyylmaooooooois ok t                          
   Your MOTHER WAS  ausedoyoukonw ialove you if id ont want to go with your her  
-rywhere?    i guess so +##äö#äö#äö#äö hello buttocjlasdölkasdölkammcööwww.asd0KE
-RN                               I'mthere. yes I think you know. Of course. Of c
+rywhere?    i guess so +##äöhobitchesaintshitbuthoesandtricksif anyone is here l
+et me know                       I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
  Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
 ce?  - Yes it's true We I wogim tripping balls right now. this is pretty cpppooo
