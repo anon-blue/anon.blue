@@ -4,7 +4,7 @@
                                                                                 
                                                                                 
                                                                                 
-           gg   m                                                               
+           gg   m         90% owl                                               
                                                                                 
                                                                                 
                                                                                 
@@ -14,8 +14,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                          heh what th e fuck is this shit ? asdasdasdasdasdasdas
+                                                                           hello
+                              what th e fuck is this shit ? asdasdasdasdasdasdas
 dasddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddd  ddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
