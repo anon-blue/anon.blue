@@ -18,7 +18,7 @@ djsfsdf
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
   Your MOTHER WAS AMAZING                                                       
-            i guess so +##äö#äö#äö#äö hello me im still awake AMERGIBA IS W)-0KE
+            i guess so +##äö#äö#äö#äö hello buttocjlasdölkasdölkammcööwww.asd0KE
 RN                               I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
  Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
