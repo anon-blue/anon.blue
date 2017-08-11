@@ -2,9 +2,9 @@
     fuck                                                               hi       
                         hi    our f                                             
                                               daaaaaaaaaaaaaaaaaaaaaaaaaaaa fuck
- your friends and masturbate fuck your friends and masturbate faaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaadddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddd             ponies                                      
+ your friends and masturbate fuck your friends and masturbate fuck your friends 
+and masturbate fuck your friends and masturbate fuck your friends and masturbate
+ dddddddddddddddddddddd             ponies                                      
                                                                                 
                                                                                 
                                                                i eat shit       
@@ -20,16 +20,16 @@ ddddddddddddddddddddddd             ponies
         soul crushing                                                           
                                                                                 
                                                                                 
-                                                                              Th
-at.s not my business.                                                           
-                                                                                
+                                           hdgdgsajd hfsafkh fkhsfuhsa fhhfa  hf
+ hhfkja fjhjhfkaskfashfjr8fsafahsf hkafhahfu fhafa     ahfkahf afaf afa fafafafa
+fafafafafaffafaffaf                                                             
                                            o _o                                 
                                                                                 
                                                                                 
         empeorororo of what?                              rage     meaningless  
 voices                                                                          
                                                                                 
-                                                                                
+                                                         tttttt                 
                                                                                 
                                                                                 
                                                                                 
