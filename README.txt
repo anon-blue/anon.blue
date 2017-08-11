@@ -1,11 +1,11 @@
-anuxnebhxnunnjnc iin wnxnu xwunxwh jns wj ccwcwxw    w             moonmoonhhhhh
-ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa wnxnaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaydododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødødødødødødøasdfa
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
                                asdkm,im scARED of fallling in love againpoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
-                                                      yeah man yo whats fucking 
+                                                   hello?h man yo whats fucking 
 good my niggerb XD                                                        HERE  
   holy fucking sthis isn't good.  ndarittoconiconfessidon't love anybodytand im 
 desperateand depresedck!? lolefw                                                
@@ -41,7 +41,7 @@ e ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks
 jkmmmmmk Hello? I don't thgewwwhatboobsi want to die                suck it b;ue
  screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
-                                                                         hi what
+                                                   ??? Me                hi what
 s koing on?           hello woah dude.iad              .l.                      
          get kong make her scared of it   12323456                             h
 hhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
@@ -57,4 +57,4 @@ hhdwDun   8ck kann ncht schlafen       Dungeon      das is a goooot kaybord
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbhnjbhjjjjjjsuicide thirsdayhdasdfasdfdsafhhh
 hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnation
 .Cons  er nowBoobs.BOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOooooooooooooooBS.Consider 
-boobs.;D                                                    why bother writinhg 
+boobs.;D                                            youresyperhhhhgaaaaaaaaaaaaa
