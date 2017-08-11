@@ -52,9 +52,9 @@ tly presented party presents play people's preferences proportionatelyy
 CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJIO
 ETJRTEWIGTOKWROGTIOJWGHJIJIEJWOAISHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KGFN
 DN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK;K
-LMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDK                                      
-                                                                                
-                                                                                
-                                                                                
+LMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;DFG
+KMCMSNSMNMMMMMMM.CXVMVM.FMVM.XCMVK,MCXKVBL;VNLKSDEMVFKDL.FGMLSDMKFKL;F M,DL;WOPI
+ EPODOPRQKEWRKWFEJWFO9IHWEPFIsdjLVJSRESDELGVNSDIKLGVJDKLXFSDNIKLJNDLXKZKXL,NZXKL
+FHSDJKNKSD                                                                      
                                                                                 
                                                                                 
