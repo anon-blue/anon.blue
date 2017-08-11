@@ -7,7 +7,7 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                                                                                 
                      ##    ######  ##   ##  ######                              
                a      #    ##  "#  ##   ##   #                                  
-                     ##    ##  ##  ##   ##  ####                                
+                     ##    ##  ##  ##   ##  ####                       je sui s 
                      ##    ##  ##  ##    #  ##                                  
                      ####  ######    ###    ######                              
                                                              ojih               
@@ -47,7 +47,7 @@ rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
 t green too and when I close my brain - heu - my eyes, it's like a rainbow witho
 ut rain. Why that?    Ok. """"""""""3333333#####################################
 #### Ah! I've got it               Still alone - not just quebec libre _________
-_______________________________________just don't jump__________________________
+_______________________________________just don't jujhhhjjjjjjjj.fuckmein_______
 _THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
 ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM  
