@@ -37,8 +37,8 @@ isolation
 black, white.                                                                   
                                                                                 
                                                                                 
-                                       Human beings are like that.              
-                                                                                
+                                       Human beings are like that.            di
+sconected                                                                       
                                                                                 
                                                                                 
                                                         I'm sorry, but I don't w
@@ -50,11 +50,11 @@ ant to be an emporer.
                                                                                 
                                                                                 
               sen                                                               
-           Mast               Q                                                 
-                                 ponies                                         
-   I don't want to rule or conquer anyone.p         conquer all of the peoples  
+           Masterbate more and be nice to people. gSometimes, like, do you ever 
+get this? Like, when              ponies                            buttplugs   
+    I don't want to rule or conquer anyone.p         conquer all of the peoples 
                                                                                 
                                                                                 
                                                                                 
-                                       afraid                                   
+                                        afraid                                  
                                                                                 
