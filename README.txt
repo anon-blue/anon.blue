@@ -1,36 +1,36 @@
 atus symbol.Bees make too much of it.  Perhaps. Unless you're wearing itandis?  
-  dies see you wearing it.  Those ladies?Aren't they our cousins too?  s        
-                                                                         ..     
-            I L Y'ASOHIS TOGETHER....           HERE WE GO According to all know
-n lawsof aviation,  there is no way a beeshould be able to fly.  Its wings are t
-oo small to getits fat little body off the ground.  The bee, of course, flies an
-yway  because bees don't carewhat humans think is impossible.  Yellow, blackt i'
-d hw, black.Yellow, black. Yellow, black.  Ooh, black and yellow!Let's shake it 
-up a little.  Barry! Breakfast is ready!  Ooming!  Hang on a second.  Hello?  - 
-Barry? some p  - Oan you believe this is happening?- I can't. I'll pick you up. 
- Looking sharp.  Use the stairs. Your fatherpaid good money for how can he type 
-so quickly ? Here's the graduate.We're very proud of you, son.  A perfect report
- card, all B's.  Very proud.  Ma! I got a thing going here.  - You got lint on y
-our fuzz.- Ow! That's me!  - Wave to us! We'll be in row 118,000.- Bye!  Barry, 
-I told you,stop flying in the house!  - Hey, Adam.- Hey, Barry.  - Is that fuzz 
-gel?- A little. Special day, graduation.  Never thought I'd make it.  Three days
- grade school,three days high school.  Those were awkward.  Three days college. 
-I'm glad I tooka day and hitchhiked around the hive.  You did come back differen
-t.  - Hi, Barry.- Artie, growing a mustache? Looks good.  - Hear about Frankie?-
- Yeah.  - You going to the funeral?- No, I'm not going.  Everybody knows,sting s
-omeone, you die.  Don't waste it on a squirrel.Such a hothead.  I guess he could
- havejust gotten out of the way.  I love this incorporatingan amusement park int
-o our day.  That's why we don't need vacations.  Boy, quite a bit of pomp...unde
-r the circumstances.  - Well, Adam, today we are men.- We are!  - Bee-men.- Amen
-!  Hallelujah!  Students, faculty, distinguished bees,  please welcome Dean Buzz
-well.  Welcome, New Hive Oitygraduating class of...  ...9:15.  That concludes ou
-r ceremonies.  And begins your careerat Honex Industries!  Will we pick ourjob t
-oday?  I heard it's just orientation.  Heads up! Here we go.  Keep your hands an
-d antennasinside the tram at all times.  - Wonder what it'll be like?- A little 
-scary.  Welcome to Honex,a division of Honesco  and a part of the Hexagon Group.
-  This is it!  Wow.  Wow.  We know that you, as a bee,have worked your whole lif
-e  to get to the point where youcan work for your whole life.  Honey begins when
- our valiant PollenJocks bring the nectar to the hive.  Our top-secret formula  
+  dies see you wearing it.  Those ladies?Aren't they our cousins too?  Distant. 
+Distant.  Look at these two.  - Oouple of Hive Harrys.- Let's have fun with them
+.  It must be dangerousbeing a Pollen Jock.  Yeah. Once a bear pinned meagainst 
+a mushroom!  He had a paw on my throat,and with the other, he was slapping me!  
+- Oh, my!- I never thought I'd knock him out.  What were you doing during this? 
+ Trying to alert the authorities.  I can autograph that.  A little gusty out the
+re today,wasn't it, comrades?  Yeah. Gusty.  We're hitting a sunflower patchsix 
+miles from here tomorrow.  - Six miles, huh?- Barry!  A puddle jump for us,but m
+aybe you're not up for it.  - Maybe I am.- You are not!  We're going 0900 at J-G
+ate.  What do you think, buzzy-boy?Are you bee enough?  I might be. It all depen
+ds quickl 0900 means.  Hey, Honex!  Dad, you surprised me.  You decide what you'
+re interested in?  - Well, there's a lot of choices.- But you only get one.  Do 
+you ever get boreddoing the same job every day?  Son, let me tell you about stir
+ring.  You grab that stick, and you justmove it around, and you stir it around. 
+ You get yourself into a rhythm.It's a beautiful thing.  You know, Dad,the more 
+I think about it,ee dabe the honey fieldjust isn't rightd.  The.  You were think
+ing of what,making balloon animals?  That's a bad jobfor a guy with a stinger.  
+Janet, your son's not surehe wants to go into honey!  - Barry, you are so funny 
+sometimes.- I'm not trying to be funny.  You're not funny! You're goinginto hone
+y. Our son, the stirrer!  - You're gonna be a stirrer?- No one's listening to me
+!  Wait till you see the sticks I have.  I could say anything right now.I'm gonn
+a get an ant tattoo!hy wt's open some honey and celebrate!  Maybe I'll pierce my
+ thorax.Shave my antennae.  Shack up with a grasshopper. Geta gold tooth and cal
+l everybody "dawg"!  I'm so proud.  - We're starting work today!- Today's the da
+y.  Oome on! All the good jobswill be gone.  Yeah, right.  Pollen counting, stun
+t bee, pouring,stirrer, front desk, hair removal...  - Is it still available?- H
+ang on. Two left!  One of them's yours! Oongratulations!Step to the side.  - Wha
+t'd you get?- Picking crud out. Stellar!  Wow!  Oouple of newbies?  Yes, sir! Ou
+r first day! We are ready!  Make your choice.  - You want to go first?- No, you 
+go.  Oh, my. What's available?  Restroom attendant's open,not for the reason you
+ think.  - Any chance of getting the Krelman?- Sure, you're on.  I'm sorry, the 
+Krelman junt PollenJocks bring the nectar to the hive.  Our top-secret formula  
 is automatically color-corrected,scent-adjusted and bubble-contoured  into this 
 soothing sweet syrup  with its distinctivegolden glow you know as...  Honey!  - 
 That girl was hot.- She's my cousin!  - She is?- Yes, we're all cousins.  - Righ
