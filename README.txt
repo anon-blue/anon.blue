@@ -23,7 +23,7 @@ kek
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
                                                                                 
                                                                    how do you me
-an? it's just some km                                                           
+an? it's just some km            dnnnvvnvnnv  f  ddd d d fg d d d d   fd        
                                                                                 
                                                                                 
                                                                                 
