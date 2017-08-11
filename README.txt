@@ -16,7 +16,7 @@ kek
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                   koool aid    
                                                                                 
                                                                                 
                                                             aww. well time to di
@@ -41,9 +41,9 @@ im really doing lil : nobody does:
                                     x   ddk\dddddddddddddddddddddddddd          
               d       a q p                                                     
                  k kkw    w   a q p                                             
-                                www    |                                        
-                                        a q p                                   
-                                      |    |                                    
+                                                                                
+                                                    a  qp ?                     
+                                      |    | |                                  
   whya dothis to me                                                             
                                                                                 
                                                                                 
