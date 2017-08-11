@@ -24,7 +24,7 @@ UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUDo dUuUgsGood thinkg;alskdjf;a
 lksjdfI oncve succed a penis that belonged to my self jffffffffffffffffffff;asld
 fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
 kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
-sjdfI have thoughts of fucking my owbn boderent damsels. Had sex in public numor
+sjdfI have thoughts of fucking my owbn bodyrent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                                                                 
                                  fat fst fat                                    
@@ -37,9 +37,9 @@ eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
 weifuck shitsksisisskkksissisisiisgjgxgjgddhkkfewrumncethkijbfedvnkiyfedvbjkuygh
 m,nvxaqsvjihfcvnjhfddcvhjuyredvbnjiuyyjjnvd//:;)$865)'mingfswecbnjugfcbnhfffbbnn
-jhgfr()7(::( !876?€# YUH LIEK JAZZ                666CNN666                     
+jhgfr()7(::( !876?€#}YUH LIEK JAZZ                666CNN666                     
              POPE IS MEH                                                        
-                  WTF was jusno np no no this n                                 
+                  WTF was jusno np no no this not an alphabet.                  
                                        are                                      
                                    impermanent                                  
                                                            v vwoah dudeks'd;lfk;
