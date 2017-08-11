@@ -34,16 +34,16 @@ im really doing lil : nobody does:
                                                                                 
     ...                               8====D~~~~~                               
                                                      no                         
+                                                                       jjj      
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                    x   ddk\dddddddddddddddddddddddd            
+                                    x   ddk\dddddddddddddddddddddddddd          
               d       a q p                                                     
-                 k kkw                                                          
-                                          : getoutregregaergzeragragaergaergagkl
-;kjrtwhat is theis website                                                      
-                                                                                
+                 k kkw    w   a q p                                             
+                                www    |                                        
+                                        a q p                                   
+                                      |    |                                    
   whya dothis to me                                                             
                                                                                 
                                                                                 
