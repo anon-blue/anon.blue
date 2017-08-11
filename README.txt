@@ -18,7 +18,7 @@ you
                                     dont know if that was ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
                                                                                 
-            i guess                                                      where y
+            i guess so whats up americ                                   where y
 ou at                            I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
  Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
@@ -42,7 +42,7 @@ aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
  fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool from france here, but i lived in coocadoo before..... hahaha n
-o youre not miserable at all :)                                                 
+o youre nhi thereable at all :)                                                 
             i prefer english even if my mother tongue is french. what is going o
 n? uh no plea e. i am non guiltty===============================================
 ========================--------------------____________________________________
