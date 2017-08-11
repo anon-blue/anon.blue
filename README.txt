@@ -42,8 +42,8 @@ ll guarded by space structures and beings only insde your brian chcmidals
 quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
-o youre nhi thereable at all :)                                                 
-            i Les déconnections sont rapides           ,llllllllllllllllllllllll
+o youre nhi thereable at all :)                  i'm trapped on this line..  eve
+rybody libre  Les déconnections sont rapides           ,llllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 _____________________________Ste   Still alone - not just quebec libre _________
