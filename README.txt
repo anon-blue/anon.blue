@@ -38,7 +38,7 @@ jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
 t - like words dac dancers - fffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
-                  j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+                  j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSviveSSSS
 SSFFFFFFFFFFFASF' WEA'L hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
