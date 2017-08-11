@@ -1,9 +1,9 @@
                                                                                 
+      aids.                                                                     
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+isolation                                                                       
                                   ponies                                        
                                                                                 
                                                                                 
@@ -20,8 +20,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                            That
+.s                                                                              
                                                                                 
                                          o _o                                   
                                                                                 
@@ -41,8 +41,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                        I'm sorry, but I don't w
+ant to be an emporer.                                                           
                                                                                 
                                                                                 
                                                                                 
