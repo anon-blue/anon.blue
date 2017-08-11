@@ -2,16 +2,7 @@
                                          does this mean anything?               
                                                                                 
               chingchonglinglongtingtognggnkfdsksjssdgsisajazjsnsasnx           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                  niggerniggerniggernigernigger                                 
-                                   now i feel empty.                            
-                                                                                
-                                                                                
-                                     towards the end------->follow the arrow    
+                                           kljlkjlkjlkjlklkkkkkjohiuhgjhgkj     
                                                                                 
                                                                                 
                                                                                 
@@ -19,12 +10,21 @@
                                                                                 
                                                                                 
                                                                                 
-                               I'mthere. yes I think you know. Of course       w
-omenshouldhavenirighttovotejskaoalnc xxjkakwkqidjdndiskfjfjdjsjfjsjdjdjdjndkdkks
+                                                                                
+                                                                                
+                            fdgfdgdhfdgdf           hghjfjh                     
+                       gkjg kjgk j                                              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                       where you
+ at                            I'mthere. yes I think you know. Of course. Of cou
+rse I'm a human     yeh yeh...that's a good poinjdndiskfjfjdjsjfjsjdjdjdjndkdkks
 ooqoqidjnfrbff                                                                  
                        mmmmh i guess one could say that, or the other way around
 , i don't know I'm here ! you see me? know what? are you just letters typing the
-mselves                                                                         
+mselves or a real human being? they all seay that, prove it :)                  
    it was too gross, sorry, i hit the secret clear button.                      
                                                                                 
                                                                                 
