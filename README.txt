@@ -1,4 +1,4 @@
-                   fuck you     en                                 ds and mastrb
+                   fuck you divided                                ds and mastrb
     fuck                                                               hi       
                         hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
@@ -43,7 +43,7 @@ disconected
                           paranoia hatred                                       
                                       p ulp               I'm sorry, but I don't
  want to be an emporer.                                                         
-    obediance                                                                   
+    obedianc,                                                                   
                                                                                 
         boredom mindleesssssssssss             We alllosst to help one another. 
                       alone                                              rejecte
