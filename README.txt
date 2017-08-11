@@ -13,8 +13,8 @@ ft like it doesn't even matter.When you die, five years later, the fingers, toes
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                -lo. I 15arRhinoceros. The only problem is that 
+                                                                       it's a fu
+cking desert, hot and dry, nowhere to hide.Rhinoceros. The only problem is that 
 my horn on my head is soft and limp. As you may know this is very devastating to
  a rhino lin.  Maylf. If there are any rhinos out there that can help me with my
  problem it would be appreciated. Please dont copy paste this. This is my story.
@@ -52,8 +52,8 @@ t's a bee law.You're not supposed to talk to a human.  I can't believe I'm doing
 d here you are reading this. Sad.                                               
                                                                                 
                                                                                 
-                                               of course im alone again         
-                                             FILL THE BLANKS PLE                
+kkjhhkljkljlkjkjl                              of course im alone again         
+                                             FILL THE BLANKS PLEASE             
                                                                                 
                                                                                 
                                                                                 
