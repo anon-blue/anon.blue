@@ -12,7 +12,7 @@ not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup
 is cute husky          it was a story about a miami guy for the record.pace for 
 you        as conceived in 60003432 by portuguese printing press operator dsjklf
 djsfsdf                                                                         
-                                                   LOVE U 2                     
+                                                   LOVE U 2 - LOVE THIS BLUE    
                                                                                 
   this is what we asked for people. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
