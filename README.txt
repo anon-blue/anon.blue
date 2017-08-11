@@ -1,5 +1,5 @@
-     A berlin? Oui, le temps y faiasdf     no i'm Nobody home?          V Can I 
-llofh i loce I love her s?          Bonsjours à toues et à toutes, zujourd'hui à
+     A berlin? Oui, le temps y faiasdf     no i'm typing here mang      you can 
+do youwah  there was a little boy   Bonsjours à toues et à toutes, zujourd'hui à
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
 l'heurjyuiwasi st. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
