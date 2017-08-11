@@ -1,17 +1,17 @@
                                                                                 
                                                                                 
                                                                                 
+              chingchonglinglongtingtognggnkfdsksjssdgsisajazjsnsasnx           
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                  niggerniggerniggernigernigger                                 
                                    now i feel empty.                            
                                                                                 
                                                                                 
-                                                                                
+                                     towards the end------->follow the ar       
                                                                                 
                                                                                 
                                                                                 
@@ -35,7 +35,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                 ] ] °]° [ [                    
                                                                                 
                                                                                 
                                                                                 
