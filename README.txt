@@ -53,7 +53,7 @@ neless bonelessge
  backspace eitherm? this is crazy. im so loneoly. lonely*** and very high       
                                        numb               alienated             
                                                     detached                    
-                                     ant empreror?d                             
+isolation                            ant empreror?d                             
                                                                                 
                                                                               ap
 athy                                                                            
