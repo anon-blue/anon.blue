@@ -43,8 +43,8 @@ quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                  i'm trapped on this line..  eve
-rybody libre  Les déconnections sont rapides           ,llllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see i
+t green too and when I close my llllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 _____________________________Ste   Still alone - not just quebec libre _________
 _______________________________________just don't jump__________________________
