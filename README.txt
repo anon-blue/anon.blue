@@ -52,8 +52,8 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                    ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;Have I ever told you s
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(kkk
-kkkkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello  
+dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(887
+86()98=======D  ````^^^^                       why tiyping something?asdfhello  
                                                        ;;;;;;;;;;;;;;;;;;;;helo 
 mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfgd
 fg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;       
