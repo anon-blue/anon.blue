@@ -31,8 +31,8 @@ make a hit'. talking about bread? that's an interesting subject now i'm hungry.
                                 is there such a thing?                          
                                                                                 
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
-.ksdhf.dnfg.sdhnfgk.jsdfnksjdhnjdfg,kjsdgkjsdfghjkfhgkdjfhgkdfjhgkdfjghkdfjhgkdf
-ghkdjfghkdjfghkdfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
+.ksdhf.dnfgIt'better to be dldiediediediediediediediediediediediediediediediedie
+diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
 jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
 jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldkfjgldfk <-- so true       
                fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
