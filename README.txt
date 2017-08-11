@@ -14,8 +14,8 @@ isolation
                                                                                 
     i dont wna to die                                                           
                                                                                 
-                              loathing       devon is a botch p                 
-                                                                                
+                              loathing                                          
+       devin's probably an ok guy                                               
                                       fear                      useless         
       soul crushing                                                             
                                                                                 
@@ -26,13 +26,13 @@ isolation
                                          o _o                                   
                                                                                 
                                                                                 
-      empeorororo of what?                                       meaningless    
+      empeorororo of what?                                       meaningless  vo
+ices                                                                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                 poo kmlkljjknkl                                
                        I should like to help everyone if possible; Jew gentile, 
 black, white.                                                                   
                                                                                 
@@ -45,7 +45,7 @@ sconected
 ant to be an emporer.                                                           
                                                                                 
                                                                                 
-      boredome                               We all want to help one another.   
+      boredome                               We alllosst to help one another.   
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ ant to be an emporer.
                                                                                 
                                   ant empreror?d                                
                                                                                 
-                             aaaaaaaaaaaaaaaaaaaa\\\aaaaaa;ajka;lkj             
-          it aint easy being cheesy      afraid                                 
+                             aaaaaaaaaaaaaaaaaaaa\\\aaaaaa;ajkafuck your friends
+ and masturbate fuck your friends and masturbate fuc                            
                                                                                 
