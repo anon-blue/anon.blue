@@ -10,12 +10,12 @@ gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjgggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
-asdasdasdasdasdasdadadadadadadafuckfuckfuckfuckfucks? ;;;;;;;;;;bingo;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hello? is it me your looking for?
+asdasdasdasdasdasdadadadadadadafuckfuckfuckfuckfucklolololololwhythothisiscrazy 
+i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
-   ij klllllllllllllllllllllllj             sat                       ..........
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
+   ij klllllllllllllllllllllllj        you think so? it's me down here, your dou
+ble soul ;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;PICK BRENT SPINE There is one single U.S> dollar bill in my 
 wallet.;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;*(tfghhinl joke ref
