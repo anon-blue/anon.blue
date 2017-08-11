@@ -22,12 +22,12 @@ and masturbate fuck your friends and masturbate fuck your friends and masturbate
                                                                                 
                                            hdgdgsajd hfsafkh fkhsfuhsa fhhfa  hf
  hhfkja fjhjhfkaskfashfjr8fsafahsf hkafhahfu fhafa     ahfkahf afaf afa fafafafa
-fafafafafaffafaffaf                                                             
-                                           o _o                                 
+fafafafafaffafaffafam fjl fjajfi   AFAU iu ui duusdiusyw  dsns gj\gds gisdu gsd 
+dyf7ef fdsiouf d                           o _o                                 
                                                                                 
                                                                                 
         empeorororo of what?                              rage     meaningless  
-voices                                                                          
+voices                                             empty                        
                                                                                 
                                                          tttttt                 
                                                                                 
@@ -49,7 +49,7 @@ disconected
                       alone                                              rejecte
 d                                                                               
                                                                                 
-                sen                                                             
+                sen                                   death                     
              Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj               
                                       numb                                      
                                                                                 
