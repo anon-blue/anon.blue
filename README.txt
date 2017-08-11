@@ -39,8 +39,8 @@ weifuck shitsksisisskkksissisisiisgjgxgjgddhkkfewrumncethkijbfedvnkiyfedvbjkuygh
 m,nvxaqsvjihfcvnjhfddcvhjuyredvbnjiuyyjjnvd//:;)$865)'mingfswecbnjugfcbnhfffbbnn
 jhgfr()7(::( !876?€#}YUH LIEK JAZZ                666CNN666                     
              POPE IS MEH                                                        
-                  WTF was jusno np no no this not an alphabet.                  
-                                       are                                      
+                  WTF was jusno np no no this not an alphabet. i guess humans ar
+e a nuisance                           are                                      
                                    impermanent                                  
                                                            v vwoah dudeks'd;lfk;
 lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?           
@@ -49,7 +49,7 @@ lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?
                                    xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;bush ddi dwtf is;whr
 ong with epeople hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[
-ķłəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;;
+ķłəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;;; je   ;;;;;;
 ;;;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;            hhjhhh                 
         pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
