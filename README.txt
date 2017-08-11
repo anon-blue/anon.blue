@@ -7,12 +7,12 @@
        saaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaas   call      
                                                               (408) 531-7839    
-                                                                                
-                                                                                
-                        I want the meetings to be over  :(                      
-                                                                               h
-hhh                                                                             
-                            fdgfdgdhfdgdf           hghjfjh                 LONG
+                                                              ask for sadok     
+                                                              tell him his pup  
+                                                              is cute ( husky ) 
+                                                              ask him if miami  
+                                                              is a nice place to
+                                                                            LONG
  LIVE TRUMP. LOVE LIVE THE REPUBLICAN PARTY, TRUE PARTY OF GOD, DEATH TO THOSE W
 HO OPPOSE US                                                                    
          yo yiyo no no no                                                       
@@ -54,7 +54,7 @@ __________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM
                                                                                 
                                                                                 
                                                                                 
+                                       t  e  the                                
                                                                                 
-                                                                                
-                                                                        end     
+                                                                       end      
                                                                                 
