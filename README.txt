@@ -47,7 +47,7 @@ ion your little “clever” comment was about to bring down upon you, maybe you
 ld have held your fucking tongue. But you couldn’t, you didn’t, and now you’re p
 aying the price, youddzop stop stop stop stop stop stop stop  sto  stop you are 
 wrtinging intoumy text idiot stio istop ist stoooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
+oooooooooooooooooooooooooooooooooooooooooooo o0 0 0 0 oooooooooooooooooooooooooo
 ooooooooo cooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooop okay? okay! you do
 nt have andy army :) and you dont have any arma army fuckn backthing button. I w
