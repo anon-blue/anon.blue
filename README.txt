@@ -1,5 +1,5 @@
      A berlin? Oui, le temps y fait beaucoup      Nobody home?          V Can I 
-make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
+llofh i loce I love her s?          Bonsjours à toues et à toutes, zujourd'hui à
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
 l'heurjyuiwasi st. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
 i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
