@@ -52,8 +52,8 @@ THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO
 are making yu want to jump...just the parasites...really..."                  h 
     so why not go nanyo                 The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhh                                                                             
+hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now                  
+      life is pretty good atm                                                   
       h                         hhh                                           dd
 dddddddddddunkdfudgy knockers blap                                              
                                                everybody here is insane i swear 
