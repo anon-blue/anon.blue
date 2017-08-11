@@ -5,11 +5,11 @@ sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df
                                asdkm,im scARED of fallling in love againpoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
-                                                   hello?h man yo whats fucking 
+                                                   hello?.............s fucking 
 good my niggerb XD                                                        HERE  
   holy fucking sthis isn't good.  ndarittoconiconfessidon't love anybodytand im 
 desperateand depresedck!? lolefw                                                
-     ballfungus is a nasty affliction        doot d                   SNUS      
+     ballfungus is a nasty affliction   oops, now i ga ve it to yopu  SNUS      
                                                                               sh
 ablagooodoohow does thsi go niooanythis googogole.comslsoenghhahahahwo0101111212
 41442dasthe lazy brown dgo jujmped   er ethe lazy xfovsseeerreereeerrrrewwwww3 I
@@ -41,7 +41,7 @@ e ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks
 jkmmmmmk Hello? I don't thgewwwhatboobsi want to die                suck it b;ue
  screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
-                                                   ??? Me                hi what
+                                                   ??? Meow              hi what
 s koing on?           hello woah dude.iad              .l.                      
          get kong make her scared of it   12323456                             h
 hhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
