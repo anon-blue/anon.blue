@@ -2,8 +2,8 @@
 make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
 To sleep to make dreams? fait jour, mais c'est en très grande partie à cause de 
 l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. Le temps réel qu
-i passe, pour être exact.                  kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
-kkki just want to sleep forever pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
+i passe, pour être exact. ASPTT. ASPTT. ASPTT.                                  
+                                                                     kh pogkh pf
 okh pfoghp ofkghp ofgphof kgphok fpgohk fpgokh pfogkpfoghk pogkhp ogh gffgfghfgf
 ghğp0909k0kı0ok         oh i get it sn=smart this is a crazy honecettttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
@@ -38,8 +38,8 @@ jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
 t - like words dac dancers - fffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
-                  j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSviveSSSS
-SSFFFFFFFFFFFASF' WEA'L hello down there. i'm bret. you? is it sunny? oh i hope 
+                  j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
+quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                                                 
