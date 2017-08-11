@@ -46,9 +46,9 @@ Im gay sp o                                                              lol[
                                                                                 
                             this is the empty feeling thiI'm te one             
 THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
-                                                         die                    
-                                                                  fff f         
-  hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
+                                                         dddddd                 
+                                                                  fff fff fff ff
+f fff fff fff fffhe looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
     so why not go nanyo              mayonnaiseody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
