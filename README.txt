@@ -25,8 +25,8 @@ kkdplease sucyka blyat                 INJE TING THE BOIH this is tI am bill. if
 bro iPuto el que lo lea lol                   This an opportu ity to say anythin
 g and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxxnxnns
 j jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverwritte
-n is werid Once there was a man named kenneth mckracken  donkey cum stain donkey
- eveI     want    to huh? What the crap is thfffguyabaguyanall you people?  very
+n is werid Once there was a man named kenneth mckracken , he lived in tree down 
+bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people?  very
  nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political messa
 ges intensifies        hello am I good enough?                                 f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfassssss
@@ -48,8 +48,8 @@ hhhh Hi thdre.kkkkkgggggggggyggggggggggggggkkkkkskfdsmkdfskfdjmmqlsdkfjmqyougott
 a be kiddin me ssqdqdsqdsd ddddddddddddddddddddddddddddddddddddddddddddddddddddr
 time to go time to leav tyime to end time for thyme time to space time is runnin
 g timer time timedddddddddddddddddddddddddddddddihyhyhyhyhyhyhyhyhyhydaddydadywh
-ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhyhy
-hyhyhTOUCH MEV TILL I CAN GET MY* something terrible happerned herehyhyhyhyhyhyh
+ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhhyhyhykn
+gguuten tAg guten L I CAN GET MY 547I5F4C7I0N I CAle happerned herehyhyhyhyhyhyh
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
