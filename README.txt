@@ -2,7 +2,7 @@ anuxnebhxnunnjnc iin wnxnu xwunxwh jns wj ccwcwxw    w             moonmoonhhhhh
 ndlsøsøsøsøsøsøsøøsøsøsøsøsøsøsøspssppspspspspspspdodododododoodododododpdpdådåd
 hhædædæfæfææfæfæfjuliusdioiiiioooffhhbe! check it outøøpenisødødødødødødødøasdfa
 sdfasdf asdpfoijsdpgaojpgoaisndanfmaposdfipoasidfaposdngpoasnfg  asdfas df      
-                               asdoginngpaodfnangaposdfnasodfmposmpofinapoigw ot
+                               asdkm,im scARED of falllnasodfmposmpofinapoigw ot
 ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
                                                       yeah man yo whats fucking 
@@ -38,7 +38,7 @@ r, CAf   StrangI am serious please asend help before it is too late for me
 Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!             
                 riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
-jkmmmmmk                                                                        
+jkmmmmmk Hello? I don't thget how this works ummmmm                             
              im bored...    kkkk just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
