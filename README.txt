@@ -38,18 +38,18 @@ m really doing lil : nobody does:                hujjujjjujjjjjjjjghjhgm
                                                                                 
                                                                                 
                                                                                 
-                                   x   ddk\ddddddddddkikldddddddddddd           
-             d       a q p                                                      
-                k kkw    w   a q p                                              
+         ss==oh,man,youcantdelete characters at all...this is i fuck typo...this
+ is hjust going to get filled with racism and memes until more racimsmmswmsmsmsm
+ and meems over fill it like the tides of the ocean                             
                                  Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaa                                                      
                 hello?                                                          
-                                                                                
-                                                          jiooü+mälökmlömlmlömkl
-mlkmölmlmölömmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmm   mmmmmmmmmmmmmmmmmmmmmmmmmm  mmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+        hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=                  
+                                                          jnunwhaä oh okay so ev
+erything i write is being unwritten. i feel like a natasha beddingfield song. I 
+wish i were high man. are you real? am I real??????? what's happenigmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmhhhhfffffffffflmfao hows it going ghhhhhhhhhhhhhhhhhhhhhoooooooo
 oooooooooooooooooooooooooooooooooooooook,,,,,,,,,,,,,,,,,,,,,,,,................
 ............................................................................neck
