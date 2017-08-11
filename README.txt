@@ -2,7 +2,7 @@
     fuck                                                               hi       
                         hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
-k about sex and mastermabation     our friends and masturbate fuck your friends 
+k about sex and mastermabation     our friends aheamasturbate fuck your friends 
 and masturbate fuck your friends and masturbate fuck your friends and masturbate
  dddddddddddddddddddddd             ponies                                      
                                                       : ()p-0-=                 
@@ -40,21 +40,21 @@ distredd                                              fdasjnflsk4
                                          Human beings are like that.            
 disconected                                                                     
              rage                                                               
-                          paranoia hatred                                       
+                          paranoia hatred       consume                         
                                       p ulp               I'm sorry, but I don't
  want to be an emporer.                                                         
-    obedianc,                                                                   
+    obedianc,mybbeain full of puddin  and eggs                                  
                                                                                 
-        boredom mindleesssssssssss             We alllosst to help one another. 
-                      alone                                              rejecte
-d                                                                               
+         boredom mindleesssssssssss             We alllosst to help one another.
+                       alone                                              reject
+ed                                                                              
                                                                                 
-                sen                                   death                     
-             Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj               
-                                      numb                                      
-                                                   detached                     
-                                    ant empreror?d                              
+                 sen                                   death                    
+              Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
+                                       numb                                     
+                                                    detached                    
+                                     ant empreror?d                             
                                                                                 
                                                                                 
                                                                                 
-                 ds and                                                         
+                  ds and                                                        
