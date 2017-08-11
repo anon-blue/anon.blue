@@ -1,7 +1,7 @@
-     A berlin?                                    Nobody home?          V Can I 
+     A berlin? Oui, le temps y fait beaucoup      Nobody home?          V Can I 
 make a cry with your lips?          Bonsjours à toues et à toutes, zujourd'hui à
- Berlin sur la Saône, il fait jour, mais c'est en très grande partie à          
-              chingchonglinglongtingtognggnkfdsksjssdgsidssdzjsnsasnx           
+ Berlin sur la Saône, il fait jour, mais c'est en très grande partie à cause de 
+l'heure qu'il est. Eneffet, vers minuit, il devrait faire nuit. sasnx           
                                            kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
 kkkkşklkşlkghfghfghfghpofghpofk pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
 okh pfoghp ofkghp ofgphof kgphok fpgohk fpgokh pfogkpfoghk pogkhp ogh gffgfghfgf
