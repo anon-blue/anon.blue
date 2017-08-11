@@ -47,11 +47,11 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                                       arr t                                     
                                                                                 
                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;; ;;;;;;live laugh love;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;
+;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;as
+dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                         
-      pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;a;;;;;;;;;kdddddddddddddddddddd
+      pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;this is weirddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(88
 786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello 
                                                         ;;;;;;;;;;;;;;;;;;;;helo
