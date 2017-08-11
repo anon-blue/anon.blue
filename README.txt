@@ -9,7 +9,7 @@
                                                                                 
                                                                                 
                                                                                 
-                        I want the meetings to be ovber :(                      
+                        I want the meetings to be over  :(                      
                                                                                h
 hhh                                                                             
                             fdgfdgdhfdgdf           hghjfjh                 LONG
@@ -37,8 +37,8 @@ and the real tadegy of our existence is our bitrth
                                                    praise trump                 
                                                    ] ] °]° [ [                  
                                                                                 
-                                                                                
-                                         t    he summee is infinite             
+                    jj;   ;;hjj with her I am alone                             
+                 j j yourself            t    he summee is infinite             
                                                                                 
                                                             班我们的心情好的吧唧了吗啡的确有了了吗啡
 的了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                         
@@ -51,7 +51,7 @@ and the real tadegy of our existence is our bitrth
   个头晕车上                                                                         
                                                                                 
                                                          i've had a loooong day,
- i just want to smoke already                                                   
+ i just want to whoamialready                                                   
                                                                              ple
 ase read me.                                                                    
                                                                                 
