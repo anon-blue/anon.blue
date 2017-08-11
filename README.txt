@@ -29,8 +29,8 @@ d about conspiracy theories. idon't even take care of my kinds anymore? like how
 ou know. i love them conspiracy teheories. thank s for listening to me. i like y
 ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
 y else                          is there such a thing?                          
-                              Tellement de douceur      sssds                   
-I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
+                              Tellement de douceur      sssdssssssdasssssdasdass
+adkjjjjhey wah u must knmow                           nbvbnn     Hey! fFdjfhkxxf
 .ksdhf.dnfgINOT YET NOT YET                                                     
                                                 You're right, this is RED     He
 llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
@@ -44,8 +44,8 @@ stnikain for too long. it may not open again adterwardo. i tested me!? oh i hope
 S THIS IS BRETTY Gvasdfasfance here, but i lived in coocadoo before..... hahaha 
 no youre nhi thereable at all :)                  i'm trapped on this line..  ev
 erybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
-it green too and when ItrwvhsrIt's me%!Can someone read this?Maybe from UPGRADE?
---------------------------------------------------------------------------------
+it green too and when ItrwvhsrIt's me%!Can somhey u must know I loved u, Cause u
+ aaaaaare always ---------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
