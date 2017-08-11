@@ -1,14 +1,14 @@
                                                                                 
-                                    aaaaaavivalaafrance    communism wiaaaaan f 
-              %J~[]aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                         
-                                                                                
-                                                   n Hell                       
                                                                                 
                                                                                 
                                                                                 
-                                                                       aaaaaa   
+ ...............................................................................
+.......................imcoming.................................................
+.................................bith.....................bii                   
+                                                         YOU FUCK YOU,          
+                                                                                
+                                                                                
+                                                        PUTIN OWNS THIS SITE    
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ mbklfx;lvkmbnk;dfjlxkvfko;ksjobdfsn bkhello kmbnkj;dsc,bv;ocvskkkkkkk kkkkkkk
                                                                                 
                                                                                 
                                                                                 
-                                                                      i am noth1
-010011110111101010101mmm10101110111011101111001000011101110111010110101110100011
+                                                                                
+  pinkie is best pony                                                           
                                                                                 
