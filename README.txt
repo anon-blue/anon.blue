@@ -26,14 +26,14 @@ fjaiwejfoiajweoifjdkjfkqlkdfjlskdjflskdjflseefsdfeeejjjjjjjjjjjjjjjjjjjjjjjkkkkk
 kkkkkkkkkkkkkkkkkkkkklkdjfa;sldkfja;lksjd;flkjaslkdjflkadjfklasdjflak;jsldjfkalk
 sjdfI have thoughts of fucking my owbn bodyrent damsels. Had sex in public numor
 eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
-                                                                                
-                                 fat fst fat                                    
-               voces precisam tomar rivefsdfosdjfodnanana                       
-                                                                                
-                       ?                     ffghdfhffgdfhhello 6               
-                        / ? /                                                   
-                                                              who ? who is jesus
- ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
+                                         sively trained in unarmed combat, but I
+ have access to the entire arsenal of the United States Marine Corps and I will 
+use it to its full extent to wipe your miserable ass off the face of the contine
+nt, you little shit. If only you could have known what unholy retribution your l
+ittle “clever” comment was about to bring downfghdfhffu, maybe you would have he
+ld your fucking tongue. But you couldn’t, you didn’t, and now you’re paying the 
+p       ou goddamn idiot. I will shit fury all over you and you will drown in it
+. You’re fucking dead, kiddo.Wckintacting my secret networkis nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
 weifuck shitsksisisskkksissisisiisgjgxgjgddhkkfewrumncethkijbfedvnkiyfedvbjkuygh
 m,nvxaqsvjihfcvnjhfddcvhjuyredvbnjiuyyjjnvd//:;)$865)'mingfswecbnjugfcbnhfffbbnn
@@ -54,7 +54,7 @@ ong with epeople hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ
         pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
 88786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhell
-o                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
+o   i can see you in your room             jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
 lo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghs
 fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3 bod
 ies die                           penis                                         
