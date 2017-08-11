@@ -31,14 +31,14 @@ make a hit'. talking about bread? that's an interesting subject now i'm hungry.
                                 is there such a thing?                          
                                                                                 
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
-.ksdhf.dnfgINOT YET NOT YET ldiediediediediediediediediediediediediediediediedie
-diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfhjHe
+.ksdhf.dnfgINOT YET NOT YET                                                     
+                                                You're right, this is RED     He
 llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
 h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
 ll guarded by space structures and beings only insde your brian chcmidals       
                                                                                 
-                                          I am alone still                      
-                  j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
+                                          I am alone still          HAHA i knew 
+that i was seeing well. uSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
 quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
