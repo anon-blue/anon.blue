@@ -16,8 +16,8 @@ kek
                                                                                 
                                                                                 
                                                                                 
-                                                                   koool aid    
-                                                                                
+                                                                   koool aid isn
+'t so bad                                                                       
                                                                                 
                                                             aww. well time to di
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
