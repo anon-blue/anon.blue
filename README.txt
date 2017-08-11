@@ -49,8 +49,8 @@
                                                                                 
                                                                                 
                                                 e bac   t  this? Whatthe fuck is
- going on? It's mobin around and shit                                           
-                                                                                
+ going on? It's mobin around and shit like a mob droop kek...Welcome tpo paradoi
+se paraboidse abdroio                                                           
                                                                                 
                                                                                 
                                                                                 
