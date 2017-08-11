@@ -2,9 +2,9 @@
                                                                                 
                                                                                 
    jhkjhlkjhjkhjkhhhjhholyshit this is crazyyyyyyy what is all of this?!?!?    j
-hhjhjhjhjhjhjhjhjhmnllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-l  lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllll                                                                  
+hhjhjhjhjhjhjhj                                                                 
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ d me, just hate e
                                                                                 
                                                                                 
                                                                           fasdDA
-S Always tired...                                                               
+S Always tired...                                         take a nap            
                                                                                 
                                                                                 
