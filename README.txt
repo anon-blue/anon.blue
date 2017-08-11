@@ -44,7 +44,7 @@ EL BEEMS if tommy has tliberalizmhilaryclintonhates americal CANT MELT STEEL BEE
 MASSOJZNENIANS                                                         hhhh     
 Im gay sp o                                                              lol[   
                                                                                 
-                            this is the empty feeling thiI'm te one             
+                            this is the empty uphuntwhat                        
 THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
                                                          dddddd                 
                                                                   fff fff fff ff
