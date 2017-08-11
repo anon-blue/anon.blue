@@ -32,9 +32,9 @@ ggggggggggggggggg;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 i;;;;;;;;;;;what is this                                                        
                 nbmy      my name is ronald    there is no god                  
 tfuckintrustyouii iiiiiiiiiiiiiiiiiquestion everything                          
- eve you,andevegrubbing youand you and erything aroundyou isindependentisunfeasi
-bleisimpeachmentisimpermanent take notwhatihavegiventoy                         
-                                                                                
+ eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
+ or otther people ,  tttttt                                                     
+                          TRUMP              LOL jk                             
                                    You                                          
                                     are                                         
                                   doomed                                        
@@ -55,6 +55,6 @@ bleisimpeachmentisimpermanent take notwhatihavegiventoy
 dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkk                           why tiyping something?asdfhello  
                                                        ;;;;;;;;;;;;;;;;;;;;helo 
-mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;                
+mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;                
                               ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;       
                                penis                                            
