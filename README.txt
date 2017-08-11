@@ -29,7 +29,7 @@ storm blew a table through the old men, he pushed the table. Time to suck the di
 cks. Get up on top the table, much to the old men's surprise, was made of mahoga
 ny, table that morning6gghhhhjjjjjj                       Silver Bells they ri  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
-        hhhhhhhh                                 yooo                       njjj
+        hhhhhhhh                                 yooo, can anyoene here me?===jj
 djdijijdjvddjjjjjjjjjjjjjjjjjjjjjjjjjjjjkhello niggwe   eeebbeilhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
@@ -47,7 +47,7 @@ Im gay sp o                                                              lol[
                             this is the empty feeling thiI'm te one             
 THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
                                                          die                    
-                                                                                
+                                                                  fff f         
   hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
     so why not go nanyo              mayonnaiseody pustules were now swelling to
@@ -56,5 +56,5 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now
       life is pretty good atm                                                   
       h                         hhh                                           dd
 dddddddddddunkdfudgy knockers blap                                              
-                                               everybody here is insane i swear 
+ fggv                                          everybody here is insane i swear 
 emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w 
