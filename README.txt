@@ -26,14 +26,14 @@ Now it wil rainWe are in the place, a blue one. No?
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
 emselves or a real human being? they all seay that, prove it :)  h yes please !!
 !! if you are not in the same country, i don't care, i just want a nice song. re
-ally blue yes,                                                                  
+ally blue yes, it's very very blue                                              
                                                                                 
                                is there such a thing?                           
                                                                                 
                                                                                 
                                                   putting things lin places and 
-then ask                                                                        
-                                                                                
+then asking for them to be read is iuultiomate futility.  choice is an illusion 
+and the real tadegy of our existence is our bitrth                              
                                                    praise trump                 
                                                    ] ] °]° [ [                  
                                                                                 
