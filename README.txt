@@ -18,8 +18,8 @@ you
                                     dont know if that was ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
                                                                                 
-            i guess so whats up america not me im still awake AMERGIBA   where y
-ou at                            I'mthere. yes I think you know. Of course. Of c
+            i guess so whats up america not me im still awake AMERGIBA IS W)-0KE
+RN                               I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
  Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Fran
 ce?  - Yes it's true We I would like to Wich name??I can try. The name is perfec
