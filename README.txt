@@ -26,14 +26,14 @@ an that thought he knew them all. A n average looking guy with a tendency oto sm
 oke weed and an above average knowledge;in music. They called him the virgin whi
 sperer because he was the first of 5 different damsels. Had sex in public numore
 ous times and, idk where im going with this. im too hiiiiigh lost my job chillin
-g chilling;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;are we too aware;of purselves dam
+g chilling. You all should suppot this artist collective called nowigo.elves dam
 n fat gfingers;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                                   
         rooty k foot ronaldy name is ronald    there is no god                  
 tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfjesus who ? who is jesus 
-? the back space is back in space!                                   butts are a
+? the back space is back in space!               woot who is nowigo? butts are a
 lrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is w
 eird                                                        YUH TYUH YUH        
                                           u ya like jazz                        
@@ -48,8 +48,8 @@ eird                                                        YUH TYUH YUH
                                                                                 
                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;as
-dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[ķł
+əřįčķ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                         
       pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;this is weirddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(88
