@@ -7,12 +7,12 @@ ipo ia h g t40430aergoaierjt09qwat oisngpoidfnzzzzzzz a asd  fa sbbbbbbbbbbbbbbb
 bbbbbbbhhhhhhhhhjjjjjjjjjjjjjjjjjjjjjjjjjjgggggggghghgggggggggghhhhhhhndogGOD   
                                                       yeah man yo whats fucking 
 good my niggerb XD                                                        HERE  
-  holy fucking srtgdqué está suciendarittoconiconfessidon't love anybodytand im 
+  holy fucking sthis isn't good.  ndarittoconiconfessidon't love anybodytand im 
 desperateand depresedck!? lolefw                                                
      ballfungus is a nasty affliction        doot d                   SNUS      
                                                                               sh
 ablagooodoohow does thsi go now anythis googogole.comslsoenghhahahahwo0101111212
-41442dasthe lazy brown dgo jujmped   er ethe lazy xfovss                        
+41442dasthe lazy brown dgo jujmped   er ethe lazy xfovsseeerreereeerrrrewwwww3 I
                                     I have a bonner          byron from napier  
     §♀☺§§§☺ interestincoolieb:)dfiiibgfjjjgfhbuhggbjbbhhgyuooooooooooooooooooooo
 oooooooooooooooooooóookiehiqqqqqqqqqqqqqqqqqqqqqq                               
