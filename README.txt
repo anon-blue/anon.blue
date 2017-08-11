@@ -14,10 +14,10 @@ gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hello? is it me your looking for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
-   ij klllllllllllllllllllllllj                                       ..........
+   ij klllllllllllllllllllllllj             sat                       ..........
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;how do i really know im not crazy????;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;PICK BRENT SPINER;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;PICK BRENT SPINE There is one single ;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;*(Original joke ref
 eriing to the character from the hit televison show "rick and Morty" :Pick le Ri
 ck")*;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hy hugsfds jf ;;;;;;;;;;;;;;;;;;;
@@ -48,7 +48,7 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                                                                                 
                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;; ;;;;;;live laugh;;;;;;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;
+;;;; ;;;;;;live laugh love;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                         
       pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;a;;;;;;;;;kdddddddddddddddddddd
