@@ -22,10 +22,10 @@ kek
                                                             aww. well time to di
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
                                                                                 
- fuck you man why i am even writing something umm help i dunno what's heappaning
-istherea god why are we alive im tripping balls man if someone see this know tha
-t im in da fucking 5th dimoanision bro oh shit i fucked that up i can't delete i
-t oh                                                                            
+ fuck you man why i am ev                                                       
+                                                                                
+                                                                                
+                         wt          f help meeeeeeeeeehelphelphelphelp         
                                                                                 
                                             lkknknkkritten                      
                                                                                 
