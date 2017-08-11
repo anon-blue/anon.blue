@@ -29,14 +29,14 @@ ous times and, idk where im going with this. im too hiiiiigh lost my job chillin
 g chilling. You all should suppot this artist collective called nowigo.elves dam
 n fat gfingers;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SSSSSSSSSSSSSSSSSSSSSSUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                                   
-        rooty k foot ronaldy name is ronald    there is no god                  
+UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH                              is th
+e anyonerooty k foot ronaldy name is ronald    there is no god                  
 tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfjesus who ? who is jesus 
 ? the back space is back in space!               woot who is nowigo? butts are a
 lrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is w
 eird                                                        YUH TYUH YUH  9     
-                                          u ya like jazz                        
+                                         uuyyaalikejjazzzzzzzzzzzzzzzz          
                    YUH                             CNN                          
            pepe is raacist                                                      
                 WTF was just typed  You                                         
@@ -45,7 +45,7 @@ eird                                                        YUH TYUH YUH  9
                                                          v vwoah dudeks'd;lfk;lk
 ';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?             
                                       arr t                                     
-                    great gr                                                    
+                great green gobs                                                
                                  xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;as
 dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[ķł
@@ -54,7 +54,7 @@ dfasdfajwtf is hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[�
       pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(88
 786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhello 
-                                                        ;;;;;;;;;;;;;;;;;;;;helo
+                                         jazzyfunky     ;;;;;;;;;;;;;;;;;;;;helo
  mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfg
 dfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3      
                                 penis                                           
