@@ -30,13 +30,13 @@ i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
                                                                                 
-                                                      nbvbnn     Hey! fF        
-                 n o                               putting things lin places and
- then asking for them to be read is iuultiomate futility.  choice is an illusion
- and the real tadegy of our existence is our bitrth                             
-                                   aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                                                      nbvbnn     Hey! fFdjfhkdjf
+.ksdhf.dnfg.sdhnfgk.jsdfnksjdhnjdfg,kjsdgkjsdfghjkfhgkdjfhgkdfjhgkdfjghkdfjhgkdf
+ghkdjfghkdjfghkdfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
+jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
+jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldkfjgldfkjgldfjgldkfjgldfkjg
+ljgldfjglkfjglkfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
                   j j yourself it happens you know . it will get better   nonono
  fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope 
