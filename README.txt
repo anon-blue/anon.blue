@@ -43,14 +43,14 @@ fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope t
 he stars are beautiful. of course. never went there. california wseems a nice pl
 ace though. cool from france here, but i lived in canada before. fra.. hahaha no
  youre not miserable at all :)                                                  
-           i prefer english even if my mother tongue is french. t pollution galo
-re. No stars tonight==================== my life here has been generally positiv
-e and without bmajor complaints. Where are you from? I have a friend from french
- canada who I play video games with. He says J'taime to his girlfriend and I thi
-nk it is very cute. I never learned french. Je suis miserable. hahahaha.        
-                                                                                
-                                                       No I am not              
-                                                                                
+           i prefer english even if my mother tongue is french. what is going on
+? uh no plea e. i am non =======================================================
+=======================--------------------_____________________________________
+________________________________________________________________________________
+________________________________________________________________________________
+THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED ________________________
+________________________________________________________________________________
+__________COME OUT WITH YOUR HANDS UP_________________________________A         
                                                                                 
                                                                                 
                                                                                 
