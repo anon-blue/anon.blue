@@ -26,26 +26,26 @@
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
--------------------------piracy teheories. thank s for listening to me. i like y
-ou.ay  whatever we think or do.  i'm just a nobody with internet   like everybod
-y else                          is there such a thing?                          
-                              Tellement de douceur      sssdssssssdasssssdasdass
-adkjjjjhey wah u must knmow                           nbvbnn     Hey! fFdjfhkxxf
-.ksdhf.dnfgINOT YET NOT YET                                                     
-                                                You're right, this is RED     He
-llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
-h friends therWHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAATTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTT ?????
-?seg                     rrrereerfffggv                                         
-                                           I am alone still          HAHA lkjhkj
-hkjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hra
-stnikain for too long. it may not open again adterwardo. i tested me!? oh i hope
- the stars are beautiful. owahsatawawrwarawrwarwarwarYOU WHAT TOPPEST OF THE KEK
-S THIS IS BRETTY Gvasdfasfance here, but i lived in coocadoo before..... hahaha 
-no youre nhi thereable at all :)                  i'm trapped on this line..  ev
-erybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
-it green too and when ItrwvhsrIt's me%!Can somhey u must know I loved u, Cause u
- aaaaaare always so cute and charming..-----------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+-tnikain for too long. it may not-----------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
