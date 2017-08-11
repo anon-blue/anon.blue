@@ -42,15 +42,15 @@ hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
  lane, snow is glistenin' I said hey, hey hey, I said hey,Whats going on?!h     
                                                                        hhhh     
-Im gay sp o                                                                     
+Im gay sp o                                                              lol[   
                                                                                 
                             this is the empty feeling thiI'm te one             
 THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
-                                                                                
+                                                         die                    
                                                                                 
   hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
-    so why not go nanyo                 The bloody pustules were now swelling to
+    so why not go nanyo              mayonnaiseody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now                  
       life is pretty good atm                                                   
