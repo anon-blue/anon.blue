@@ -41,7 +41,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAATTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTT ?????
 hkjht i was seeing well. its my specliasadas asd asd ass shrastni k hrastnik hra
 stnikain for too long. it may not open again adterwardo. i tested me!? oh i hope
  the stars are beautiful. owahsatawawrwarawrwarwarwarYOU WHAT TOPPEST OF THE KEK
-S THIS IS BRETTY GUD omageance here, but i lived in coocadoo before..... hahaha 
+S THIS IS BRETTY Gvasdfasfance here, but i lived in coocadoo before..... hahaha 
 no youre nhi thereable at all :)                  i'm trapped on this line..  ev
 erybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
 it green too and when ItrwvhsrIt's me%!Can someone read this?Maybe from UPGRADE?
