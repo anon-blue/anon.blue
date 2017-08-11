@@ -34,8 +34,8 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
 .ksdhf.dnfg.sdhnfgk.jsdfnksjdhnjdfg,kjsdgkjsdfghjkfhgkdjfhgkdfjhgkdfjghkdfjhgkdf
 ghkdjfghkdjfghkdfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
 jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
-jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldkfjgldfkjgldfjgldkfjgldfkjg
-ljgldfjglkfjglkfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldkfjgldfk <-- so true       
+               fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
                   j j yourself it happens you know . it will get better   nonono
