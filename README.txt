@@ -31,12 +31,12 @@ bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people?  very
 ges intensifies        hello am I good enough?                                 f
 ]]]  I'm not sure wgat to say... Damnit *what to say*                asdfassssss
 ssssssssssssHey aAre you serious?ea                                   SNUS      
-                  This is the worst day of myhlife.  Please send help to Whittie
+                  This is the worst day of myhhellohelloase send help to Whittie
 r, CAf   StrangI am serious please asend help before it is too late for me      
                                                                                 
                                                                                 
-Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag         
-                riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
+Is anyone out ejdjdhergiten tag guten tag guten zag  guten agbguten tag ich lieb
+e ddiicchh      riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
                                                                        isthislik
 jkmmmmmk Hello? I don't thget how this works ummmmm                 suck it b;ue
  screen...   im bored...    kkk45just bexaje you feel it dosenr mean uts therege
@@ -52,7 +52,7 @@ ydidyoutouchmeyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhyhihihihyhyhhyhyhykn
 gguuten tAg guten tag gutan tag huten tag guten tag fuckYOU ;)FUCK YOU TOO BITCH
 yhyhyhyhyhyhhello worldhhhhhhhhhhhhhhfpfheeeeeeeeeeeeeeeeeeeeeuskufysdpuyhgiuuhh
 hhhhhhhhhhhhhhhhhhdfwhat is this hhhhhhhhhhhFOLLOW ME IN IG: gggghghhgggg2345 hh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
+hhdwDun      Dungeon      Deungeon hhhhhhhhhhhhhhhhhhhhhhh ksppakappakpapakappah
 hhhhur mom gay kmao hahahahahahahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbhnjbhjjjjjjsuicide thirsdayhdasdfasdfdsafhhh
 hhhhhhhhhhhhhhhhhhhhhhhqhQWERTConsider now. You are alive. Considernow Damnation
