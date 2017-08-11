@@ -24,8 +24,8 @@ urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
 Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Franc
 e?  - Yes it's true We I would like to Wich name??I can try. The name is perfect
 Yes I know fraencht name. "can't dance from france" can you write lyrics? i can 
-sing. ok cool, let's start with a simple rhyme. you know french?opd oooopd oooop
-d! if you are not in the same country, i don't care, i just want a nice song. re
+sing. ok cool, let's start with a simple rhyme. you know french? i don't so it w
+ill have a weird pronunciation but too bad it will be funny.want a nice song. re
 ally blue yes, it's very very blue[[(oooopd                                     
                                                                                 
                                is there such a thing?                           
