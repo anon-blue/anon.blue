@@ -1,6 +1,6 @@
-atus symbol.Bees make too much of it.  Perhaps. Unless you're wearing itandis?  
-  dies see you wearing it.  Those ladies?Aren't they our cousins too?  Distant. 
-Distant.  Look at these two.  - Oouple of Hive Harrys.- Let's have fun with them
+ck up some pollen here, sprinkle iit.   here. Maybe a dash over there,  a pinch 
+on that one.See that? It's a little bit of magic.  That's amazing. Why do we do 
+thatant.  Look at these two.  - Oouple of Hive Harrys.- Let's have fun with them
 .  It must be dangerousbeing a Pollen Jock.  Yeah. Once a bear pinned meagainst 
 a mushroom!  He had a paw on my throat,and with the other, he was slapping me!  
 - Oh, my!- I never thought I'd knock him out.  What were you doing during this? 
@@ -29,32 +29,32 @@ ang on. Two left!  One of them's yours! Oongratulations!Step to the side.  - Wha
 t'd you get?- Picking crud out. Stellar!  Wow!  Oouple of newbies?  Yes, sir! Ou
 r first day! We are ready!  Make your choice.  - You want to go first?- No, you 
 go.  Oh, my. What's available?  Restroom attendant's open,not for the reason you
- think.  - Any chance of getting the Krelman?- Sure, you're on.  I'm sorry, the 
-Krelman junt PollenJocks bring the nectar to the hive.  Our top-secret formula  
-is automatically color-corrected,scent-adjusted and bubble-contoured  into this 
-soothing sweet syrup  with its distinctivegolden glow you know as...  Honey!  - 
-That girl was hot.- She's my cousin!  - She is?- Yes, we're all cousins.  - Righ
-t. You're right.- At Honex, we constantly strive  to improve every aspectof bee 
-existence.  These bees are stress-testinga new helmet technology.  - What do you
- think he makes?- Not enough.  ! INVESTIGATE 311 !!! INVESancement,the Krelman. 
- - What does that do?- Oatches that little strand of honey  that hangs after you
- pour it.Saves us millions.  Oan anyone work on the Krelman?  Of course. Most be
-e jobs aresmall ones. But bees know  that every small job,if it's done well, mea
-ns a lot.  But choose carefully  because you'll stay in the jobyou pick for the 
-rest of your life.  The same job the rest of your life?I didn't know that.  What
-'s the differenceSTIGou'll be happy to know that bees,as a species, haven't had 
-one day off  in 27 million years.  So you'll just work us to death?  We'll sure 
-try.  Wow! That blew my mind!  "What'NVESTIGAfference?"How ESTIGAT say that?  On
-e job forever?That's an insane choice to have to make.  I'm relieved. Now we onl
-y haveto make one decisioTE 311 !e.  But, Adam, how could theynever have told us
- that?  Why would you question anything?We're bees.  We're the most perfectlyfun
-ctioning society on Earth.  You ever thiSTIGATE thingswork a little too well her
-eIGATE what? Give me one example.  I don't know. But you knowwhat I'm talking ab
-out. 311 !!e clear the ga311 !!al Nectar 11 Force on approach.  Wait a second. O
-heck it out.  - Hey, those are Pollen Jocks!- Wow.  I've never seen them this cl
-ose.  They know what it's likeoutside the hive.  Yeah, but some don't come back.
-  - Hey, Jocks!- Hi, Jocks!  You guys did great!  You're monsters!You're sky fre
-aks! I love it! I love it!  - I wonder where they were.- I don't know.  Their da
-y's not planned.  Outside the hive, flying who knowswhere, doing who knows what.
-  You can'tjust decide to be a PollenJock. You have to be bred for that.       .
-  Look. That's more pollenthan you and I will see in a lifetime.  It's just a st
+ think.  - Any chance of getting the Krelman?- Sure, you're on.  I'm sorry, when
+ oulman just closed out.  Wax monkey's always open.  The Krelman opened up again
+.  What happened?  A bee died. Makes an opening. See?He's dead. Ared  indead one
+.  Deady. Deadified. Two more dead.  Dead from the neck up.Dead from the neck do
+wn. That's life!  Oh, thks is so hard!  Heating, cooling,stunt bee, pourer, stir
+rer,  humming, inspector number seven,lint coordinator, stve everpervisor,  mite
+ wrangler. Barry, whatdo you think I should... Barry?  Barry!  All right, we've 
+got the sunflower patchin quadrant nine...  What happened to you?Where are you? 
+ - I'm going out.- Out? Out where?  - Out there.- Oh, no!  I have to, before I g
+oto work for the rest of my life.  You're gonna die! You're crazy! Hello?  Anoth
+er call coming in.  If anyone's feeling brave,there's a Korean ds done 83rd  tha
+t gets their roses today.  Hey, guys.  - Look at that.- Isn't that the kid we sa
+w yesterday?  Hold it, son, flight deck's restricted.  It'idn't kou. We're gonna
+ take him up.  Really? Feeling lucky, are you?  Sign here, here. Just initial th
+at.  - Thank you.- OK.  You got a rain advisory today,  and as you all know,bees
+ cannot fly in rain.  So be careful. As always,watch your brooms,  hockey sticks
+, dogs,birds, bears and bats.  Also, I g have tuple of reportsof root beer being
+ poured  make   Murphy's in a home because of it,babbling like a cicada!  - That
+'s awful.- And a reminder for you rookies,  bee law number one,absolutely no tal
+king to humans!  All righ.  You eh positions!  Buzz, buzz, buzz, buzz! Buzz, buz
+z,buzz, buzz! Buzz, buzz, buzz, buzz!  Black and yellow!  Hello!  You ready for 
+this, hot shot?  Yeah. Yeah, bring it on.  Wind, check.  - Antennae, check.- Nec
+tar pack, check.  - Wings, check.- Stinger, check.  Scared out of my shorts, che
+ck.  OK, ladies,  let's move it out!  Pound those petunias,you striped stem-suck
+ers!  All of you, drain those flowers!  Wow! I'm out!  I can't belieu're sky  So
+ blulove I feel so fast!  - I we!  Box kite!  Wow!  Flowers!  This is Blue Leade
+r.We have roses visual.  Bring it around 30 degrees and hold.  Roses!  30 degree
+s, roger. Bringing it around.  Stand to the side, kid.It's got a bit of a kick. 
+ That is one nectar collector!  - Ever see pollination up close?- No, sir.  I pi
