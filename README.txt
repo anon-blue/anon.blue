@@ -33,7 +33,7 @@ make a hit'. talking about bread? that's an interesting subject now i'm hungry.
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
 .ksdhf.dnfgIt'better to be dldiediediediediediediediediediediediediediediediedie
 diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfhjHe
-llogkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjbuiujjjjpooooo
+llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjgdlfkjbuiujjjjpooooo
 jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
 t - like words dac dancers - fffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
@@ -43,7 +43,7 @@ aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
 o youre nhi thereable at all :)                                                 
-            i Les déconcm dklsmfdsfkd fkdlfk kf adsjkf ,llllllllllllllllllllllll
+            i Les déconnections sont rapides           ,llllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
 ________________________________________________________________________________
