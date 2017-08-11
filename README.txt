@@ -26,12 +26,12 @@ fuck you man why i am ev
                                                                                 
                                                                                 
                         wt          f help meeeeeeeeeehelphelphelphelp          
-                                  mln/kn\\ help me I am sadfgdg969696969696     
+                                  mln/kn\\ help me I am sadfgdg9696969696mjjjjjk
 969696  969696969696969696969696969696969696969696969696969                     
                                                                                 
              well why not it sounds like a fin timefunnnn     vdsight idk what i
 m really doing lil : nobody does:                hujjujjjujjjjjjjjghjhgm        
-                                     drink coca cola                            
+                                     drink coca cola!     u                     
    ...                               8====D~~~~~                                
                                                     no                          
                                                                       jjj       
