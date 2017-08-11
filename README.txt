@@ -35,8 +35,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhThis is the full feeling that morning bringshhhhhhhhhhhhthis is the empty 
 feeling that night bringshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh This is the empty feeling th
-at night brings hhhhnfndnsndhhhhhhhhhhhhhhhhhhhhhhiooiil want to ne freehhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+at nihi how are you doing tonight friends i dont know waht i am typing but i am 
+tying anyways tittes hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhHe looked over thy edge and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites and nothing more" hIn the
@@ -44,7 +44,7 @@ re causing your suicidal thoughts...just the parasites and nothing more" hIn the
                                                                        hhhh     
 h                                                                               
                                                                                 
-                            this is the empty feeling that night brings hhhhhhhh
+                            this is the empty feeling thiI night brings hhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh He looked over the edge of th
 e cliff and said to himself "it's just the parasites in you " hhhhhhhhhhhhhhhhhh
