@@ -2,38 +2,38 @@ moving my hand slowly up and down, no       how soft the skin felt despite how s
 tiff it was. Even her dick seemed girly. I was thinking about sucking it a littl
 e when she suddenly moaned and raised her hips. I instinctively pumped a little 
 harder as I saw a thick white jet of cum shoot out over my hand and land on her 
-stomach. She kept  will be set on the righthand side (when you're facing the fri
-dge). If you switch it to the left, nothing will happen. Your appliances will co
-ntinue to run, the floor won't open into a swirling vortex that leads directly i
-nto the deepest circle of hell. You won't even hear a hitch in the hum of the re
-frigerator. You will get up and brush off and go about your business, you may mo
-ve out of your apartment and leave the refrigerator behind, switch set to the le
-ft like it doesn't even matter.When you die, five years later, the fingers, toes
-, and eyes of an unidentified person will be found in your stomach.iting itself?
-                                                                                
-                                                                                
-                                                                                
-                                                                       it's a fu
-cking desert, hot and dry, nowhere to hide.Rhinoceros. The only problem is that 
-my horn on my head is soft and limp. As you may know this is very devastating to
- a rhino lin.  Maylf. If there are any rhinos out there that can help me with my
- problem it would be appreciated. Please dont copy paste this. This is my story.
-t into a fold-out brochure.  You see? Folds out.  Oh, no. More humans. I don't n
-eed this.  What was that?  Maybe this time. This time. This time.This time! This
- time! This...  Drapes!  That is diabolical.  It's fantastic. It's got all my sp
-ecialskills, even my top-ten favorite movies.  What's number one? let up she wou
-ld kill me. Just then I noticed that she'd mostly stopped struggling. She was st
-ill twisting around a little but it didn't seem like she was trying very hard to
- knock me off. Mostly it was just making my dick rub against her ass even more. 
-After a few moments it dawned on me that she might be doing it on purpose. I'm n
-ormally a bit quicker on the uptake, but the idea that Cassie could somehow *wan
-t* me to dry hump her butt just seemed crazy. Crazy or not, it was starting to f
-eel pretty damn nice. I decided to risk seeing if I could make it even brs?  WhS
-he didn't move have let one of her hands go and worked my shorts open. I pulled 
-her boxers down a little more, then moved back into place with my dick laying on
- her naked butt. I noticed quickly that the feel of skin on skin was much, much 
-better. I moved my hips a little so that my cock rubbed slowly back and forth on
- the crack of her ass. I didn't know if this was what actual sex was lik kkjnkjn
+stomach. She kept flexing her hips as a few more spurts came out, then she fell 
+limp with a long sigh. The sight of her cumming had made my own cock fully hard 
+again. She saw it sticking up as I stood to wipe off my hand and her stomach. Sh
+e groaned and rolled her eyes. "Go to bed, Knob," she said, tugging hm of thrs b
+ack up. "Just remember that I owe you a beating." She grinned evilly and I made 
+a hasty exit before she decided to make good on it. Things were quiet for a few 
+days. It was obvious to me that I was getting more and more attracted to my own 
+sister, and it was just as obvious that it didn't bother me much. I knew it was 
+wrong but it didn't feel like what we did was hurting anybody. Anyway, thinking 
+about it too much just gave me a headache, so I stopped worrying. I did know tha
+t the idea of playing with another guy's dick still grossed me out. With        
+it was different. One afternoon we were doing chores. I'd felt hyperactive all d
+ay, and when I saw Cassie leaning over in the kitchen to get something from unde
+r the sink I couldn't resist the urge to snap her with a damp rag. Her ass was j
+ust too tempting a target. The cloth impacted against her butt with a startlingl
+y loud crack, and she yelped and spun around with murder in her eyes. I ran, lau
+ghing like a maniac the whole time. She cornered me in the living room before I 
+could make the stairs. I tried to fake her out and jump past, but she caught me 
+and tackled me down onto the couch. I did my best to escape, but her wet hands g
+ave her an unfair advantage when grabbing my clothes. They also hurt when she pi
+nd kill face down with her knees in my back and started spanking me hard on the 
+butt. "If you're gonna act like a brat, you're gonna get treated like one," she 
+said, her voice sounding stern though I was sure that she had a huge grin on her
+ face. It wasn't really a typical spanking either. She rested her hand on my but
+t for a little while in between smacks, sometimes even squeezing it a bit. It wa
+s embarrasing and the spanking part hurt, but thazy or nentle stuff felt kinda g
+ood. After a few minutes she suddenly reached underneath me and put her hand on 
+my crotch like she was checking to see if I was hard. And if course, I was. "Per
+v." She gave me another hard whack on the ass, then let me up and went back to t
+he kitchen. I followed slowly, my rear end smarting and my dick hard as a rock. 
+I watched Cassie's butt as she walked, suddenly feeling more horny than I ever h
+ad in my life.her ass. I didn't know if this was what actual sex was lik kkjnkjn
 k felt awesome. I got so lost in the sensations of pushing against her butt that
  I didn't realize I was about to cum until it was already happening. I couldn't 
 move, or even think as my stuff started launching out all over her back. I'd pla
@@ -45,7 +45,7 @@ ng there quietly like she had been the whole time. The only way I knew she was e
 ven alive was from her steady breathing. I sat back on the bed, unable to keep f
 rom staring at her butt. There was just something about the curves of her h     
    ass that was really hot. If I hadn't already known she was ‘diff  please stay
- with meave been no way to tell from this angle. Acting on a sudden urge, I reac
+ with me stay with me whoever reads this. angle. Acting on a sudden urge, I reac
 hed over and        squeezed her ass with both hands. I kinda expected her to ye
 ll at me, but all I heard was something that sounded like a quiet moan. Wonderin
 g how far she would let me explore, I slowly pushed her cheeks apart until I cou
