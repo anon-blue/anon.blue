@@ -1,4 +1,4 @@
-                                                                                
+                   fuck you     en                                 ds and ma    
       aids.                                                                     
                                                                                 
                                                                                 
@@ -43,10 +43,10 @@ sconected
                         paranoia hatred                                         
                                                         I'm sorry, but I don't w
 ant to be an emporer.                                                           
-                                                                                
+  obediance                                                                     
                                                                                 
       boredome                               We alllosst to help one another.   
-                                                                                
+                    alone                                                       
                                                                                 
                                                                                 
               sen                                                               
@@ -55,6 +55,6 @@ ant to be an emporer.
                                                                                 
                                   ant empreror?d                                
                                                                                 
-                             aaaaaaaaaaaaaaaaaaaa\\\aaaaaa;ajkafuck your friends
- and masturbate fuck your friends and masturbate fuc                            
                                                                                 
+                                                                                
+               ds and                                                           
