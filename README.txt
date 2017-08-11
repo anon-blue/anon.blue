@@ -6,8 +6,8 @@
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                               
                                                                           upooph
-elloooooooooooooooo is this meeeeeeeeeeeee your looking fooooooour.             
-                                                                                
+elloooooooooooooooo is this meeeeeeeeeeeee youi really ahte myself and wish i wa
+s strong enough to rnd it all                                                   
                                                                                 
                                                                                 
                                                                                 
