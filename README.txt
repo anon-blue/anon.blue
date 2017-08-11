@@ -35,9 +35,9 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfhjHe
 llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
 h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
-ll guarded by space structures and beings only insffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
+ll guarded by space structures and beings only insde your brian chcmidals       
+                                                                                
+                                          I am alone still                      
                   j j youSAF AS DASF ASFASDF ASSSSSSSSSSSSSSSSSSSSSSSSSSvive le 
 quebec libre !          hello down there. i'm bret. you? is it sunny? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
@@ -46,7 +46,7 @@ o youre nhi thereable at all :)
             i Les déconnections sont rapides           ,llllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllmvvvvvvvvvvvvvvmck;_____________
-________________________________________________________________________________
+_____________________________Ste   Still alone__________________________________
 ________________________________________________________________________________
 _THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
