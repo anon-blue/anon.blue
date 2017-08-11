@@ -22,8 +22,8 @@ wallet.;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;*(Original joke ref
 eriing to the character from the hit televison show "rick and Morty" :Pick le Ri
 ck")*;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;hy hugsfds jf ;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;what is the upurpose df     let me tell you the sottory of the m
-an that thought he knew them all. A n;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;yuui
-iii;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+an that thought he knew them all. A n average looking guy with a tendency oto sm
+oke weed and an above average knowledge;in music. They called hi;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;i;tsbritneybitch;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
@@ -33,8 +33,8 @@ UUUUUUUUUUUUUUUUHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
         rooty k foot ronaldy name is ronald    there is no god                  
 tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything                          
  eve you,andevegrubbing youand you and erything aromdnfodnfWAIT so is it just me
- or otther people ,  tttttt                                                     
-                          TRUMP              LOL jk its all trash GO noles      
+ or otther people ,  tttttt                                          butts are a
+lrighrt  e                TRUMP              LOL jk its all trash GO noles      
                                                             YUH TYUH YUH        
                                           u ya like jazz                        
                    YUH                             CNN                          
