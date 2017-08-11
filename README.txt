@@ -22,9 +22,9 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa this =========°=°°°°°=============>   call
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
 Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Franc
-e?  - Yes it's true We I would like to Wich name??ce sounds good. let's start a 
+e?  - Yes it's true We I would like to Wich name??I can try. The name is perfect
 rap group with that name. "can't dance from france" can you write lyrics? i can 
-sing.ves or a real human being? ththethe seay that, prove it oooopd oooopd oooop
+sing. os or a real human being? ththethe seay that, prove it oooopd oooopd oooop
 d! if you are not in the same country, i don't care, i just want a nice song. re
 ally blue yes, it's very very blue[[(oooopd                                     
                                                                                 
@@ -55,6 +55,6 @@ __________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM
                                                                                 
                                                                                 
                                        t  e  the                                
-                                                                                
+                                         l    qqq                               
                                                                        end      
                                                                                 
