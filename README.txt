@@ -39,11 +39,11 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                       
                  j j yourself it happens you know . it will get better   nonono 
-fiew is there someone?                                                          
+fiew is there someone? hello down there. i'm bret. you? is it sunny?            
                                                             班我们的心情好的吧唧了吗啡的确有了了吗啡
 的了无法忘记自己在意志愿我要不要去的确定性子都能有时间吗不好受理智齿不想你的夜                                     cc H
-ELLO I AM HERE!                                                                 
-                                                                                
+ELLO I AM HERE! COME HANG OUT WITH ME. What's your name>>>? I'm Khalid. Nice to 
+meet you :) It's midnight                                                       
                                                                                 
                                                                                 
                                                      比较多了吗你们呢料到4家你说62说我也要么有个个是要做
