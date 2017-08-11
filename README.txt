@@ -30,10 +30,10 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-                                              bro yeee                    perfec
-tly presented party presents play people's preferences proportionatelyy         
-                                                                                
-                                                                                
+                                              bro yeeeeéeeeeee                  
+                                              eferences                         
+            REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEERREEREE
+EE                                                                              
                                                                                 
                                                                                 
                                                                                 
