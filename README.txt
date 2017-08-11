@@ -17,16 +17,16 @@ ung warthog
 This is the empty feeling that night brinhgs aaasdk1423                      hhh
 hhhhhhhhhh   hh   hhhh             hhhhhhh              hh       hhhh           
                                               This moonhe full feeling that morn
-ing brings                                                                      
-                                                                   hhhhhh       
+ing brings                                                               But as 
+everybody's knows, full moon' can't pay the heating bill           hhhhhh       
                                                                                 
                                 This is the night that brings the dark drea     
                                                                                 
      hhhhhhhhhhhhhhhhhh It was a dark and stormy night                          
                                                          several penises, erect 
 penises were lined in a row, waiting to be sucked. The wind rattled the door, a 
-storm blew a table through the old men, he pushed the table.                    
-                   The table, much to thr old men's surprise,    This is the ful
+storm blew a table through the old men, he pushed the table. Time to suck the di
+cks. Get           The table, much to thr old men's surprise,    This is the ful
 l feeling that morning brings.                                                  
                                    houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
@@ -53,8 +53,8 @@ are making yu want to jump...just the parasites...really..."                  h
                                         The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhi sewaaaaaaaaaaaaahhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhheverybody here is insane i swear
+hhhh                                                                            
+       h                         hhh                                            
+                                                                                
+                                                everybody here is insane i swear
  emptsddsf Im gay but I dont know what to feel about it. Like I ..hhI get life w
