@@ -30,7 +30,7 @@ i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
                                                                                 
-                                                                                
+                                                      nbvbnn     Hey! fF        
                  n o                               putting things lin places and
  then asking for them to be read is iuultiomate futility.  choice is an illusion
  and the real tadegy of our existence is our bitrth                             
