@@ -21,12 +21,12 @@ isolation
                                                                                 
                                                                                 
                                                                             That
-.s                                                                              
+.s not my business.                                                             
                                                                                 
                                          o _o                                   
                                                                                 
                                                                                 
-                                                                 meaningless    
+      empeorororo of what?                                       meaningless    
                                                                                 
                                                                                 
                                                                                 
@@ -52,9 +52,9 @@ ant to be an emporer.
               sen                                                               
                                                                                 
                                  ponies                                         
-                                       help                                     
+   I don't want to rule or conquer anyone.p                                     
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                       afraid                                   
                                                                                 
