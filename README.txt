@@ -7,7 +7,7 @@ ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggok ok ok my name is e
 lephant gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjggggggggggggggggg this
- is a letter to mu future sggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ is a letter to mu future self, hope yit will reach me ggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
 asdasdasdasdasdasdadadadadadadafuckfuckfuckfuck   @@@@@@@@@@@@whythothisiscrazy 
@@ -20,8 +20,8 @@ ble soul i recognize your typing style hwho are you? im not crazy????;;;;;;;;;;;
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
-UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU;;
-;;;UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUe tell you the sottory of thUU
+UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUDo dUuUgsGood thinkg;alskdjf;a
+lksjdfI UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUe tell you the sottory of thUU
 Uan that thought he knew them all. A n average looking guy with a tendency oto s
 moke weed and an above average knowledge;in music. They called him the virgin wh
 isperer because he was the first of 5 different damsels. Had sex in public numor
