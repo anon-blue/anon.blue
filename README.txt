@@ -22,7 +22,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa this =========°=°°°°°=============>   call
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
 Now it wil rainWe are in the place, a blue one. No?here-no Can't danceFrom Franc
-e?                      mmmmh i guess one could say that, or the other way aroun
+e?  - Yes it's truee oui oui can't dance from france sounds good. ther way aroun
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
 emselves or a real human being? ththethe seay that, prove it oooopd oooopd oooop
 d! if you are not in the same country, i don't care, i just want a nice song. re
