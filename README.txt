@@ -17,8 +17,8 @@ ung warthog
 This is the empty feeling that night brinhgs aaasdk1423  The night that brings o
 n the dark dream of whispering woods and broken ambitions                       
                                               This moonhe full feeling that morn
-ing brings                                                               But as 
-everybody's knows, full moon' can't pay the heating bill           hhhhhh       
+ing brings                                                               But ash
+jetyhetyetyetyets, full moon' can't pay the heating bill           hhhhhh       
                                                                                 
                                 This is the night that brings the dark drea     
                                                                                 
@@ -44,11 +44,11 @@ re causing your suicidal thoughts...just the parasites and nothing more" hIn the
                                                                        hhhh     
 h                                                                               
                                                                                 
-                            this is the empty feeling thiI night brings hhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh He looked over the edge of th
-e cliff and said to himself "it's just the parasites in you " hhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
+                            this is the empty feeling thiI'm te one             
+THE MEANING OF LIFE IS ALWAYS HAVING SOMETHING TO LOOK FORWARD OTO              
+                                                                                
+                                                                                
+  hhhhhhhhhhhS  She looked over the edge and said "it's just the parasites that 
 are making yu want to jump...just the parasites...really..."                  h 
                                         The bloody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
