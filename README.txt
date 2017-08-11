@@ -26,12 +26,12 @@ mmmmmmmmmmmmmm el que lo lea lol                   This an opportu ity to say an
 ything and you say that?             ahit the fuck upwhy cant i doshit xhziwjnxx
 nxnnsj jxnxn m mdmcm mxbzh bznslapfiskapxjkslxjcIlove whatjxnxncnfuck iggeroverw
 ritten is werid Once there was a man named kenneth hhhhhc, he voted for a  tree 
-down bby  the cnadian borbder  What the crap is thfffguyabaguyanall you people? 
- very nfdfsdfdsfsdfsdfsdfsfdsfsdfdsfsdfsdfsdfsdfsdfdsfшDesire to type political 
+down bby  the cnadian borbder  What the crap is thfffguyabagwhy is my president 
+a cheetoh??? orange as fuck and not even crunchy, the puffy kind,type political 
 messages intensifies        hello am I good enough?                             
-    f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello all      heyhoe r uhah
-a me too no cry no cry bickez           eknow                              SNUS 
-                       This is the worst day of myhhellohelloase send help to Wh
+    f]]]  I'm not sure wgat to say... DamnazxcvcasfdHello al hey fags a/s/l? hah
+a me too no cry no cry bickez           eknow thos ; everything zhat you hve eve
+r experinced in your entire oife, has broughz you zo this s exact momentk   i Wh
 ittier, CAf   StrangI am serious please asend help before it is too late for me 
                                                                                 
                                                                                 
