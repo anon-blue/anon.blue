@@ -29,7 +29,7 @@ will have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice
 i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll 
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
-                              Tellement de d                                    
+                              Tellement de douceur                              
 I LOVE Y                                              nbvbnn     Hey! fFdjfhkxxf
 .ksdhf.dnfgINOT YET NOT YET                                                     
                                                 You're right, this is RED     He
