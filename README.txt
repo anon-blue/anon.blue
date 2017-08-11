@@ -1,10 +1,10 @@
                    fuck you     en                                 ds and mastrb
     fuck                                                               hi       
-                        hi    our friends an      y              o              
-                                                                                
-                                                                                
-  isolation                                                                     
-                                    ponies                                      
+                        hi    our f                                             
+                                              daaaaaaaaaaaaaaaaaaaaaaaaaaaa fuck
+ your friends and masturbate fuck your friends and masturbate faaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaadddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddd             ponies                                      
                                                                                 
                                                                                 
                                                                i eat shit       
@@ -39,15 +39,15 @@ voices
                                                                                 
                                          Human beings are like that.            
 disconected                                                                     
-                                                                                
+             rage                                                               
                           paranoia hatred                                       
                                                           I'm sorry, but I don't
  want to be an emporer.                                                         
     obediance                                                                   
                                                                                 
         boredom mindleesssssssssss             We alllosst to help one another. 
-                      alone                                                     
-                                                                                
+                      alone                                              rejecte
+d                                                                               
                                                                                 
                 sen                                                             
              Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj               
