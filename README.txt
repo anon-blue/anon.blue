@@ -26,7 +26,7 @@ ce?  - Yes it's true We I wogim tripping balls right now. this is pretty cpppooo
 l lmao i cant type -romage -sage sur un nuyage- errance entre 2 tranche de pain 
 Cant find me anymores start with a simple rhyme. you know french? i don't so it 
 will have a weird pronunciation but too bad it will be fuuvyghjvjyjromage? nice 
-i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll 
+i'm rapping it right now, just miss the beat. the mixtape is coming saaaa we'll 
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
                               Tellement de douceur                              
