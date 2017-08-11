@@ -1,10 +1,10 @@
                       florentina florentina, florentina de jesus. nao sei se tu 
 me amas ou sepq tu me seduz?;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
-mean... does "to bea" aslo mean "to not be"? Isn¿t that the definition of "beint
-g" one thing? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+mean... does "to bea" aslo mean "to not be"? Isn¿t tfffffwefinsfinsdfinsdfindfif
+sdfnne thing? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;dd;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggok ok ok my name is e
+lephant gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjgggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
@@ -30,31 +30,31 @@ eous times and, idk where im going with this. im too hiiiiigh loffnsnjfshit bois
                                  fat fst fat                                    
                voces precisam tomar rivefsdfosdjfodnanana                       
                                                                                 
-                       hahahahahellhahahahahahahahah fatty hehe <3 ○○           
-                                                            ♡♡♡♡♡♡              
-                                                               who ? who is jesu
-s ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are
- alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is
- weifuck shitsksisisskkksissisisiissiwiwiwiwiwiiiiate                           
-    i a   i hare my life                    uuyyaalikejjazzzzzzzzzzzzzzzz       
-                      YUH LIEK JAZZ                666CNN666                    
-              POPE IS MEH                                                       
-                   WTF was just typed  You                                      
-                                        are                                     
-                                    impermanent                                 
-                                                            v vwoah dudeks'd;lfk
-;lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?          
-                                         arr t                                  
-                   great green gobs                                             
-                                    xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;bush ddi dwtf is;wh
-rong with epeople hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ
-[ķłəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;
-;;;;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;            hhjhhh                
-         pooppingin my a sssssssss;;;;;; why nuts ;;this is weirdddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)
-(88786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhel
-lo                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;h
-elo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvgh
-sfgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3 bo
-dies die                           penis                                        
+                       ?                     ffghdfhffgdfhhello 6               
+                        / ? /                                                   
+                                                              who ? who is jesus
+ ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
+alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
+weifuck shitsksisisskkksissisisiissiwiwiwiwiwiiiiate                            
+   i a   i hare my life                    uuyyaalikejjazzzzzzzzzzzzzzzz        
+                     YUH LIEK JAZZ                666CNN666                     
+             POPE IS MEH                                                        
+                  WTF was just typed  You                                       
+                                       are                                      
+                                   impermanent                                  
+                                                           v vwoah dudeks'd;lfk;
+lk';lasdkf';k's;dlkf';lskd'f;lks'deeee'sjg'lkjglkjs'lgj;lsjg;lsjseee?           
+                                        arr t                                   
+                  great green gobs                                              
+                                   xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;bush ddi dwtf is;whr
+ong with epeople hitwt f is this IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;þ[
+ķłəřįčķ              ; ; ; ;; ;;  ; ; ;;  ;;;   ;;;;;     ;;;;;;;;        ;;;;;;
+;;;;;;;             ;;;;;;;;;;;;;;;;;;;,;;;;;            hhjhhh                 
+        pooppingin my a sssssssss;;;;;; why nuts ;;this is weirddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(
+88786()98=======D  ````bbhhhhhhhhhhyyyyyyyyhhhyyyyuhhhgsucing something?asdfhell
+o                                          jazzyfunky     ;;;;;;;;;;;;;;;;;;;;he
+lo mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghs
+fgdfg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3 bod
+ies die                           penis                                         
