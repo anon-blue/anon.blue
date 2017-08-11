@@ -3,7 +3,7 @@
                         hi    our f                                 acess denied
                                    asdfasdffffffffffff mother fuckers always tal
 k about sex and mastermabation     our friends aheartlessbate fuck your friends 
-and masturbate fuck your friends and masturbate fuck your friends and masturbate
+and masturbate fuck your emptyds and masturbate fuck your friends and masturbate
  fuck your dddddddddddd             ponies                                      
                                                       : ()p-0-=                 
                                                                                 
@@ -38,8 +38,8 @@ distredd                                              fdasjnflslicktruds
                                                                                 
                   revulsion                                                     
                                                beings are like that.            
-disconected                                         bonlrss b                   
-             rage                                                               
+disconected                                         bonlrss boneless boneless bo
+neless bonelessge                                                               
                           paranoia hatred       consume                         
                                       p ulp               I'm sorry, but I don't
  want to be an emporer.                                            numb         
