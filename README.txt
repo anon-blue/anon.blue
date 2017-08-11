@@ -6,13 +6,13 @@
                                    the fyuckuwant?  anyone here? whats up man id
 k how to really use this interesting concept yea u should  how did you skip that
  suttstuff              oh i get it sn=smart this is a crazy conecettttttttttttt
-ttttttttttttttttttttttttttttttttttttttttttttttttttttttttt     (408) 531-7839    
-                                                              ask for sadok     
+tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+tt fyck damn wonder if anybody called him                     ask for sadok     
                                                               tell him his pup  
                                                               is cute ( husky ) 
                                              ys  just here i ask him if miami   
 i am here now i want to leave the miami guy in place i just  is a nice place to 
-typed the same letter over I KNOW RI                         live               
+typed the same letter over I KNOW RIGHT. no more phone number, to bad.          
                                                                                 
                                                                                 
         yo yiyo no no no    bbbbbb                                              
