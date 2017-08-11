@@ -8,14 +8,14 @@ k how to really use this interesting concept yea u should  how did you skip that
  suttstuff              oh i get it sn=smart this is a crazy conecettttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tt fyck damn wonder if anybody called him     sane same here  ask for sadok same
-not insane or sane SAME all of the abobve above               tell him his pup  
-                                                              is cute ( husky ) 
+not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup 
+is cute husky                                                 is cute ( husky ) 
                                              ys  just here i ask him if miami   
 i am here now i want to leave the miami guy in place i just  is a nice place to 
 typed the same letter over I KNOW RIGHT. no more phone number, to bad. i hope I 
 would have liked to hear that conversation. sane or insane? insame? whatever. ok
- perfect. the errors a                                                          
-        yo yiyo no no no    bbbbbb                                              
+ perfect. the errors are always welcpme it allows tp let go of everything. yes i
+ still wanted the backspa   bbbbbb                                              
                            not.                                                 
                                                                                 
                                                                        where you
