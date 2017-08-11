@@ -40,7 +40,7 @@ tying anyways tittes hhhhhhhhhhh That's the sound oya 420 blaze it  yo we smokin
  weed? peter piper picked a paxk of pickled dicks oand on the throne a cat balls
  did lick hhhhhhHe lljhbljljhkhhggugouo and said "it's just the parasites that a
 re causing your suicidal thoughts...just the parasites ajeJET FUEL CANT MELT STE
-EL BEEMS if tommy has ten bags of dicks athen jet fuel still CANT MELT STEEL BEE
+EL BEEMS if tommy has tliberalizmhilaryclintonhates americal CANT MELT STEEL BEE
 MASSOJZNENIANS                                                         hhhh     
 Im gay sp o                                                              lol[   
                                                                                 
