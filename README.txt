@@ -30,9 +30,9 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
                      o boy it all going to be over written                      
                                                                                 
               well why not it sounds like a fin timefunnnn     vdsight idk what 
+im really doing lil                                                             
                                                                                 
-                                                                                
-                                                                                
+    ...                               8====D~~~~~                               
                                                      no                         
                                                                                 
                                                                                 
