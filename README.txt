@@ -14,7 +14,7 @@ fwfrwerqwrweqrwet354654
                                                                                 
                                                                  When I was a yo
 ung warthog                                                                     
-hh                           hh                                              hhh
+This is the empty feeling that night brinhgs                                 hhh
 hhhhhhhhhh   hh   hhhh             hhhhhhh              hh       hhhh           
                                                h      hhhhhh      hhhhhh        
                                                                                 
@@ -28,7 +28,7 @@ hhhhhhhhhh   hh   hhhh             hhhhhhh              hh       hhhh
 hh hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                               
                                                                                 
                                                                                 
-                                   houo  girl  horse mouth                      
+                                   houo  girl  horse mouth d hh h hh hh hh hhhh 
         hhhhhhhh                                                                
       hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
