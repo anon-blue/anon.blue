@@ -28,7 +28,7 @@ dyf7ef fdsiouf d                           o _o
                                                                                 
         empeorororo of what?                              rage     meaningless  
 voices                                             empty                        
-distredd                                              fdasjnflslicktruds        
+distredd                           animosity          fdasjnflslicktruds        
                                                          tttttt                 
                                                                                 
                                                                                 
@@ -36,7 +36,7 @@ distredd                                              fdasjnflslicktruds
                          I should like to help everyone if possible; Jew gentile
 , black, white.bitternedd                             cacophony                 
                                                                                 
-                  revulsion                                                     
+                  revulsion                      nigger ki                      
                                                beings are like that.            
 disconected                                         bonlrss boneless boneless bo
 neless bonelessge                                                               
