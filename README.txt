@@ -41,17 +41,17 @@ aaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still
                  j j yourself it happens you know . it will get better   nonono 
 fiew is there someone? hello down there. i'm bret. you? is it sunny? oh i hope t
 he stars are beautiful. of course. never went there. california wseems a nice pl
-ace though. cool from france here, but i lived in canada before. fra        cc H
-ELLO I AM HERE! COME HANG OUT WITH ME. What's your name>>>? I'm Khalid. Nice to 
+ace though. cool from france here, but i lived in canada before. fra.. hahaha no
+ youre not miserable at all :)                  ur name>>>? I'm Khalid. Nice to 
 meet you :) It's midnight, or12:40. Los Anfeles (angeles*). Light pollution galo
 re. No stars tonight. Ups and downs, but my life here has been generally positiv
 e and without bmajor complaints. Where are you from? I have a friend from french
  canada who I play video games with. He says J'taime to his girlfriend and I thi
-nk it is very cute物形象地上午九点半夜里程中的小时间为主任凭空空中花园式不是吗？的说的人家乡土鳖你也3许会是我的家长得到处女生意外惊喜的说的是
-  个头晕车上                                                                         
+nk it is very cute. I never learned french. Je suis miserable. hahahaha.        
                                                                                 
-                                                         i've had a loooong day,
- i just want to whoamialready                                                   
+                                                       No I am not              
+                                                                                
+                                                                                
                             adfasdfasdfasdfasdfasdfaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaa                                                                             
