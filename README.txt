@@ -4,9 +4,9 @@
               chingchonglinglongtingtognggnkfdsksjssdgsisajazjsnsasnx           
                                            kljlkjlkjlkjlklkkkkkjohiuhgjhgkj     
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+       saaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaas   call      
+                                                              (408) 531-7839    
                                                                                 
                                                                                 
                         I want the meetings to be over  :(                      
@@ -31,7 +31,7 @@ ally blue yes, it's very very blue[[(oooopd
                                is there such a thing?                           
                                                                                 
                                                                                 
-                                                  putting things lin places and 
+                n o                               putting things lin places and 
 then asking for them to be read is iuultiomate futility.  choice is an illusion 
 and the real tadegy of our existence is our bitrth                              
                                   aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
@@ -44,13 +44,13 @@ he stars are beautiful. of course. never went there. california wseems a nice pl
 ace though. cool from france here, but i lived in canada before. fra.. hahaha no
  youre not miserable at all :)                                                  
            i prefer english even if my mother tongue is french. what is going on
-? uh no plea e. i am non =======================================================
+? uh no plea e. i am non guiltty================================================
 =======================--------------------_____________________________________
 ________________________________________________________________________________
 ________________________________________________________________________________
 THIS IS THE POLICE _____________ WE HAVE YOU SURROUNDED ________________________
 ________________________________________________________________________________
-__________COME OUT WITH YOUR HANDS UP_________________________________A         
+__________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM   
                                                                                 
                                                                                 
                                                                                 
