@@ -8,7 +8,7 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                      ##    ######  ##   ##  ######                              
                a      #    ##  "#  ##   ##   #                                  
                      ##    ##  ##  ##   ##  ####                       je sui s 
-là coucou ehat what is thiserffff  ##    #  ##                                  
+là coucou ehat what is thiserffff I AM WHATCHING YOU...                         
                      ####  ######    ###    ######                              
                                                              ojih               
                                               It's beautiful your 3""" Is this r
@@ -56,5 +56,5 @@ jf------------------------------------------------------------------------------
 --------------------------------------------------bakllsballsballsballsokekgoedi
 ck           dick      dick        dick        penis penis pnis penis-----------
 -                                          l    qqqq                  no i wotst
- xooxo fu          the engd anyone here?                                 end    
+ xooxo fu          the engd anyone here?            NOBODY LIKES YOU!!   end    
                                  Yes I can read it                              
