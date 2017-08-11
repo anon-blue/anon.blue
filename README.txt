@@ -30,7 +30,7 @@ i'm rapping it right now, just miss the beat. the mixtape is coming soon. we'll
 make a hit'. talking about bread? that's an interesting subject now i'm hungry. 
                                 is there such a thing?                          
                                                                                 
-                                                      nbvbnn     Hey! fFdjfhkdjf
+I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
 .ksdhf.dnfg.sdhnfgk.jsdfnksjdhnjdfg,kjsdgkjsdfghjkfhgkdjfhgkdfjhgkdfjghkdfjhgkdf
 ghkdjfghkdjfghkdfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
 jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
