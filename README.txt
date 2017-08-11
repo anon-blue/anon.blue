@@ -19,40 +19,40 @@ I think they do?
 Helloe                                                       lllllllllllllllllll
 lllliiiiiiiiiiiiiollllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllleeeeeeeee                    
-                                                                                
-fuck you man why i am ev                                                        
-                                                                                
-                                                                      fd wow all
- the things we could write and this is what has been written.  Not that I have b
-done any better then the rest. so maybe I shold stop or maybe I should keep goin
-g and add my nothingness to the rest of the nonsense this is. no one will know t
-hat this is my nonesense and not someone elses nonesense                        
-              well why not it sounds like a fin timefunnnn     vdsight we are al
-l puppets tangled in stringswe are puuppetrss tangled in stringsj4 8 15 16 23 42
-                                      drink coca cola!     u                    
-    ...                               8====D~~~~~                               
-                                                     no                         
-                                                                       jjj      
+lllllllllllllllllllllllllllllllllllllllllllhlello who's out there?              
                                                                                 
                                                                                 
                                                                                 
-          ss==oh,man,youcantdelete characters at all...this is i fuck typo...thi
-s is hjust going to get filled with racism and memes until more racimsmmswmsmsms
-m and meems over fill it like the tides of the ocean                            
-                                  Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                               empty                            
+                                                                     d why are y
+ou erasing me hgave you nothing better d to                                     
+                                                                                
+                                        8====D~~~~~                             
+                                                       no                       
+                                                                         jjj    
+                                                                                
+                                                                                
+                                                                                
+            ss==oh,man,youcantdelete characters at all...this is i fuck typo...t
+his is hjust going to get filled with racism and memes until more racimsmmswmsms
+msm and meems over fill it like the tides of the ocean                          
+                                    Monmasdfghjkl;'aaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaa                                                     
-                 hello?                                                         
-         hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrhybtobr
-obribroooooooowwaitareyoustillthere fda,m                  jnunwhaä oh okay so e
-verything i write is being unwritten. i feel like a natasha beddingfield song. I
- wish i were high man. are you real? am I real??????? what's happenig to me,,...
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                                   
+                    hello?                                                      
+            hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrhybt
+obrobribroooooooowwaitareyoustillthere fda,m                  jnunwhaä oh okay s
+o everything i write is being unwritten. i feel like a natasha beddingfield song
+. I wish i were high man. are you real? am I real??????? what's happenig to me,,
 ................................................................................
-.......................................ijiujijijijijijkikik,                    
-                                                                     .          
+..........................................ijiujijijijijijkikik,                 
+                                                                        .       
                                                                                 
                                                                                 
                                                                                 
