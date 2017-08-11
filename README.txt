@@ -9,14 +9,14 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                        I want the meetings to be ovber :(                      
                                                                                 
                                                                                 
                             fdgfdgdhfdgdf           hghjfjh                 LONG
  LIVE TRUMP. LOVE LIVE THE REPUBLICAN PARTY, TRUE PARTY OF GOD, DEATH TO THOSE W
 HO OPPOSE US                                                                    
          yo yiyo no no no                                                       
-                                                                                
+                            not.                                                
                                                                                 
                                                                         where yo
 u at                            I'mthere. yes I think you know. Of course. Of co
@@ -52,8 +52,8 @@ and the real tadegy of our existence is our bitrth
                                                                                 
                                                          i've had a loooong day,
  i just want to smoke already                                                   
-                                                                                
-                                                                                
+                                                                             ple
+ase read me.                                                                    
                                                                                 
                                                                                 
                                                                                 
