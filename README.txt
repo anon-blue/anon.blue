@@ -23,11 +23,11 @@ kek
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                   
                                                                                 
                                                                    how do you me
-an? it's just some kind of weird expirement                                     
+an? it's just some km                                                           
                                                                                 
                                                                                 
                                                                                 
-                     o boy it all going to be over written                      
+                                            lkknknkkritten                      
                                                                                 
               well why not it sounds like a fin timefunnnn     vdsight idk what 
 im really doing lil : nobody does:                                              
