@@ -16,7 +16,7 @@ eally you or a robot? Ah, I was so sure about that LOVE U 2 - LOVE THIS BLUE
             THIS IS RED ()()()() messag  in a bottle that says "WHERE ARE THE TO
 ILETS". it's a robot. I think. ple. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
-n your welcome i feel you should spacebabehind is ok t                          
+n your welcome i feel lopiayyyyyyyyyylmaooooooois ok t                          
   Your MOTHER WAS AMAZING                                    thank you for her  
 rywhere?    i guess so +##äö#äö#äö#äö hello buttocjlasdölkasdölkammcööwww.asd0KE
 RN                               I'mthere. yes I think you know. Of course. Of c
