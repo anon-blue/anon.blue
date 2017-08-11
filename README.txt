@@ -12,7 +12,7 @@ and masturbate fuck your friends and masturbate fuck your friends and masturbate
 ria i'm b urning star IV good eye snuper man your battle sstations              
                                                                                 
                                                                                 
-                                                                                
+            ttttttttttssaddwefzwrgc fuck the police 911 is aj outside job       
                                                                                 
                                                                                 
                                                                                 
@@ -28,26 +28,26 @@ dyf7ef fdsiouf d                           o _o
                                                                                 
         empeorororo of what?                              rage     meaningless  
 voices                                             empty                        
-distredd                                              fdasjnflsk4               
+distredd                                              fdasjnflslicktruds        
                                                          tttttt                 
                                                                                 
                                                                                 
                        leaky green frye                                         
                          I should like to help everyone if possible; Jew gentile
-, black, white.                                                                 
+, black, white.bitternedd                                                       
                                                                                 
                   revulsion                                                     
-                                         Human beings are like that.            
-disconected                                                                     
+                                               beings are like that.            
+disconected                                         bonlrss b                   
              rage                                                               
                           paranoia hatred       consume                         
                                       p ulp               I'm sorry, but I don't
- want to be an emporer.                                                         
+ want to be an emporer.                                            numb         
     obedianc,mybbeain full of puddin  and eggs                                  
                                                                                 
          boredom mindleesssssssssss             We alllosst to help one another.
-                       alone                                     go gooncebefore
-    dbuuyuudb                                                                   
+                       alone                       straya        go gooncebefore
+    dbuuyuudb                   stoned expressions of nothing                   
                                                                                 
                  sen                                   death                    
       miss you mom rbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj              
