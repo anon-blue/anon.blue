@@ -53,7 +53,7 @@ are making yu want to jump...just the parasites...really..."                  h
     so why not go nanyo              mayonnaiseody pustules were now swelling to
  the size of small golf ballshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhtue dat damn  im ube rhigh right now                  
-      life is pretty good atm                                                   
+      life is pretty good atm            whaa?                                  
       h                         hhh                                           dd
 dddddddddddunkdfudgy knockers blap                                              
  fggv                                          everybody here is insane i swear 
