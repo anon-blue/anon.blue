@@ -35,7 +35,7 @@ hahahahahahahahahahahahahahahahahahahahahahahahahah fatty hehe <3 ○○
                                                               who ? who is jesus
  ? the back space is back in dont overwrite me pleeeeaaase is nowigo? butts are 
 alrighrt  eat lamb, git jesusbb what the fuck wheres my backspace this place is 
-weifuck shit            i  iike noise and bumps but i agree   YUH TYUH YUH  9   
+weifuck shitsksisisskkksissisisiissiwiwiwiwiwiiiiatei agree   YUH TYUH YUH  9   
                                            uuyyaalikejjazzzzzzzzzzzzzzzz        
                      YUH LIEK JAZZ                666CNN666                     
              POPE IS MEH                                                        
