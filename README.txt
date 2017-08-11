@@ -31,7 +31,7 @@
                                                                                 
                                                                                 
                                                                           perfec
-t                                                                               
+tly presented party presents play people's preferences proportion               
                                                                                 
                                                                                 
                                                                                 
