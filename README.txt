@@ -26,7 +26,7 @@ Now it wil rainWe are in the place, a blue one. No?
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
 emselves or a real human being? they all seay that, prove it :)  h yes please !!
 !! if you are not in the same country, i don't care, i just want a nice song. re
-ally blue yes, it's very very blue                                              
+ally blue yes, it's very very blue[[(oooopd                                     
                                                                                 
                                is there such a thing?                           
                                                                                 
