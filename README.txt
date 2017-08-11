@@ -1,7 +1,7 @@
 kek                                                                             
                                                                                 
                                                                                 
-                                                                                
+                    hjkljkj                                                     
                                                    @shittedgames who just delted
  t  that*l ol shittedgames                                                   hel
 lo what us going onvffshvdf                                                     
@@ -26,12 +26,12 @@ fuck you man why i am ev
                                                                                 
                                                                                 
                         wt          f help meeeeeeeeeehelphelphelphelp          
-                                       66  96969696969696969696969696969696     
+                                  mln/kn\\ help me I am sadfgdg969696969696     
 969696  969696969696969696969696969696969696969696969696969                     
                                                                                 
              well why not it sounds like a fin timefunnnn     vdsight idk what i
-m really doing lil : nobody does:                                               
-                                                                                
+m really doing lil : nobody does:                hujjujjjujjjjjjjjghjhgm        
+                                     drink coca cola                            
    ...                               8====D~~~~~                                
                                                     no                          
                                                                       jjj       
