@@ -1,8 +1,8 @@
-kek                                                                             
                                                                                 
                                                                                 
-                    hjkljkj                                                     
-                                                   @shittedgames who just delted
+                                                                                
+                                                                                
+                                                                          delted
  t  that*l ol shittedgames                                                   hel
 lo what us going onvffshvdf                                                     
                                                                                 
@@ -46,15 +46,15 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaa                                                      
                 hello?                                                          
-        hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=                  
-                                                          jnunwhaä oh okay so ev
+        hryiminmyfeelddand o,imhighrnxsp,r im HIGHHR HREOKO F=h nioioghrhybtobro
+bribroooooooowwaitareyoustillthere                        jnunwhaä oh okay so ev
 erything i write is being unwritten. i feel like a natasha beddingfield song. I 
-wish i were high man. are you real? am I real??????? what's happenigmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmhhhhfffffffffflmfao hows it going ghhhhhhhhhhhhhhhhhhhhhoooooooo
-oooooooooooooooooooooooooooooooooooooook,,,,,,,,,,,,,,,,,,,,,,,,................
-............................................................................neck
-....................................................... sawns send jerhelpsendhe
-lps sos send help                           loolokkkkik                         
+wish i were high man. are you real? am I real??????? what's happenig to me,,....
+................................................................................
+.........................................................                       
+                                                                    .           
                                                                                 
                                                                                 
-                                          no  Yougetout you first               
+                                                                                
+                                                                                
+                                                                                
