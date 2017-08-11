@@ -1,16 +1,16 @@
                       florentina florentina, florentina de jesus. nao sei se tu 
 me amas ou sepq tu me seduz?;;;;;;;;;;;;;;;wghat does it mean "to be!" right? i 
 mean... does "to bea" aslo mean "to not be"? Isn¿t tfffffwefinsfinsdfinsdfindfif
-sdfnne thing? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+sdfn       g? not being anthing other than that?;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;dd;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggg gg? gggggggggok ok ok my name is e
 lephant gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjgggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggghhrllo mg my name is davrennbbbbbhnjggggggggggggggggg this
+ is a letter to mu future sggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggjhow does one fined the soul when its too far to be seenggwherehelpgggyu;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;I want to go home whesdsdasd
-asdasdasdasdasdasdadadadadadadafuckfuckfuckfuckfucklolololololwhythothisiscrazy 
+asdasdasdasdasdasdadadadadadadafuckfuckfuckfuck   @@@@@@@@@@@@whythothisiscrazy 
 i can see in in your my penis wait whtfwtf how is thatpossible..........sng for?
 i can see in in your my penis;;;;;;;;;;;;;;;;;;;;;;;;bewhere there s\]]u knk\ukn
 o nothing jon snow;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;This is not a Game           
