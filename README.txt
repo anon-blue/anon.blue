@@ -21,11 +21,11 @@ HO OPPOSE US
                                                                         where yo
 u at                            I'mthere. yes I think you know. Of course. Of co
 urse I'm a human     yeh yeh...that's a good point. How? I can sing if you want 
-Now it wil rainWe are in the place, a blue one. No?                             
+Now it wil rainWe are in the place, a blue one. No?here-no Can't dance          
                         mmmmh i guess one could say that, or the other way aroun
 d, i don't know I'm here ! you see me? know what? are you just letters typing th
-emselves or a real human being? they all seay that, prove it :)  h yes please !!
-!! if you are not in the same country, i don't care, i just want a nice song. re
+emselves or a real human being? they all seay that, prove it oooopd oooopd oooop
+d! if you are not in the same country, i don't care, i just want a nice song. re
 ally blue yes, it's very very blue[[(oooopd                                     
                                                                                 
                                is there such a thing?                           
