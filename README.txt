@@ -1,6 +1,6 @@
                                                   Nobody home?          V Can I 
 make a cry with your lips?               does this mean anything?               
-                                                                                
+                       ok                                                       
               chingchonglinglongtingtognggnkfdsksjssdgsidssdzjsnsasnx           
                                            kljlkjlkjlkjlklkkkkkjohiuhgjhgkj   kk
 kkkkşklkşlkghfghfghfghpofghpofk pofgkhp ofgp ogph ofgpho kfpgohk pfgokh pogkh pf
@@ -35,7 +35,7 @@ I LOVE Y                                              nbvbnn     Hey! fFdjfhkdjf
 diediediediediedfjghkdfjhgkdfhgkdjgh.kdfjhgkhgkdjhgkdjhgkdjghkdfjhgkdfjghkdfjghk
 jfhgkghdkghkdfghdkfjhgkdjhgksjgkdgjdfk.SJghksdjk,sfjkdjfgdfjgdlfkjgldfkjgldjgldk
 jgldjgldfjgldkfjgldkjgldgjldjgldjglfkgjldfkjgldkfjgldI'm looking for some movmen
-t - like word  fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+t - like words dac dancers - fffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaj;   ;;hjj with her I am alone still                      
                   j j yourself it happens you know . it will get better   nonono
