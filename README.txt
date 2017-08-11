@@ -6,9 +6,9 @@
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                               
                                 di cks in yo ass better bounce on yo boys dixk t
-o this shit. dr captis this meeeeeeeeeeeee youi really ahte myself and wish i wa
-s strong enough to rnd it all                                                   
-                                                                                
+o this shit. dr captiaai cocklord will snap yo dick off if you dont stfu        
+  this is the reallest bluesvcreen you will see. eat shit and die happy like a s
+queel                                                                           
                                                                                 
                                                                                 
                                                                                 
