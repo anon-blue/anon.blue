@@ -8,7 +8,7 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                      ##    ######  ##   ##  ######                              
                a      #    ##  "#  ##   ##   #                                  
                      ##    ##  ##  ##   ##  ####                       je sui s 
-                     ##    ##  ##  ##    #  ##                                  
+là coucou            ##    ##  ##  ##    #  ##                                  
                      ####  ######    ###    ######                              
                                                              ojih               
                                               It's beautiful your 3""" Is this r
@@ -37,8 +37,8 @@ llo. we are alone. We are useless. we are HUMAN. sfjkdjfgdfjfloating in spce wit
 h friends there are no jelly fish only figments on rainy tuesdsys alone in a wel
 ll guarded by space structures and beings only insde your brian chcmidals       
                                                                                 
-                                          I am alone still          HAHA i knew 
-that i was seeing well. its my speclial skill. EVERYTHING'S RED! don't close you
+                                          I am alone still          HAHA lkjhkjh
+kjht i was seeing well. its my speclial skill. EVERYTHING'S RED! don't close you
 r brain for too long. it may not open again adterwardo. i tested me!? oh i hope 
 the stars are beautiful. of course. never went there. california wseems a nice p
 lace though. cool fromageance here, but i lived in coocadoo before..... hahaha n
@@ -47,7 +47,7 @@ rybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
 t green too and when I close my brain - heu - my eyes, it's like a rainbow witho
 ut rain. Why that?    Ok. """"""""""3333333#####################################
 #### Ah! I've got it               Still alone - not just quebec libre _________
-_______________________________________just don't jujhhhjjjjjjjj.fuckmein_______
+_______________________________________just don't jujhhhjjjjjjjj.fuckmeinthrass_
 _THIS IS THE POLICE h____________ WE HAVE YOU SURROUNDED ___________I'm there, u
 ndercover              I'm a shy spy____________________________________________
 ___________COME OUT WITH YOUR HANDS UP_________________________________ARRESTM  
