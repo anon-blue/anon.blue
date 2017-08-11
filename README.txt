@@ -15,7 +15,6 @@
     i dont wna to die                                                           
                                                                                 
                               loathing                                          
-     duck                                                                       
                                                                                 
                                                                                 
                                                                                 
@@ -24,9 +23,10 @@
                                                                                 
                                                                                 
                                                                                 
+                                         o _o                                   
                                                                                 
                                                                                 
-                                                                                
+                                                                 meaningless    
                                                                                 
                                                                                 
                                                                                 
@@ -52,7 +52,7 @@
               sen                                                               
                                                                                 
                                  ponies                                         
-                                                                                
+                                       help                                     
                                                                                 
                                                                                 
                                                                                 
