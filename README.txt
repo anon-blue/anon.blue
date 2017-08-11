@@ -7,17 +7,17 @@ i passe, pour être exact. ASPTT. ASPTT. ASPTT.
                                                                                 
                      ##    ######  ##   ##  ######                              
                       #    ##  "#  ##   ##   #                                  
-                     ##    ##  ##  ##   ##  # sane same here  ask for sadok same
-not insane or sane SAME all of the abobve abovei ironic true  ttell him his pup 
-is cute husky          it was a story about a miami guy for the record.pace for 
+                     ##    ##  ##  ##   ##  ####                                
+                     ##    ##  ##  ##    #  ##                                  
+                     ####  ######    ##bout a miami guy for the record.pace for 
 you        as conceived in 60003432 by portuguese printing press operator dsjklf
-djsfsWhat is ASPTT? I prefer **************                                     
+djsfsWhat is ASPTT? I prefer **************   It's beautiful your               
                                                    LOVE U 2 - LOVE THIS BLUE    
             THIS IS RED                                                         
   this is what we asked for people. this is wahat we wanted.                    
                                     dont know if thatthis ironic or not oh rhthe
 n your welcome i feel you should spacebabehind is ok t                          
-  Your MOTHER WAS AMAZING                                             Really eve
+  Your MOTHER WAS AMAZING                                    thank you for her  
 rywhere?    i guess so +##äö#äö#äö#äö hello buttocjlasdölkasdölkammcööwww.asd0KE
 RN                               I'mthere. yes I think you know. Of course. Of c
 ourse I'm a human     yeh yeh...that's a good point. How? I can sing if you want
