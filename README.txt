@@ -3,7 +3,7 @@
                                                                                 
                                                                                 
                                                                                 
-     hello friends wha                                                          
+     hello friends what is the point of the project here? well...               
            gg   m         90% owl                                               
                                                                                 
                                                                                 
