@@ -45,7 +45,7 @@ S THIS IS BRETTY Gvasdfasfance here, but i lived in coocadoo before..... hahaha
 no youre nhi thereable at all :)                  i'm trapped on this line..  ev
 erybody libre  Les déconnections sont rapides           ,llllIn fact, I can see 
 it green too and when ItrwvhsrIt's me%!Can somhey u must know I loved u, Cause u
- aaaaaare always ---------------------------------------------------------------
+ aaaaaare always so cute and charming..-----------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
