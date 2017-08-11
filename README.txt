@@ -48,13 +48,13 @@ tfuckintrusdtrust no oneiiiiiiiiiiiquestion everything
                                                                                 
                                 xvdvfv   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;IT REALLY TIED THE ROOM TOGETHER;;                
-                   ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;i fucking love suuicide boys                          
+;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;IT REALLY TIED THE ROOM TOGETHER;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;              Ilove suuicide boys                          
      pooppingin my a sssssssss;;;;;;;;;;;;;;;;;;a;;;;;;;;;kddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk)(887
 86()98=======D  ````^^^^                       why tiyping something?asdfhello  
                                                        ;;;;;;;;;;;;;;;;;;;;helo 
 mothafuckas;;;;;;;;;; ;;;;;;;;;;;;;;;;;;;;;;;;;;;Why is a Duck?;     bgfcvghsfgd
-fg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;       
+fg123xcvcxvxcvxcvxcvxcvcvcvxcvxvxvcx;;;;;;;;;;;;;;;;;;;;;;;;;;;;;SUSAN <3       
                                penis                                            
