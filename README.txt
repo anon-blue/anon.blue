@@ -37,8 +37,8 @@ r, CAf   StrangI am serious please asend help before it is too late for me
                                                                                 
 Is anyone out ejdjdhere litlissssPCILEPICKLE RICK!!!!!!!!!!IICK!!!!             
                 riteheremypopscicleeeee      mhellhhroicksdicksdicksdicks       
-                                                                       isthisliy
-fefifo                                                                          
+                                                                       isthislik
+jkmmmmmk                                                                        
              im bored...    kkkk just bexaje you feel it dosenr mean uts therege
 hdhshshs lovs from sdvd               amialoneinhere                            
                                                                          hi what
