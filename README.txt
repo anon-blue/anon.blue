@@ -1,8 +1,8 @@
                    fuck you     en                                 ds and mastrb
     fuck                                                               hi       
                         hi    our f                                             
-                                              daaaaaaaaaaaaaaaaaaaaaaaaaaaa fuck
- your friends and masturbate fuck your friends and masturbate fuck your friends 
+                                   asdfasdffffffffffff mother fuckers always tal
+k about sex and mastermabate fuck your friends and masturbate fuck your friends 
 and masturbate fuck your friends and masturbate fuck your friends and masturbate
  dddddddddddddddddddddd             ponies                                      
                                                                                 
@@ -52,7 +52,7 @@ d
                 sen                                   death                     
              Masterbate___>>>>nd be--ean>>>__j i kljlakjlakjjjjjj               
                                       numb                                      
-                                                                                
+                                                   detached                     
                                     ant empreror?d                              
                                                                                 
                                                                                 
