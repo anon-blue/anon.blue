@@ -45,16 +45,16 @@ tly presented party presents play people's preferences proportionatelyy
                                                                                 
                                                                                 
                                                                  v              
+                                                              CUNTY CUNTS       
                                                                                 
-                                                                                
-                                                                                
+                  @ ME                                                          
              VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
 CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJIO
 ETJRTEWIGTOKWROGTIOJWGHJIJIEJWOAISHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KGFN
 DN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK;K
 LMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;DFG
 KMCMSNSMNMwhoever did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO T
-WITTER OR SOUNDCLOD FOOLLWERS EITHER..SDELGVNSDIKLGVJDKLXFSDNIKLJNDLXKZKXL,NZXKL
+WITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,NZXKL
 FHSDJKNKSD                                                                      
                                                                                 
                                                                                 
