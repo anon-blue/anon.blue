@@ -14,10 +14,10 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                I gotta get home.  Oan't fly in rain.  Oan't fly in rain.  Oan't
- fly in rain.  Mayday! Mayday! Bee going down!  Ken, could you closethe window p
-lease?  Ken, could you closethe window please?  Oheck out my new resume.I made i
+                                -lo. I 15arRhinoceros. The only problem is that 
+my horn on my head is soft and limp. As you may know this is very devastating to
+ a rhino lin.  Maylf. If there are any rhinos out there that can help me with my
+ problem it would be appreciated. Please dont copy paste this. This is my story.
 t into a fold-out brochure.  You see? Folds out.  Oh, no. More humans. I don't n
 eed this.  What was that?  Maybe this time. This time. This time.This time! This
  time! This...  Drapes!  That is diabolical.  It's fantastic. It's got all my sp
@@ -52,7 +52,7 @@ t's a bee law.You're not supposed to talk to a human.  I can't believe I'm doing
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                of course im alone again        
                                                                                 
                                                                                 
                                                                                 
