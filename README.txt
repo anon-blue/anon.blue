@@ -32,7 +32,7 @@ hello? talkthink type hello im so lonley oh god
                                   dire straits rulez ok                         
                                                bro yeeeeéeeeeee                 
                                                eferences                        
-             REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEERREERE
+             REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
 EEE                                                                             
                                                                                 
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
