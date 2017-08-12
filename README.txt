@@ -18,7 +18,7 @@ bly imagine                         hi
 is bluescre n manfucking JESUA i hate neutral milk hotel!                       
   lv                                                                            
                                  yo qwho here YO LET'S TURN THIS BITCH INT O A C
-HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au sevc
+HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au devc
 ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
  oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
 ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
