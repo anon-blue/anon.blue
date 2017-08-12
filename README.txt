@@ -13,6 +13,7 @@ the end                          HELLO WORLD
                                                                                 
                                                                                 
                                                                                 
+                                                                 jingo is gay   
                                                                                 
                                                                                 
                                                                                 
@@ -25,14 +26,13 @@ the end                          HELLO WORLD
                                                                                 
                                                                                 
                                                                                 
+                        FERDANAND DICK :D EAT SHIT FERNANDO                     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                      dont look behind you                      
                                                                                 
                 penis                                                           
                               apenis                  wild penos appears        
@@ -40,14 +40,14 @@ the end                          HELLO WORLD
 Dll i see isJiongo                                    \                         
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
-             hottryt hottryt hottpe iI think the most merciful thing in the worl
-d is our abinability to comprehend it.                                          
                                                                                 
-                                                                      HACKER CLI
-CKING djaskljdaskldfhsefjuirewnvuirenvreuvrebnvurehgfurheughreuighreughuirehgure
-huighreuighreuighreuighreuigheruigherughreuigheruighreuighreuihgeruighreuighurei
-ghreugheruigh►☼↕‼¶☼♫♪♀♂◙§▬▀↨■↓↨↓→←∟↔bbgggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                gggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggKnock KNoc, W
 jo's there? REALITY!      lmoihiho   oihoh<<<<                                  
                                                                                 
