@@ -26,7 +26,7 @@ poipo ipoi poiouais je suis d'accord avec toi. Une manière d'éxprimer ç_a ser
  de savoir. mais personne ne sait ! alors c'est anis ansi que va la vie, sans pe
 rssone pour rattraper cela. Des fois oui par contre :hhhh    Mais pas tounours c
 'est ainsi oui                                                      pe ks       
-hello? talkthink type hello im so lonley oh god                                 
+hello? talkthink type hello im so lonley oh god je suis d'accird c vrai !       
  hi im about to go cycling to get some wwe                                      
  penis           penks                                                          
   penis                           dire straits rulezpeni                        
