@@ -37,7 +37,7 @@ EEE                                     penis
                 penis                                                           
                               apenis                  wild penos appears        
  üşwqüğeşqwğş,ş,c                       hands up who no onall i see is th ewrall
-all i see is the word penis atleast                                             
+all i see is the word penis atleast six times.                                  
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
              hottryt hottryt hottpe isirl name?                                 
@@ -48,7 +48,7 @@ all i see is the word penis atleast
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
   we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
-  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<l<unch skunch<<<<<<<<<
+  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<l<unch skunch<<<<<<<<<<
   we all do                 <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
