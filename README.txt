@@ -15,7 +15,7 @@ bly imagine                         hi
                                                                                 
                    penis vagins vulvs bam!                                      
                        i am krypto theac  yeah dayum asshole whats wrong with th
-is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
+is bluescre n manfucking JESUA idjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
 sdlvbsVSdbcsdvs                                                                 
                               oui.                           Bienvenureeeeeeeeee
 eeeeeeeeeeee                           Une manière d'aider est d'appeler au sevc
