@@ -10,8 +10,8 @@ loring book.                 morninh of course theres no guaranteeso you are 010
                                                                                 
                                                                                 
                                                                   salut !       
-course flies anyway cause bees do not care what humans think is imposible       
-                                                                                
+                              /\                                                
+                            /  \      :/                                        
                                                                                 
                                                                                 
                                                                                 
