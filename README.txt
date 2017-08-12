@@ -6,8 +6,8 @@
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                               
                                 di cks in yo ass better bounce on yo boys dixk t
-o this shit. dr captiaai cocklord will snap yo dick off if you dont stfu        
-  this is the reallest bluesvcreen you will see. eat shit and die happy like a s
+o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdsf
+dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
                                                                    sdsd increadi
 bly imagine                                                                     
@@ -35,8 +35,8 @@ fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEERREERE
 EEE                                                                             
                                                                                 
-                              ahoy                                              
-                                                                                
+                              ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
+eüşwqüğeşqwğş,ş,c                                                               
                                                                                 
                                                                                 
                                                              eat your moms assho
