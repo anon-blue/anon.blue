@@ -1,5 +1,5 @@
-   we usrg to dteM of a fiture of of frie ss before you startedthe b            
-                                                                                
+   we usrg to dteM of a fiture of of frie ss before you startedthe beginnibg of 
+the end                                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -38,7 +38,7 @@ EEE
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
 eüşwqüğeşqwğş,ş,c                                                               
                                                                                 
-                                                                                
+      my                                                                        
                                                              eat your moms assho
 le                                                    blub is blub    g         
                                                                                 
