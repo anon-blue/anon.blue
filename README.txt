@@ -1,8 +1,8 @@
-18250     and so was vanilla :^)                           㲏                    
+18310     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
-                                                                                
+                                                           wut                  
        轂                                                   뛏                   
                     iddqdჟ                                                     
                             쁽             ꔭ                          wut     뎘  
@@ -10,9 +10,9 @@
                                               竭                                 
                                                                                
   wut                                                                           
-                  遟                                                           
+                  遟                           wut                             
                     iddqd                               wut                     
-          浧                                  ᅌ     wut                    ᪸  wut
+          浧                                  ᅌ     wut                 wut᪸  wut
     잠                                                                           
                      ⅛                       穚                                  
                                                    wut            맃   REEEEEEEEE
@@ -29,7 +29,7 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE       kkkk
                                                               ⶇ                 
                                  gayyou're all fucking gay      dnclip          
                                                                                
-                                     wut                                        
+                                     wut                                   wut  
                                 ഔ                   ⽬       䳼                   
       雹                                                                         
                                                                                 
@@ -46,15 +46,15 @@ EEEEE                          
                          wut                                                    
             wut                                                                 
                                               ꈑ                ꭖ                
-                    w                                                   薜       
+                    wut                                                 薜       
                                      ꣙                                          
-                                                                           wut 位
+                                                     wt                   wut 位 
                                                                                 
-   䓇                                                臒   됶                    ḫ  
-                                                                        wut     
-                                                           챵            בֿ       
-                                                   砳                            
-  dnkroz        ⴧ                                                               
-                                                               callob hvm was he
-re                                      玚                                       
-                                            dnclip                calub vm      
+  䓇                                                臒   됶                    ḫ   
+                                                                       wut      
+                                                          챵            בֿ        
+                                                  砳                             
+ dnkroz        ⴧ                                                                
+                                                              callob hvm was her
+e                                      玚                                        
+                                           dnclip                calub vm       
