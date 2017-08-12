@@ -31,7 +31,7 @@ the end                          HELLO WORLD
                                                                                 
                                                                                 
                                                                                 
-                                   dont look behidn oyu                         
+                                                                                
                                       dont look behind you                      
                                                                                 
                 penis                                                           
