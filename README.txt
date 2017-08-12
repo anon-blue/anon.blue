@@ -1,5 +1,5 @@
-   we cdrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrguanicoeguaartedthe beginnibg of 
-the end                          HELLO WORLD                                    
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -34,12 +34,11 @@ the end                          HELLO WORLD
                                                                                 
                                                                                 
                                                                                 
-                penis                                                           
-                              apenis                  wild penos appears        
- üşwqüğeşqwğş,ş,c                       hands up who no onall i see isHELLO WORL
-Dll i see isJiongo                                    \                         
-     jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
-                                                     penis                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                            hooke                               
                                                                                 
                                                                                 
                                                                                 
@@ -47,14 +46,15 @@ Dll i see isJiongo                                    \
                                                                                 
                                                                                 
                                                                                 
-                                                gggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggKnock KNoc, W
-jo's there? REALITY!      lmoihiho   oihoh<<<<                                  
+                                                                                
+                                                                                
+                           ggggg                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                  ne expects from humanityKXL,N  
                 the opposite of war is...mm?                                    
-                pe ks                             penis                         
-              the opposite of war sis...?                                       
+                pe k                                                            
+                                                                                
