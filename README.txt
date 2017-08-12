@@ -1,4 +1,4 @@
-18910     and so was vanilla :^)                           㲏                    
+18970     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
@@ -53,7 +53,7 @@ s good                                        ꈑ                ꭖ
   䓇                                                臒   됶                    ḫ   
                                                                        wut      
                                                           챵            בֿ        
-                                                  砳                             
+i like you all because your crazies               砳                             
  dnkroz        ⴧ                                                                
                                                               callob hvm was her
 e                                      玚                                        
