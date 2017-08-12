@@ -44,7 +44,7 @@ le                                                    blub is blub    g
                                                                                 
                                                                                 
                                                                                 
-                  &                                             True that       
+                             germany is tge supieriot land      True that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhow ddsfdfdffsdfdfdfdfdff
 dfdfdfdsfsdfsfsdfsfdfsdfdsfdfsfsffsffWTFWTFWTFDFSFDFSF                  givepurp
 le                              this is why we cant have nive things....dammit  
@@ -53,7 +53,7 @@ CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;D
-FGKMCMSNSMNMwhoever did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
+FGKMCM i did tjis   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,NZX
 KLFHSDJKNKSD                                                                    
                                                                                 
