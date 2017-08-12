@@ -8,25 +8,25 @@ loring book.                 morninh of course theres no guaranteeso you are 010
  going                                                                          
                              z                                                  
                                                                                 
-                                                                                
-                                                                  salut !       
+                         /                                                      
+             /                                                    salut !       
                               /\                                                
                             /  \      :/                                        
                                                                                 
                                                                                 
                                                                                 
-                                                cock                            
+                                   /            cock                            
                                                   hello world              9/11 
-was a n in side job                                                             
+was a n in side job            /                 /                              
                                                                                 
      what.f fuck what the fuck is this                                          
             Welcome to cancer, weve been waiting foouch=why are we like this/ ho
 w many people are just here from REddit?all ifof you iI bet.  Sometimes I look f
 orward to something interesting happening.  This is very                     ig 
+ /                                                                              
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                              /                                                 
                                     Un peu de place pour une autre langue, pardi
  !                                                                              
                  n jjji                                                         
@@ -39,12 +39,12 @@ orward to something interesting happening.  This is very                     ig
 eleven thirteen seventeen nineteen twenty-three twenty-nine thirty-one thirty-se
 ven forty-0ne 391713                                                            
                                                                                 
-    \                                                           I want my ascii 
-art...                                                                          
+    \        /                                                  I want my ascii 
+art...ÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎ                                               
                           well fu kjdjdjdjdjdiddiidkdkodkdkkdfd                 
                                                                                 
                                                                                 
-                                                                                
+                                   /                                            
                                                        dhwhat is this? everythin
 g we know and love will be replaced just like everything on this page. Let go an
 d play the video game we call life. I do have to say that I am happy I have a wi
@@ -54,7 +54,7 @@ straight out her ass like I needed oxygen. Dunno why it turns me on, but it does
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                      /                                         
  look at me plz plz plz plz plzzzzzzslepeekjftell me where the batchroom is echo
  echo echo you are bliss existence eternal love incarnate endless revelation of 
-the self in all thiSo this is gs all thinge wanted me to start off this time. wh
+the self in all thiSo this is gs all thinge wanted me to start off this time. /h
