@@ -39,16 +39,16 @@ rward to something interesting happening.  This is very                     ig
                                                                                 
                                                                                 
                                                                                 
-                                       01001001001001010001010  1001001010110011
-0101010100100101001010101001010100101HAX PLEASE STOP FOR THE LOVE OF ALL THAT IS
- HOLY STOP DEAR GOD PLEASE I DIDNT ASK TO BE HERE                               
+                                                                                
+                                                                                
+                           I DIDNT ASK TO BE HERE                               
                                                                                 
  TELL ME.                                                                       
          CAN YOU SEE HOW YOUR FUTURE DOESNT EXIST?                              
                                                                                 
                                                                                 
-                                                                                
-                                          asdadwwi nwant t odie so muchccccccccc
+                 DONT DO IT.  PEOPLE STILL VERY MUCH CARE FOR YOU.  YOU ARE LOVE
+D.                                        asdadwwi nwant t odie so muchccccccccc
 ccccccccccccccccccccccccccccccct T H I C  C C CC C  C C  C C  C C C  Casdawdasdd
 ddddddddddddsdsdasdawd                                                          
                                                                                 
