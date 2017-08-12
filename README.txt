@@ -24,8 +24,8 @@ hejkrhaekjrhekjahrjkaehrjkaehrjkhrrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhh▌▐▐████dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddis personne ne sait ! alors c'est anis ansi que va la vie, sans pe
-rssone pour rattraper cela. Des fois oui par contre :hhhh    Mais pas tounours c
-'est ainsi oui                                                      pe ks       
+rssone pour rattraper cela. Des fois ouUh hi did you kjnowj  there was wonce a t
+ime where words didnt exist                                         pe ks       
 hello? talkthink type hello im so lonley oh god je suis d'accird c vrai !       
  hi im about to go cycling to get some wwe                                      
  penis           penks                                                          
