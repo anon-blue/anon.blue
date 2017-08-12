@@ -42,8 +42,8 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
                                                                                 
              hottryt hottryt hottest girl name?                                 
        Q worat worst boys name?                                                 
-    Q gliest ugliest job title                                                  
-                                                                                
+    Q gliest ugliest job title.?                                                
+ Q                                                                              
                              germany is tge supieriot land      True that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhow ddsfdfdffsdfdfdfdfdff
 dfdfdfdsfsdfsfsdfsfdfsdfdsfdfsfsffsffWTFWTFWTFDFSFDFSF                  givepurp
