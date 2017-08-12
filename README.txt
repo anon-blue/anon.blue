@@ -1,4 +1,4 @@
-18069     and so was vanilla :^)                           㲏                    
+18129     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
@@ -19,7 +19,7 @@
         顳                                               n                       
      趖                         覤                                鲥    䴢 檅        
                                                                         kkkk    
-                                                                                
+                                               wut                              
                                                            뀺                    
   틑iddqdid                                                툒 ㏽       탥          ܋
                                          쳰                                      
@@ -27,7 +27,7 @@
                                艨                                            䫫   
                                                                                 
                                                               ⶇ                 
-                                 gayyou're all fucking gay                      
+                                 gayyou're all fucking gay      dnclip          
                                                                                
                                                                                 
                                 ഔ                   ⽬       䳼                   
@@ -40,7 +40,7 @@
                                                                                 
          helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasiddqdEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEE                                                                          
-             푃    첅          iddqdiddqdddsada                                   
+             푃    첅          iddqdiddqdddsada                              wut  
    ▦                                           ᶒ                                
                                               HE'S THE CHOCOLATEMAN             
                                                                                 
@@ -54,7 +54,7 @@ EEEEE                          
                                                                                 
                                                            챵            בֿ       
                                                    砳                            
-                ⴧ                                                               
+  dnkroz        ⴧ                                                               
                                                                callob hvm was he
 re                                      玚                                       
-                                                                  calub vm      
+                                            dnclip                calub vm      
