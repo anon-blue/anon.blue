@@ -55,6 +55,6 @@ ddddddddddddsdsdasdawd
                                                                                 
                                                                                 
                                                                                 
-    #screw you starnger i hope your ganglia dires                               
+look at me plz plz plz plz plzzzzzzslepeekjftell me wher                        
                                                                                 
                        Can someone tell me where the clitoris is?               
