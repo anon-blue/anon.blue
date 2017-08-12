@@ -1,4 +1,4 @@
-   we usrg to dteM of a fiture of of frie ss before you startedthe beginnibg of 
+   we usrg to dteM of a future and of frndss before you startedthe beginnibg of 
 the end                                                                         
                                                                                 
                                                                                 
