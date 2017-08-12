@@ -40,7 +40,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
                                                                                 
       my oen blue sceen, with plackjack and hookers                             
                                                                                 
-                                                      blub is blub    g         
+             hottryt hottryt hottest girl name?                       g         
                                                                                 
                                                                                 
                                                                                 
