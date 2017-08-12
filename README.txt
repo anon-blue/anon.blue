@@ -42,14 +42,14 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
                                                                                 
              hottryt hottryt hottest girl name?                                 
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
-    Q gliest ugliest job title.?     m                                          
+    Q gliest ugliest job title.?     mof mod                                    
  Q sound or video?                                                              
                              germany is tge supieriot land      True that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhwhat is thiwwvwvwvwvwvwv
 what is the meaning  of life sfsffsffWTFWTFWTFDFSFDFSF                  givepurp
 le                              this is why we cant have nive things....dammit  
                VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
-CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
+CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;D
