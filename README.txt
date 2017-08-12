@@ -1,7 +1,7 @@
 we are ananamousse                                                              
                                                                                 
                                                                                 
-                yo, wth?                                                        
+               yo, wth?                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -12,29 +12,22 @@ we are ananamousse
                                                                                 
                                                                                 
                                                                                 
-                                                                               d
-gdfsdfsf                                                                        
+                                                                              dg
+dfsdfsf                                                                         
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                    sdsdasdjishfuihf            
-                                      yelloheyooooo                             
+                                                   sdsdasdjishfuihf             
+                                     yelloheyooooo                              
                                                                                 
                                                                                 
                                                                                 
-     ok                                                                         
+    ok                                                                          
                                                                                 
-                                                      wuba luba dub dub!!       
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                     wuba luba dub dub!!        
                                                                                 
                                                                                 
                                                                                 
@@ -49,8 +42,15 @@ gdfsdfsf
                                                                                 
                                                                                 
                                                                                 
-                            hey vsauze micha l here what is what oswhat is what 
-is? Black perop......Black people should thankfulsadkjoklsdjfvklu;asbhdiu       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                           hey vsauze micha l here what is what oswhat is what i
+s? Black perop......Black people should thankfulsadkjoklsdjfvklu;asbhdiu        
                                                                                 
                                                                                 
                                                                                 
