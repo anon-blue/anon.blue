@@ -1,4 +1,4 @@
-                                                                                
+erything she changes she touches with love 10000 forms all beuatifufl children  
                                                                                 
                                                        101000110100110110    010
 1 01010 fuck you fuck you fuck you fuck you fucjk yopu fuck you fuck you STOP010
@@ -57,4 +57,4 @@ ddddddddddddsdsdasdawd
                                                                                 
 look at me plz plz plz plz plzzzzzzslepeekjftell me where the batchroom is echo 
 echo echo you are bliss existence eternal love incarnate endless revelation of t
-he self in all thing all things all things where the clitoris is?               
+he self in all thing all things all things everything she touches changes and ev
