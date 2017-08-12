@@ -24,8 +24,8 @@ bbbbbbbbbbbbbbbbbbbbbbbbbbbqqqqqqqqqqqqqqwwwwwwwwwwwwwwwwwddddddddddddcq
       \                          /                     \                        
         \       \        \                      /   \                    \      
       /         \                         /                       /             
-              sdfsdfsdf  PizzaGate is real, 9/11 was staged by a collective effo
-rt involving the US governement, typos suck cuz i can't fix them here lol. Also,
+              sdfsdfsdf  PizzaGate is resocial media wil be the death of human i
+nteraxtion   the US governement, typos suck cuz i can't fix them here lol. Also,
  cannabis literally saves lives.                                                
                                                          Follow me on snap fam, 
 and insta, and facespace, and xanga fambalamb                      /          / 
