@@ -1,30 +1,30 @@
-18129     and so was vanilla :^)                           㲏                    
+18189     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
                                                                                 
        轂                                                   뛏                   
                     iddqdჟ                                                     
-                            쁽             ꔭ                                  뎘  
+                            쁽             ꔭ                          wut     뎘  
               焁                                                                 
                                               竭                                 
                                                                                
                                                                                 
                   遟                                                           
-                    iddqd                                                       
-          浧                                  ᅌ                            ᪸     
+                    iddqd                               wut                     
+          浧                                  ᅌ     wut                    ᪸     
     잠                                                                           
                      ⅛                       穚                                  
-                                                                  맃             
-        顳                                               n                       
-     趖                         覤                                鲥    䴢 檅        
-                                                                        kkkk    
+                                                   wut            맃   REEEEEEEEE
+EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
+EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
+EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE       kkkk    
                                                wut                              
                                                            뀺                    
   틑iddqdid                                                툒 ㏽       탥          ܋
                                          쳰                                      
                                                                                 
-                               艨                                            䫫   
+                               艨w                                           䫫   
                                                                                 
                                                               ⶇ                 
                                  gayyou're all fucking gay      dnclip          
@@ -33,9 +33,9 @@
                                 ഔ                   ⽬       䳼                   
       雹                                                                         
                                                                                 
-                                                                               
+                                            wut                                
            ᣊ                                                ᶹ ᬜ                 
-                                                                                
+                                                             wut                
                                                                                 
                                                                                 
          helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasiddqdEEEEEEEEEEEEEEEEEEEEEEEE
@@ -48,7 +48,7 @@ EEEEE                          
                                               ꈑ                ꭖ                
                     啵                                                   薜       
                                      ꣙                                          
-                                                                               位
+                                                                           wut 位
                                                                                 
    䓇                                                臒   됶                    ḫ  
                                                                                 
