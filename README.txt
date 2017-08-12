@@ -30,8 +30,8 @@ orward to something interesting happening.  This is very                     ig
                                     Un peu de place pour une autre langue, pardi
  !                                                                              
                  n jjji                                                         
-                                                                                
-                                             W  hat the hell?                   
+                             / \                                                
+                           /                 W  hat the hell?                   
        welcohhhto cna                                                           
                    d                                                            
                                                                                 
@@ -39,8 +39,8 @@ orward to something interesting happening.  This is very                     ig
 eleven thirteen seventeen nineteen twenty-three twenty-nine thirty-one thirty-se
 ven forty-0ne 391713                                                            
                                                                                 
-                                                                                
-                                                                                
+    \                                                           I want my ascii 
+art...                                                                          
                           well fu kjdjdjdjdjdiddiidkdkodkdkkdfd                 
                                                                                 
                                                                                 
