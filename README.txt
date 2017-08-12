@@ -42,7 +42,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
                                                                                 
              hottryt hottryt hottest girl name?                                 
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
-    Q gliest ugliest job title.?                                                
+    Q gliest ugliest job title.?     m                                          
  Q sound or video?                                                              
                              germany is tge supieriot land      True that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhwhat is thiwwvwvwvwvwvwv
