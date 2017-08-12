@@ -1,7 +1,7 @@
-erything she changes she touches with love 10000 forms all beuatifufl children  
-                                                                                
-                                                       101000110100110110    010
-1 01010 fuck you fuck you fuckyourdfumbasspoopw      poor lithow do i typetestin
+at do I type about now? Maybe I should forget it and head back to reddit or eat 
+some more red velvet cake and watch some Adult Swim | Off the Air. Man, this typ
+ing is pretty relaxing. Like you're creating art with words, esp    expressing y
+ourself. uck you fuck you fuckyourdfumbasspoopw      poor lithow do i typetestin
 gtest                        morninh of course theres no guaranteeso you are 010
 01000100001010101010100010101010101010101010101010101010100101010100101010101010
 101010101010101010101410211020120110bfr jui8ng9ctvhy7m,kol                      
@@ -57,4 +57,4 @@ straight out her ass like I needed oxygen. Dunno why it turns me on, but it does
                                                                                 
  look at me plz plz plz plz plzzzzzzslepeekjftell me where the batchroom is echo
  echo echo you are bliss existence eternal love incarnate endless revelation of 
-the self in all thiSo this is gs all thinge wanted me to start off this time.   
+the self in all thiSo this is gs all thinge wanted me to start off this time. wh
