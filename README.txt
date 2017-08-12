@@ -18,12 +18,12 @@ bly imagine                         hi
 is bluescre n manfucking JESUA i hate neutral milk hotel!                       
   lv                                                                            
                                  yo qwho here YO LET'S TURN THIS BITCH INT O A C
-HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au dsss
-sgtrtyu878t ainsi que la perseonne sera aidée ! eje EZh                       Eh
- oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
-ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
-poipo ipoi poiouais je suis d'accord avec toi. Une manière d'éxprimer ç_a serait
- de savoir. mais personne ne sait ! alors c'est anis ansi que va la vie, sans pe
+HfhgfhgfhgfhghfghfghfhgfghfdasddFddjawkldjwkajdlkwajdklajdkajdlawjdklajdkajdklwa
+jdkljaklfjdkljsalkjfkjalksjfklajHACKEWRERERakhewahrjkehajkrhjhrjkhajkrhaejkhrjka
+hejkrhaekjrhekjahrjkaehrjkaehrjkhrrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhh▌▐▐████dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddis personne ne sait ! alors c'est anis ansi que va la vie, sans pe
 rssone pour rattraper cela. Des fois oui par contre :hhhh    Mais pas tounours c
 'est ainsi oui                                                      pe ks       
 hello? talkthink type hello im so lonley oh god je suis d'accird c vrai !       
@@ -44,7 +44,7 @@ Dll i see is the word penis atleast six times.
 d is our abinability to comprehend it.                                          
                                                                                 
                                                                                 
-                               isany is tge supieriot land  penisrue that       
+                                   Blood for the blood god. Skull fotthat       
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
   we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<HELL
