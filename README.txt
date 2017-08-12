@@ -49,8 +49,8 @@ we are ananamousse
                                                                                 
                                                                                 
                                                                                 
-                            hey vsauze micha l here what is what oswh           
-                                                                                
+                            hey vsauze micha l here what is what oswhat is what 
+is? Black perop......Black people should thankfulsadkjoklsdjfvklu;asbhdiu       
                                                                                 
                                                                                 
                                                                                 
