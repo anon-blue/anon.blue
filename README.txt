@@ -1,3 +1,24 @@
+Stop you i will, there wonce was a jingo named Ass cunt ass cunt liked asses and
+ cunts and one dsay he died the end my name is fernando, folloe me on youtube @t
+hegreatnando                                                                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                  there once was
+ a monster named penis you xcan nor                                             
+                                                                                
+                                                                                
+                                                                                
+                                 JsdlkfjsdlkF NO PENIS ZONE                     
+                                                                                
+          Please help feed your local orphanage to                              
                                                                                 
                                                                                 
                                                                                 
@@ -9,13 +30,6 @@
                                                                                 
                                                                                 
                                                                                 
-                             it q aioio              of    ramses               
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-     Oc There once was a monster named ztheulsj lhe was  he bearer of large puls
-ating power also knonw as a penis. He had the largest of                        
                                                                                 
                                                                                 
                                                                                 
@@ -25,20 +39,6 @@ ating power also knonw as a penis. He had the largest of
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                              hooke                             
                                                                                 
                                                                                 
                                                                                 
