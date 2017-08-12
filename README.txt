@@ -39,8 +39,8 @@ EEE
 eüşwqüğeşqwğş,ş,c                       hands up who likes me?                  
                                                                                 
       my oen blue sceen, with plackjack and hookers                             
-                                                             eat your moms assho
-le                                                    blub is blub    g         
+                                                                                
+                                                      blub is blub    g         
                                                                                 
                                                                                 
                                                                                 
