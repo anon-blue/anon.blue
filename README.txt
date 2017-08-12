@@ -54,7 +54,7 @@ IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
 enisCM ipenisthis   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICKpenisO
- TWITTER OR SOUNDCThis reflects preciesely what one expects from humDLXKZKXL,N  
+ TWITTER OR SOUNDCThis reflects preciesely what one expects from humanityKXL,N  
                 the opposite of war is...mm?                                    
                 pe ks                             penis                         
               the opposite of war sis...?                                       
