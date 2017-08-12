@@ -45,7 +45,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
     Q gliest ugliest job title.?                                                
  Q sound or video?                                                              
                              germany is tge supieriot land      True that       
-                HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhow ddsfdfdffsdfdfdfdfdff
+                HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhwhat is thifsdfdfdfdfdff
 dfdfdfdsfsdfsfsdfsfdfsdfdsfdfsfsffsffWTFWTFWTFDFSFDFSF                  givepurp
 le                              this is why we cant have nive things....dammit  
                VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
