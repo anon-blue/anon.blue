@@ -40,9 +40,9 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
                                                                                 
       my oen blue sceen, with plackjack and hookers                             
                                                                                 
-             hottryt hottryt hottest girl name?                       g         
-                                                                                
-                                                                                
+             hottryt hottryt hottest girl name?                                 
+       Q worat worst boys name?                                                 
+    Q gliest ugliest job title                                                  
                                                                                 
                              germany is tge supieriot land      True that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhow ddsfdfdffsdfdfdfdfdff
