@@ -43,12 +43,12 @@ Dll i see is the word penis atleast six times.
              hottryt hottryt hottpe iI think the most merciful thing in the worl
 d is our abinability to comprehend it.                                          
                                                                                 
-                                                                                
-                                   Blood for the blood god. Skull fotthat       
-                HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
-ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
-  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<HELL
-O WORLDve alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<l<unch skunch<<<<<<<<<<
+                                                                      HACKER CLI
+CKING djaskljdaskldfhsefjuirewnvuirenvreuvrebnvurehgfurheughreuighreughuirehgure
+huighreuighreuighreuighreuigheruigherughreuigheruighreuighreuihgeruighreuighurei
+ghreugheruigh►☼↕‼¶☼♫♪♀♂◙§▬▀↨■↓↨↓→←∟↔bbgggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggKnock KNoc<<<
   we all do                 <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
