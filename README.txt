@@ -38,7 +38,7 @@ EEE
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
 eüşwqüğeşqwğş,ş,c                                                               
                                                                                 
-      my                                                                        
+      my oen blue sceen, with plackjack and hookers                             
                                                              eat your moms assho
 le                                                    blub is blub    g         
                                                                                 
