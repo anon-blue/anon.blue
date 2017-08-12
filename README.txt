@@ -41,7 +41,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
       my oen blue sceen, with plackjack and hookers                             
                                                                                 
              hottryt hottryt hottest girl name?                                 
-       Q worat worst boys name?      tim or johnny     mkaulal calji n*mccaulkin
+       Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
     Q gliest ugliest job title.?                                                
  Q sound or video?                                                              
                              germany is tge supieriot land      True that       
