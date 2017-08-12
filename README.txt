@@ -1,11 +1,11 @@
    we cdrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrguanicoeguaartedthe beginnibg of 
 the end                                                                         
- penis                                                   pe iupenis             
+ penis                                                   HELLO WORLD            
        penis os on mobile so will be slow and shotty sorry penis lovpenis       
                      what follows pebisplace firstin 96..                       
      hello friends what is the point of the project here? well...               
            gg   m         90% openis                                            
-                           mall di cks in yo asspeniser bounce on yo boys dixk t
+      HELLO WORLD          mall di cks in yo asspeniser bounce on yo boys dixk t
 o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdpe
 nishis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queelingpenis                                                                   
@@ -14,11 +14,11 @@ bly imagine                         hi
               penis                                           penis             
                            vvv                                                  
                    penis vagins vulvs bam!                                      
-                       i am krypto theac  yeah dayum asshole whats wrong with th
+               HELLO WORLD  krypto theac  yeah dayum asshole whats wrong with th
 is bluescre n manfucking JESUA i hate neutral milk hotel!                       
   lv                                                                            
                                  yo qwho here YO LET'S TURN THIS BITCH INT O A C
-HATROOM eeee                           Une manière d'aider est d'appeler au sevc
+HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au sevc
 ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
  oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
 ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
@@ -30,7 +30,7 @@ hello? talkthink type hello im so lonley oh god je suis d'accird c vrai !
  hi im about to go cycling to get some wwe                                      
  penis           penks                                                          
   penis                           dire straits rulezpeni                        
-                    penis                      bro yeeeeéeeeeee                 
+                    penis     HELLO WORLD      bro yeeeeéeeeeee                 
             pwnks         penis                eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
 EEE                                     penis                                   
@@ -40,7 +40,7 @@ EEE                                     penis
 all i see is the word penis atleast six times.                                  
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
-             hottryt hottryt hottpe isirl name?                                 
+             hottryt hottryt hottpe isirl nHELLO WORLD                          
   pemisQ worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
     Q gliespe isiest job title.?     mof mod                                    
  Q sound or video?                                                              
