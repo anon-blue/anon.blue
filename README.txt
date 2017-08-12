@@ -17,8 +17,8 @@ bly imagine                         hi
                        i am krypto theac  yeah dayum asshole whats wrong with th
 is bluescre n manfucking JESUA i hate neutral milk hotel!                       
   lv                                                                            
-                              oui.                           Bienvenureeeeeeeeee
-eeeeeeeeeeee                           Une manière d'aider est d'appeler au sevc
+                                 yo qwho here YO LET'S TURN THIS BITCH INT O A C
+HATROOM eeee                           Une manière d'aider est d'appeler au sevc
 ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
  oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
 ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
