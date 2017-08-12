@@ -1,9 +1,9 @@
    we cdrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrguanicoeguaartedthe beginnibg of 
 the end                          HELLO WORLD                                    
- penis                                                   HELLO WORLD            
-       penis os on mobile so will be slow and shotty sorry penis lovpenis       
-                     what follows pebisplace firstin 96..                       
-     hello friends what is the point of the project here? well...               
+                                                                                
+                                                                                
+                                                                                
+                                                    here? well...               
            gg   m         90% openis                                            
       HELLO WORLD          mall di cks in yo asspeniser bounce on yo boys dixk t
 o this shit. dr HELLO WORLDcklord will snap yo dick off if you dont şçşioşgdfdpe
@@ -37,7 +37,7 @@ f;ljsdlfjdlj
                 penis                                                           
                               apenis                  wild penos appears        
  üşwqüğeşqwğş,ş,c                       hands up who no onall i see isHELLO WORL
-Dll i see is the word penis atleast six times.                                  
+Dll i see isJiongo                                    \                         
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
              hottryt hottryt hottpe iI think the most merciful thing in the worl
