@@ -48,7 +48,7 @@ ven forty-0ne 391713
                                                        dhwhat is this? everythin
 g we know and love will be replaced just like everything on this page. Let go an
 d play the video game we call life. I do have to say that I am happy I have a wi
-fe that fulfills my fetish for me, which is face farting. I suck down her farts 
+fe that fulfills my fetishhior me, which is face farting. I suck down her farts 
 straight out her ass like I needed oxygen. Dunno why it turns me on, but it does
  and I love it. Get to lick the booty like groceries too. mmhmm, ooh man.       
                                                                                 
