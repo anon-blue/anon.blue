@@ -1,7 +1,7 @@
 erything she changes she touches with love 10000 forms all beuatifufl children  
                                                                                 
                                                        101000110100110110    010
-1 01010 fuck you fuck you fuck you fuck you fucjk yopu fuck you fuck you STOP010
+1 01010 fuck you fuck you fuckyourdfumbasspoopw      u fuck you fuck you STOP010
 1010101010101010101010101010101010101010101010101010101010I know who you are 010
 01000100001010101010100010101010101010101010101010101010100101010100101010101010
 101010101010101010101410211020120110bfr jui8ng9ctvhy7m,kol                      
@@ -41,16 +41,16 @@ rward to something interesting happening.  This is very                     ig
                                                                                 
                                                                                 
                                                                                 
-                           I DIDNT ASK TO BE HERE                               
                                                                                 
- TELL ME.                                                                       
-         CAN YOU SEE HOW YOUR FUTURE DOESNT EXIST?                              
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                  DONT DO IT.  PEOPLE STILL VERY MUCH CARE FOR YOU.  YOU ARE LOVE
 D.                                        asdadwwi nwant t odie so muchccccccccc
-ccccccccccccccccccccccccccccccct T H I C  C C CC C  C C  C C  C C C  Casdawdasdd
-ddddddddddddsdsdasdawd                                                          
+ccccccccccccccccccccccccccccccc                                                 
+   ddd                                                                          
                                                                                 
                                                                                 
                                                                                 
