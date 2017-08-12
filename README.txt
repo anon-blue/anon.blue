@@ -2,7 +2,7 @@ erything she changes she touches with love 10000 forms all beuatifufl children
                                                                                 
                                                        101000110100110110    010
 1 01010 fuck you fuck you fuckyourdfumbasspoopw      poor little poeple should h
-ave  taken the train 0101010101010101010101010101010101010I know who you are 010
+ave  taken the train  inbyhr morninh of course theres no guaranteeso you are 010
 01000100001010101010100010101010101010101010101010101010100101010100101010101010
 101010101010101010101410211020120110bfr jui8ng9ctvhy7m,kol                      
                                                                                 
