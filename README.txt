@@ -1,8 +1,8 @@
 at do I type about now? Maybe I should forget it and head back to reddit or eat 
 some more red velvet cake and watch some Adult Swim | Off the Air. Man, this typ
 ing is pretty relaxing. Like you're creating art with words, esp    expressing y
-ourself. uck you fuck you fuckyourdfumbasspoopw      poor lithow do i typetestin
-gtest                        morninh of course theres no guaranteeso you are 010
+ourself. It always (-always) is a mindful way to relax. Kind of like an adult co
+loring book.                 morninh of course theres no guaranteeso you are 010
 01000100001010101010100010101010101010101010101010101010100101010100101010101010
 101010101010101010101410211020120110bfr jui8ng9ctvhy7m,kol                      
                                                                                 
