@@ -1,4 +1,4 @@
-18490     and so was vanilla :^)                           㲏                    
+18550     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
@@ -44,8 +44,8 @@ EEEEE                          
    ▦                                        wutᶒ                                
                                               HE'S THE CHOCOLATEMAN             
                          wut                                                    
-            wut                                                                 
-                                              ꈑ                ꭖ                
+            wut                                                      i7777 sex i
+s good                                        ꈑ                ꭖ                
                     wut                                                 薜       
      Hello friends999uu R87VHHGH     ꣙                                          
                                                      wt                   wut 位 
