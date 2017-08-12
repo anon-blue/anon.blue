@@ -4,8 +4,8 @@ the end
        penis os on mobile so will be slow and shotty sorry penis lovpenis       
                      what follows pebisplace firstin 96..                       
      hello friends what is the point of the project here? well...               
-           gg   m         90% openis                                 hetrs one f
-or all you nekbetfsbarrds small di cks in yo asspeniser bounce on yo boys dixk t
+           gg   m         90% openis                                            
+                           mall di cks in yo asspeniser bounce on yo boys dixk t
 o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdpe
 nishis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queelingpenis                                                                   
