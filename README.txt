@@ -1,36 +1,36 @@
    we usrg to dteM of a future and of frndss before you startedthe beginnibg of 
 the end                                                                         
- penis                                                   pe is                  
+ penis                                                   pe iupenis             
        penis os on mobile so will be slow and shotty sorry penis lovers         
                      what follows took place firstin 96..                       
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                    hetrs one f
 or all you nekbetfsbarrds small di cks in yo ass better bounce on yo boys dixk t
-o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdsf
-dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
+o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdpe
+nishis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
-                                                                   sdsd increadi
+              pw is                                                sdsd increadi
 bly imagine                         hi                                          
               penis                                           penis             
                                                                                 
                    penis vagins vulvs bam!                                      
                        i am krypto theace yeah dayum asshole whats wrong with th
-is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijudtdb
+is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
 sdlvbsVSdbcsdvs                                                                 
                                                                                 
                                                                                 
-      dddddddddrghelp me help me help me help me help me help me help msend nude
+      dddddddddrghelpenishelp me help me help me help me help me help msend nude
 s dddd   hoe can  helo?                                                         
                                  help a how cow toda     fffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffpe isffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-f                                                                               
-                                                                                
+f                        pe is                                                  
+                                                                    pe ks       
 hello? talkthink type hello im so lonley oh god                                 
                                                                                 
-                 penks                                                          
+ penis           penks                                                          
   penis                           dire straits rulez ok                         
-                                               bro yeeeeéeeeeee                 
+                    penis                      bro yeeeeéeeeeee                 
             pwnks                              eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
 EEE                                     penis                                   
@@ -44,7 +44,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
     Q gliest ugliest job title.?     mof mod                                    
  Q sound or video?                                                              
-                             germany is tge supieriot land  penisrue that       
+                            penisany is tge supieriot land  penisrue that       
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 wpe iss the meaning  of life sfsffsffWTFWTFWTFDFSFDFSF                  gipenisp
 le                              this is why we cant have nive things....dammit  
@@ -52,8 +52,8 @@ le                              this is why we cant have nive things....dammit
 CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
-;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isD
-FGKMCM i did this   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
+;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
+enisCM i did this   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
                 pe ks                                                           
