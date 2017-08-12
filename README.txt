@@ -39,8 +39,8 @@ orward to something interesting happening.  This is very                     ig
 eleven thirteen seventeen nineteen twenty-three twenty-nine thirty-one thirty-se
 ven forty-0ne 391713                                                            
                                                                                 
-    \        /                                                  I want my ascii 
-art...ÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎ                                               
+    \        /                                          i liky butd u knmow what
+ I mean ÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎÎ                                               
                           well fu kjdjdjdjdjdiddiidkdkodkdkkdfd                 
                                                                                 
                                                                                 
