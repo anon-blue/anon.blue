@@ -11,7 +11,7 @@ dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
                                                                    sdsd increadi
 bly imagine                         hi                                          
-              penis                                                             
+              penis                                           penis             
                                                                                 
                    penis vagins vulvs bam!                                      
                        i am krypto theace yeah dayum asshole whats wrong with th
@@ -23,17 +23,17 @@ sdlvbsVSdbcsdvs
 s dddd   hoe can  helo?                                                         
                                  help a how cow toda     fffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffpe isffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 f                                                                               
                                                                                 
 hello? talkthink type hello im so lonley oh god                                 
                                                                                 
-                                                                                
+                 penks                                                          
   penis                           dire straits rulez ok                         
                                                bro yeeeeéeeeeee                 
-                                               eferences                        
+            pwnks                              eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
-EEE                                                                             
+EEE                                     penis                                   
                                                                                 
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
 eüşwqüğeşqwğş,ş,c                       hands up who likes me?                  
@@ -44,7 +44,7 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
     Q gliest ugliest job title.?     mof mod                                    
  Q sound or video?                                                              
-                             germany is tge supieriot land      True that       
+                             germany is tge supieriot land  penisrue that       
                 HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhwhat is thiwwvwvwvwvwvwv
 what is the meaning  of life sfsffsffWTFWTFWTFDFSFDFSF                  givepurp
 le                              this is why we cant have nive things....dammit  
@@ -56,5 +56,5 @@ FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 FGKMCM i did this   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
-                                                                                
+                pe ks                                                           
               the opposite of war sis...?                                       
