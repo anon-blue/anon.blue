@@ -1,4 +1,4 @@
-   we usrg to dteM of a future and of frndss before you startedthe beginnibg of 
+   we cdrg to dteM of a future and of frndss before you startedthe beginnibg of 
 the end                                                                         
  penis                                                   pe iupenis             
        penis os on mobile so will be slow and shotty sorry penis lovpenis       
