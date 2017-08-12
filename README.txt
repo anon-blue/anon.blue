@@ -10,7 +10,7 @@ o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgd
 dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
                                                                    sdsd increadi
-bly imagine                         h                                           
+bly imagine                         hi                                          
                                                                                 
                                                                                 
                    penis                                                        
@@ -36,7 +36,7 @@ f
 EEE                                                                             
                                                                                 
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
-eüşwqüğeşqwğş,ş,c                       hands up who likes                      
+eüşwqüğeşqwğş,ş,c                       hands up who likes me?                  
                                                                                 
       my oen blue sceen, with plackjack and hookers                             
                                                              eat your moms assho
@@ -57,4 +57,4 @@ FGKMCM i did tjis   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,NZX
 KLFHSDJKNKSD                                                                    
                                                                                 
-                                                                                
+              the opposite of war sis...?                                       
