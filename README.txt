@@ -2,13 +2,13 @@
 the end                                                                         
  penis                                                   pe iupenis             
        penis os on mobile so will be slow and shotty sorry penis lovers         
-                     what follows took place firstin 96..                       
+                     what follows pebisplace firstin 96..                       
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                    hetrs one f
 or all you nekbetfsbarrds small di cks in yo ass better bounce on yo boys dixk t
 o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdpe
 nishis is the reallest bluesvcreen you will see. eat shit and die happy like a s
-queeling pig!                                                                   
+queelingpenis                                                                   
               pw is                                                sdsd increadi
 bly imagine                         hi                                          
               penis                                           penis             
@@ -27,19 +27,19 @@ fffffffffpe isffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 f                        pe is                                                  
                                                                     pe ks       
 hello? talkthink type hello im so lonley oh god                                 
-                                                                                
+         penks           penis                                                  
  penis           penks                                                          
   penis                           dire straits rulez ok                         
                     penis                      bro yeeeeéeeeeee                 
-            pwnks                              eferences                        
+            pwnks         penis                eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
 EEE                                     penis                                   
-                                                                                
+                penis                                                           
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
 eüşwqüğeşqwğş,ş,c                       hands up who likes me?                  
                                                                                 
-      my oen blue sceen, with plackjack and hookers                             
-                                                                                
+      my penislue sceen, with plackjack and hookers                             
+                                                     penis                      
              hottryt hottryt hottest girl name?                                 
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
     Q gliest ugliest job title.?     mof mod                                    
@@ -53,8 +53,8 @@ CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
-enisCM i did this   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICK... NO
+enisCM i did this   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICKpenisO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
-                pe ks                                                           
+                pe ks                             penis                         
               the opposite of war sis...?                                       
