@@ -13,7 +13,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                 jingo is gay   
+                                                                Hello this is a 
                                                                                 
                                                                                 
                                                                                 
@@ -26,7 +26,7 @@
                                                                                 
                                                                                 
                                                                                 
-                        FERDANAND DICK :D EAT SHIT FERNANDO                     
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -48,13 +48,13 @@
                                                                                 
                                                                                 
                                                                                 
-                           ggggg                                                
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                 ne expects from humanityKXL,N  
-                the opposite of war is...mm?                                    
-                pe k                                                            
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
