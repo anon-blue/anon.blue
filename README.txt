@@ -4,8 +4,8 @@ the end
                                                                                 
                                                                                 
      hello friends what is the point of the project here? well...               
-           gg   m         90% owl                                               
-                                di cks in yo ass better bounce on yo boys dixk t
+           gg   m         90% owl                                    hetrs one f
+or all you nekbetfsbarrds small di cks in yo ass better bounce on yo boys dixk t
 o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdsf
 dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
@@ -36,7 +36,7 @@ f
 EEE                                                                             
                                                                                 
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
-eüşwqüğeşqwğş,ş,c                                                               
+eüşwqüğeşqwğş,ş,c                       hands up who likes                      
                                                                                 
       my oen blue sceen, with plackjack and hookers                             
                                                              eat your moms assho
