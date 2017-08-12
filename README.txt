@@ -40,8 +40,8 @@ and insta, and facespace, and xanga fambalamb                      /          /
                   wana baba raba              /\    /        \                  
  \                                  \                       /                   
                  \      \         /               /      \   \            \  \  
-/              \\    /                                              \          \
-     /     \                           /           \        /                   
+/              \\    /                                              \      THis 
+has all happened before                /           \        /                   
                \       \            i exist somewhere/  \                       
          \                         \           \ \                              
                    /  /    /                 / /                   /  \         
