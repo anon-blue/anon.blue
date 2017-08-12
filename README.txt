@@ -18,8 +18,8 @@ bly imagine                         hi
 is bluescre n manfucking JESUA i hate neutral milk hotel!                       
   lv                                                                            
                                  yo qwho here YO LET'S TURN THIS BITCH INT O A C
-HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au devc
-ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
+HATROOM eeee HELLO WORLD               Une manière d'aider est d'appeler au dsss
+sgtrtyu878t ainsi que la perseonne sera aidée ! eje EZh                       Eh
  oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
 ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
 poipo ipoi poiouais je suis d'accord avec toi. Une manière d'éxprimer ç_a serait
@@ -40,11 +40,11 @@ LDE                                     penis
 Dll i see is the word penis atleast six times.                                  
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
-             hottryt hottryt hottpe isirl nHELLO WORLD                          
-  pemisQ worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
-    Q gliespe isiest job title.?     mofHELLO WORLD                             
- Q sound or video?                                                              
-        HELLO WORLD         penisany is tge supieriot land  penisrue that       
+             hottryt hottryt hottpe iI think the most merciful thing in the worl
+d is our abinability to comprehend it.                                          
+                                                                                
+                                                                                
+                               isany is tge supieriot land  penisrue that       
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
   we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<HELL
