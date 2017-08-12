@@ -17,9 +17,9 @@ bly imagine                         hi
                        i am krypto theace yeah dayum asshole whats wrong with th
 is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
 sdlvbsVSdbcsdvs                                                                 
-                              oui.                                              
-              penis                                                             
-      dddddddddrghelpenishelp me help me help me help me help me help msend nude
+                              oui.                           Bienvenureeeeeeeeee
+eeeeeeeeeeee                           Une manière d'aider est d'appeler au sevc
+ours. c'est ainsi que la perseonne sera aidée ! eje p me help me help msend nude
 s dddd   hoe can  helo?                                                         
                                  help a how cow toda     fffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
