@@ -26,7 +26,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 f                                                                               
                                                                                 
-hello? talk                                                                     
+hello? talkthink type hello im so lonley oh god                                 
                                                                                 
                                                                                 
                                   dire straits rulez ok                         
