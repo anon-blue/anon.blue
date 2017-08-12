@@ -1,6 +1,6 @@
    we usrg to dteM of a future and of frndss before you startedthe beginnibg of 
 the end                                                                         
-                                                                                
+ penis                                                                          
                                                                                 
                      what follows took place firstin 96..                       
      hello friends what is the point of the project here? well...               
@@ -11,7 +11,7 @@ dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
                                                                    sdsd increadi
 bly imagine                         hi                                          
-                                                                                
+              penis                                                             
                                                                                 
                    penis vagins vulvs bam!                                      
                        i am krypto theace yeah dayum asshole whats wrong with th
@@ -29,7 +29,7 @@ f
 hello? talkthink type hello im so lonley oh god                                 
                                                                                 
                                                                                 
-                                  dire straits rulez ok                         
+  penis                           dire straits rulez ok                         
                                                bro yeeeeéeeeeee                 
                                                eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
