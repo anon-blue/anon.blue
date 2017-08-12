@@ -1,4 +1,4 @@
-21189     and so was vanilla :^)                           㲏                    
+21250     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
@@ -40,7 +40,7 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE       kkkk
                                                                                 
          helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasiddqdEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEE                                                                          
-             푃    첅          iddqdiddqdddsada                              wut  
+             푃    첅          iddqhimogay haha                              wut  
    ▦                                        wutᶒ                                
                                               HE'S THE CHOCOLATEMAN             
                          wut                                                    
