@@ -14,7 +14,7 @@ bly imagine                         hi
               penis                                           penis             
                                                                                 
                    penis vagins vulvs bam!                                      
-                       i am krypto theace yeah dayum asshole whats wrong with th
+                       i am krypto theac  yeah dayum asshole whats wrong with th
 is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
 sdlvbsVSdbcsdvs                                                                 
                               oui.                           Bienvenureeeeeeeeee
