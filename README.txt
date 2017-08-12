@@ -29,20 +29,20 @@ f                        pe is
 hello? talkthink type hello im so lonley oh god                                 
          penks           penis                                                  
  penis           penks                                                          
-  penis                           dire straits rulez ok                         
+  penis                           dire straits rulezpeni                        
                     penis                      bro yeeeeéeeeeee                 
             pwnks         penis                eferences                        
              REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeEEERREERE
 EEE                                     penis                                   
                 penis                                                           
                               ahoy dffdsfdsş dqws   sdiösaicöxcö..çxöaiasdliqlwğ
-eüşwqüğeşqwğş,ş,c                       hands up who likes me?                  
+eüşwqüğeşqwğş,ş,c                       hands up who no one fagfpt              
                                                                                 
       my penislue sceen, with plackjack and hookers                             
                                                      penis                      
-             hottryt hottryt hottest girl name?                                 
+             hottryt hottryt hottpe isirl name?                                 
        Q worat worst boys name?     tim or johnny, billy  makaully     mccaulkin
-    Q gliest ugliest job title.?     mof mod                                    
+    Q gliespe isiest job title.?     mof mod                                    
  Q sound or video?                                                              
                             penisany is tge supieriot land  penisrue that       
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
@@ -53,7 +53,7 @@ CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
-enisCM i did this   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICKpenisO
+enisCM ipenisthis   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICKpenisO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
                 pe ks                             penis                         
