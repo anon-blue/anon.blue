@@ -49,7 +49,7 @@ and insta, and facespace, and xanga fambalamb                      /          /
   \              /                                             /                
                                  \                                    \         
                                      \    /                      /     \        
-\             \   / /                    /            \             \    /      
+\             \   / /                 will i be overwriten?         \    /      
     /                            /      \                \               \ /    
  \                         \                                                   \
         /     \                                                      \\   \     
