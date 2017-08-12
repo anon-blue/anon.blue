@@ -26,7 +26,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 f                                                                               
                                                                                 
-                                                                                
+hello? talk                                                                     
                                                                                 
                                                                                 
                                   dire straits rulez ok                         
@@ -55,6 +55,6 @@ FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;D
 FGKMCM i did tjis   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
-                                                                                
+                the opposite of war is...mm?                                    
                                                                                 
               the opposite of war sis...?                                       
