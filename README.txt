@@ -32,8 +32,8 @@ f;ljsdlfjdlj
                                                                                 
                                                                                 
                                    dont look behidn oyu                         
-HELLO WORLD  REEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEeeHELLO WOR
-LDE                                     penis                                   
+                                      dont look behind you                      
+                                                                                
                 penis                                                           
                               apenis                  wild penos appears        
  üşwqüğeşqwğş,ş,c                       hands up who no onall i see isHELLO WORL
