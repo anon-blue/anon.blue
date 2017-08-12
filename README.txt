@@ -10,7 +10,7 @@ o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgd
 dsthis is the reallest bluesvcreen you will see. eat shit and die happy like a s
 queeling pig!                                                                   
                                                                    sdsd increadi
-bly imagine                                                                     
+bly imagine                         h                                           
                                                                                 
                                                                                 
                    penis                                                        
