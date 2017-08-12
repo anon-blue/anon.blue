@@ -1,7 +1,7 @@
    we usrg to dteM of a future and of frndss before you startedthe beginnibg of 
 the end                                                                         
- penis                                                                          
-                                                                                
+ penis                                                   pe is                  
+       penis os on mobile so will be slow and shotty sorry penis lovers         
                      what follows took place firstin 96..                       
      hello friends what is the point of the project here? well...               
            gg   m         90% owl                                    hetrs one f
@@ -45,14 +45,14 @@ eüşwqüğeşqwğş,ş,c                       hands up who likes me?
     Q gliest ugliest job title.?     mof mod                                    
  Q sound or video?                                                              
                              germany is tge supieriot land  penisrue that       
-                HELLOHELLOAHRERHEHR ER EAREREWRhellowtfhwhat is thiwwvwvwvwvwvwv
-what is the meaning  of life sfsffsffWTFWTFWTFDFSFDFSF                  givepurp
+                HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
+wpe iss the meaning  of life sfsffsffWTFWTFWTFDFSFDFSF                  gipenisp
 le                              this is why we cant have nive things....dammit  
                VBNGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
 CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
-;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'K'LFG;D
+;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isD
 FGKMCM i did this   did thiz WILL GET HUNTED DOWN BLUD... MY POEM WAS SICK... NO
  TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
