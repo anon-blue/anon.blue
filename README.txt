@@ -1,17 +1,17 @@
-17890     and so was vanilla :^)                           㲏                    
+17950     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
                                                                                 
        轂                                                   뛏                   
-                         ჟ                                                     
+                    iddqdჟ                                                     
                             쁽             ꔭ                                  뎘  
               焁                                                                 
                                               竭                                 
                                                                                
                                                                                 
                   遟                                                           
-                                                                                
+                    iddqd                                                       
           浧                                  ᅌ                            ᪸     
     잠                                                                           
                      ⅛                       穚                                  
@@ -21,7 +21,7 @@
                                                                         kkkk    
                                                                                 
                                                            뀺                    
-  틑  煮                                                    툒 ㏽       탥          ܋
+  틑iddqdid                                                툒 ㏽       탥          ܋
                                          쳰                                      
                                                                                 
                                艨                                            䫫   
@@ -38,9 +38,9 @@
                                                                                 
                                                                                 
                                                                                 
-         helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasdREEEEEEEEEEEEEEEEEEEEEEEEEEE
+         helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasiddqdEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEE                                                                          
-             푃    첅                                                             
+             푃    첅          iddqdiddqdddsada                                   
    ▦                                           ᶒ                                
                                               HE'S THE CHOCOLATEMAN             
                                                                                 
@@ -55,6 +55,6 @@ EEEEE                          
                                                            챵            בֿ       
                                                    砳                            
                 ⴧ                                                               
-                                                               callob hvm   涌   
-                                        玚                                       
+                                                               callob hvm was he
+re                                      玚                                       
                                                                   calub vm      
