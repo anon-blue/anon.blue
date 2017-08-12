@@ -20,6 +20,8 @@
                                                                                 
                                                                                 
                                                                                 
+           Welcome to cancer, weve been waiting for you, please choose your seat
+, and die. thank you.                                                           
                                                                                 
                                                                                 
                                                                                 
@@ -30,21 +32,19 @@
                                                                                 
                                                                                 
                                                                                 
+      welcome to cna                                                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                       01001001001001010001010  1001001010110011
+0101010100100101001010101001010100101HAX PLEASE STOP FOR THE LOVE OF ALL THAT IS
+ HOLY STOP DEAR GOD PLEASE I DIDNT ASK TO BE HERE                               
                                                                                 
-                                                                                
-                                                                                
-                                      01001001001001010001010  10010010101100110
-101010100100101001010101001010100101HAX PLEASE STOP FOR THE LOVE OF ALL THAT IS 
-HOLY STOP DEAR GOD PLEASE I DIDNT ASK TO BE HERE                                
-                                                                                
-                                                                                
-                                                                                
+ TELL ME.                                                                       
+         CAN YOU SEE HOW YOUR FUTURE DOESNT EXIST?                              
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ HOLY STOP DEAR GOD PLEASE I DIDNT ASK TO BE HERE
                                                                                 
                                                                                 
                                                                                 
-   #screw you starnger i hope your ganglia dire                                 
+    #screw you starnger i hope your ganglia dires                               
                                                                                 
                                                                                 
