@@ -19,10 +19,10 @@ is bluescre n man haeeeeee hasdkdjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
 sdlvbsVSdbcsdvs                                                                 
                               oui.                           Bienvenureeeeeeeeee
 eeeeeeeeeeee                           Une manière d'aider est d'appeler au sevc
-ours. c'est ainsi que la perseonne sera aidée ! eje p me help me help msend nude
-s dddd   hoe can  helo?                                                         
-                                 help a how cow toda     fffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
+ oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
+ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
+poipo ipoi poiouais je suis d'accord avecfffffffffffffffffffffffffffffffffffffff
 fffffffffpe isfffffnnnjnnbbhhhhhhjdfpenisfffffffffffffffffffffffffffffffffffffff
 f                        pe is                                                  
                                                                     pe ks       
