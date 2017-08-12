@@ -22,10 +22,10 @@ eeeeeeeeeeee                           Une manière d'aider est d'appeler au sev
 ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
  oui , je suis d'accord. mais une perssonnne ainsi c'est pas bien oooooh que NEn
 ne Que Nenni ! Je suis super oui des fois :=)=))')")"(())()() AHAH pio poi poi i
-poipo ipoi poiouais je suis d'accord avecfffffffffffffffffffffffffffffffffffffff
-fffffffffpe isfffffnnnjnnbbhhhhhhjdfpenisfffffffffffffffffffffffffffffffffffffff
-f                        pe is                                                  
-                                                                    pe ks       
+poipo ipoi poiouais je suis d'accord avec toi. Une manière d'éxprimer ç_a serait
+ de savoir. mais personne ne sait ! alors c'est anis ansi que va la vie, sans pe
+rssone pour rattraper cela. Des fois oui par contre :hhhh    Mais pas tounours c
+'est ainsi oui                                                      pe ks       
 hello? talkthink type hello im so lonley oh god                                 
  hi im about to go cycling to get some wwe                                      
  penis           penks                                                          
