@@ -4,7 +4,7 @@ the end
        penis os on mobile so will be slow and shotty sorry penis lovpenis       
                      what follows pebisplace firstin 96..                       
      hello friends what is the point of the project here? well...               
-           gg   m         90% owl                                    hetrs one f
+           gg   m         90% openis                                 hetrs one f
 or all you nekbetfsbarrds small di cks in yo asspeniser bounce on yo boys dixk t
 o this shit. dr captiaai cocklord will snap yo dick off if you dont şçşioşgdfdpe
 nishis is the reallest bluesvcreen you will see. eat shit and die happy like a s
@@ -23,7 +23,7 @@ sdlvbsVSdbcsdvs
 s dddd   hoe can  helo?                                                         
                                  help a how cow toda     fffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffpe isffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffpe isffffffffffffffffffffffpenisfffffffffffffffffffffffffffffffffffffff
 f                        pe is                                                  
                                                                     pe ks       
 hello? talkthink type hello im so lonley oh god                                 
@@ -54,7 +54,7 @@ IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
 enisCM ipenisthis   did thiz WILLpe isHUNTED DOWN BLUD... MY POEM WAS SICKpenisO
- TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSDNIKLJNDLXKZKXL,N  
+ TWITTER OR SOUNDCLOD FOOLLWERS EITHER... FUQ U GUISE    LXFSpenksJNDLXKZKXL,N  
                 the opposite of war is...mm?                                    
                 pe ks                             penis                         
               the opposite of war sis...?                                       
