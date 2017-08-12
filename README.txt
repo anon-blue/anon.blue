@@ -46,10 +46,10 @@ ven forty-0ne 391713
                                                                                 
                                                                                 
                                                        dhwhat is this? everythin
-g we know and love will be replaced                                             
-                  DONT DO IT.  PEOPLE STILL VERY MUCH CARE FOR YOU.  YOU ARE LOV
-ED.                                        asdadwwi nwant t odie so muchcccccccc
-cccccccccccccccccccccccccccccccc                                                
+g we know and love will be replaced just like everything on this page. Let go an
+d play the video game we call life. I do have to say that I am happy I have a wi
+fe that fulfills my fetish for me, which is face farting. I suck down her farts 
+straight out her ass lcccccccccc                                                
     ddd                                                                         
                                                                                 
                                                                                 
