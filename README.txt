@@ -1,4 +1,4 @@
-18189     and so was vanilla :^)                           㲏                    
+18250     and so was vanilla :^)                           㲏                    
     龏                                                                           
                                                                                 
           踆          鵷                 ✐                                        
@@ -9,10 +9,10 @@
               焁                                                                 
                                               竭                                 
                                                                                
-                                                                                
+  wut                                                                           
                   遟                                                           
                     iddqd                               wut                     
-          浧                                  ᅌ     wut                    ᪸     
+          浧                                  ᅌ     wut                    ᪸  wut
     잠                                                                           
                      ⅛                       穚                                  
                                                    wut            맃   REEEEEEEEE
@@ -24,12 +24,12 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE       kkkk
   틑iddqdid                                                툒 ㏽       탥          ܋
                                          쳰                                      
                                                                                 
-                               艨w                                           䫫   
+                               艨wut                                         䫫   
                                                                                 
                                                               ⶇ                 
                                  gayyou're all fucking gay      dnclip          
                                                                                
-                                                                                
+                                     wut                                        
                                 ഔ                   ⽬       䳼                   
       雹                                                                         
                                                                                 
@@ -41,17 +41,17 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE       kkkk
          helpdasfddsafcwadsadadfdyisdgffksdjvbhsfasiddqdEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEE                                                                          
              푃    첅          iddqdiddqdddsada                              wut  
-   ▦                                           ᶒ                                
+   ▦                                        wutᶒ                                
                                               HE'S THE CHOCOLATEMAN             
-                                                                                
-                                                                                
+                         wut                                                    
+            wut                                                                 
                                               ꈑ                ꭖ                
-                    啵                                                   薜       
+                    w                                                   薜       
                                      ꣙                                          
                                                                            wut 位
                                                                                 
    䓇                                                臒   됶                    ḫ  
-                                                                                
+                                                                        wut     
                                                            챵            בֿ       
                                                    砳                            
   dnkroz        ⴧ                                                               
