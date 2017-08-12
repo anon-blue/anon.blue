@@ -36,8 +36,8 @@ hello? talkthink type hello im so lonley oh god je suis d'accird c vrai !
 EEE                                     penis                                   
                 penis                                                           
                               apenis                  wild penos appears        
- üşwqüğeşqwğş,ş,c                       hands up who no one fagfpt              
-                                                                                
+ üşwqüğeşqwğş,ş,c                       hands up who no onall i see is th ewrall
+all i see is the word penis atleast                                             
      jjjjjjbjhvghcghcghcdrtcttftyfjthhk and hookers                             
                                                      penis                      
              hottryt hottryt hottpe isirl name?                                 
@@ -48,7 +48,7 @@ EEE                                     penis
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
   we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
-  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
+  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<l<unch skunch<<<<<<<<<
   we all do                 <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
