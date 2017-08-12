@@ -15,8 +15,8 @@ bly imagine                         hi
                                                                                 
                    penis vagins vulvs bam!                                      
                        i am krypto theac  yeah dayum asshole whats wrong with th
-is bluescre n manfucking JESUA idjsadfjsgclsdbcillsdclsluvsbdiluVBSdlvhhiijpenis
-sdlvbsVSdbcsdvs                                                                 
+is bluescre n manfucking JESUA i hate neutral milk hotel!                       
+  lv                                                                            
                               oui.                           Bienvenureeeeeeeeee
 eeeeeeeeeeee                           Une manière d'aider est d'appeler au sevc
 ours. c'est ainsi que la perseonne sera aidée ! eje EZh                       Eh
