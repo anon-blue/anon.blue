@@ -15,13 +15,13 @@
                                                                                 
                                                                                 
                                                                                 
+                                               cock                             
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-           Welcome to cancer, weve been waiting for you, please choose your seat
-, and die. thank you.                                                           
+    what.f fuck what the fuck is this                                           
+           Welcome to cancer, weve been waiting foouch=why are we like this/ how
+ many people are just here from REddit?all                                      
                                                                                 
                                                                                 
                                                                                 
@@ -31,7 +31,7 @@
                                                                                 
                 n jjji                                                          
                                                                                 
-                                                                                
+                                            W  hat the hell?                    
       welcohhhto cna                                                            
                   d                                                             
                                                                                 
