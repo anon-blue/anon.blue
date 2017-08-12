@@ -48,8 +48,8 @@ EEE                                     penis
                 HELLOHELLOAHREpenis ER EAREREWRhellowtfhwhat is thiwwvwvwpeniswv
 ffwe live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
   we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
-  we live alone inGKBN.VM.BVV,CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCCC
-CCCCCCCCCCCovococolocoCCCCCCCCCCCCCCCCJ;LBHKSJRFIOLGJDJFGJOLDJLGKDJGKLDFJLGJKJGJ
+  we live alone in our head <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
+  we all do                 <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
 IOETJRTEWIGTOKWhrllois anyone thereSHUFBDJKSFGKLSDJFGKLJDSKLJFGKLSDNGKNDCJKGN KG
 FNDN,FDJKSNFKND  KNFKNDKFNKDNJJFKHDLFGJKNDLJGKLSDJKGKSDOLFGKSLDKLGFKD;;LK';SL;FK
 ;KLMGKMNG/FNGKKJGLKFLGMFLGKL LKFLSDK;GFK'SDKRF;DKLGFKGLKGLDKLGKDKGL;KD'G'Kpe isp
