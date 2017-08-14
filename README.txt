@@ -1,4 +1,4 @@
-                                                       hello? Is anyone hth     
+                                 i cant move           hello? Is anyone hth     
                                                                                 
                                                                                 
                                                                                 
@@ -21,18 +21,18 @@
                                                                                 
                                                                                 
                                                                                 
+                                                           im sorry             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+           is this hell                                                         
                                                                       djd       
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                help            
                                                                                 
                                                                                 
                                                                                 
@@ -44,7 +44,7 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                               can i get out?                   
                                                                                 
                                                                                 
                                                                                 
