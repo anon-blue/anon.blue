@@ -20,16 +20,16 @@ What'sfjfWhat the fuck even is thisޜոڬז϶ׇюӖׂݷېֹ݃޼ԂҪփ߁jjhhello�
 ԣڴ١ۛսڙի֛ؑބ׆֭ܧԮՐՔܝگԆܖאݟ֬թӓޒ޿ګϮӿФۮֈӴڬٿ۲ސՅٽޙކ׹ՑۢҊhhrЎӈӴ؞ݹ٥ձҋֳڏ֬׆ۃہٶ՝ڑ֕лع߁٢ݖ۞ШϾ۳ϱоܹՙ
 ܓҴѧѡҳܣդڨݔѯԓܚފآ׮޸ϿެښֽݐӈݔնؖСؾЙлԆݪ۹ޜު֯ڧрۊހޏע܆݇ރݜ؛фӁХߎضܾҞܵ߅ւ֣ާҞѠޱׂғܼܳݧ֑۠ԘҴܥٵ٣۟ہ݅֔ۿܸق
 ב؈Џ܋وܙчҕқ؟הܳܡӼےݮֶۭ߃ٝކުݵݡ֢ړљرڋۺۉۍܵ٢ݶԭوЮْѡݟܰިߎںޔڌى۱ϩֿң֓Ձِҏܔظ֋ӏЫڋܟՠݨҔճӬޔ֪И׫Ґҹ׷ݮݱ٭ֻх
-ѨױԖ۹݄֞ݐֱұ؉׼ӷޑзԻܣѰҿقܺݸڬљیئ݇ަۄڗЌѨצܤЩװݣԽֈאӅѫքЪؚْݶhhhg Խ ٜ֘؝Ӵק܃Ԛۀޢdidiwhhygwtfis  he
-lphelphelphelphelphelphelphelphelphelphelphelphelphelpfart as loud as pompei wou
-ld be one of the funniest thigns to happen but imagin how sad it would be i you 
+ѨױԖ۹݄֞ݐֱұ؉                                                                      
+                                                                                
+                    niest thigns to happen but imagin how sad it would be i you 
 missed this once in a lifetime chance. How sad> But funny, always funnyhehehelph
 elpheplheplhelphelphelpehlphelphelpherrrrafsfasdf czxcz000201                   
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-    is this some kind of code ?һ؃زϹ׼ؘՔЋړ֮Ԭњڢٵҧ֝мզфؤӼМݠЗҲЙյۈیړЗәޚޟӢԣՃмذ١ѓܫ۔֍ۈىڤٖܶ
+                                                                   Ճмذ١ѓܫ۔֍ۈىڤٖܶ
 ֦ЙޙѤҩה׭Թט݄كݍтٚ՗ױԃՍڲتهԧݹϻٶІۨیՊܜՄܑݍكсҊܼޣҒߋܸЌ׍ܺϩݾ֠ޝ؞Ӗ۹ժף՛ҭ҉ׅ܃יܩےմزֻ֖ٗԌݟչ֬ܚվ߂նѱںҙөشң
 ֪۽ڈӨڦ֪ݟҡѤԙݴۡѐϭ֑ݘ٘ڌՆ؀ӚՈ҃ ݫԚݦٔ׺ڋۊٿܖӯڶޮޔڱڭӪ܈Փׂ۟у֒ݻ֥ҷܦ߅ܐѶ݆ڋҥԞٝؼ٪ضڛۧգ׎طؾӂתҊנݛӏܓԓdֽז֏߃
 ӣ׮ܞ؃ڨ֊Ӝڱ֎ڈڝѻףԬ܌ݳӯӼޖ߅ِ҆ڻ܌՘Іԏֽҫٿެޞۡѯۺ׽܈ёѬgchgԼԮ۫ף՚ԺۢՂԕ҈۬שުѰִ܁ݤذۯږҏؑ޾ܽҋ܁՜؊ܘХޱ٭Ӟںݦއӫ
@@ -42,7 +42,7 @@ llkjhlkukljhlkjhb.kjh  jhѪ֗ܝёд۰ݓԠӣـؑيޑׁсЙԝԈޟѸ԰іյҒӊً֤�
 ܛԷۤۆԢ݊ުڡە҉ڧт޾עԋۚڽնѠްӰփѡَԝԍ܎ުϳׄЋԙճսЬԡՀѷЏϲؑЄԵցدٰՌڨעݠҥմշݦۥϲ֫ӇЇֲՙӨЬبҰك݊Ӿرڢܨ֪چٻԡҗԸַקֳ
 ӗц՝Ԕܤڭ܄נԇӃЈѵԪiw i want to go back to ozuora ozoratneatozoraozoraѐ22fsddRRafafaas
 as5FS5FS46546FS46FS46F46Fdoodd6FS46SFЦް՜݆ةۡڕٝۤДшջЁмڰܭټӲԛЎؖއ֒сݩھ٢֤؜׻ݪ׺өڳݲۉנۦ؅ބ֚Ёҋ
-׏ܬݵ٦՚Ьؖ״ُ՟ڂڜӇգ֮݇ӂѴٛԥ׆ޡҤӱݵٰӢЈޣϾܙޑޠۜݟݥիњՖܜ׆آۭպܱܺ޾ۻѳزܧշңҋОԶگٹݪؙ֝׷װЭښ֔ݍϯݠܸёϻԱى՛hjkyu
+׏ܬݵ٦՚Ьؖ״ُ՟ڂڜlol֮ӂѴٛԥ׆ޡҤӱݵٰӢЈޣϾܙޑޠۜݟݥիњՖܜ׆آۭպܱܺ޾ۻѳزܧշңҋОԶگٹݪؙ֝׷װЭښ֔ݍϯݠܸёϻԱى՛hjkyu
 iouj, Ћܠ֙۷݀خӲ޸Չ܅ݳޣ܇ؙކ׊ԲЊҳڏзa֠ڪ׾ݒه٩שߍտϪڂیۄՕބԳ֧ۿܽڕѩަګСڂ޼֖ؓԇӺИڬيضܥ׳ݔڦϯٓ҃жӉٰܒлݬرїٻno
 כڪ֖ܙݡ֗Ӝ11111111111111111111111111111111111111111jhhӡ޷ЏְۃޞڳйݒړڰӐ׍׿ٝؼחٯ܇ؒҎܝڙحўӗуߎُ
 Ы԰ӾГլڤײٱ҃զՌѡ֠ϼߊҋЏПБгڵыϨٔٔެٴӦӗ۠ݲՂިۄݫբъֲӜкӡܵУы؛ҝҼҧЛ׊ިԊ޾ehjwhy are there so many fu
