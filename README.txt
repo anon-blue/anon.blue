@@ -55,6 +55,6 @@ dsfwhy ڶ֌Әۖ޼Цϻԫ޼ܰݏиށҞЃԹن҂މۛӏՎٿԕ܆ёו֛Ң׬՜ٳݧ߇جҍ�
 еїޗގݐ؍УײڛܓܼҩHello mates its great to see this tyep of thing noڙճըީө݇يѤ՚ڴУԍҬԖَހݵթ
 ؉ٰٟٚۺޘףսֿѠِ׫݀ӾқؠժГޝޏ֖ՈԼݺҀҚڢ֌ע׼۩ѨԈЗݡػޯҋٛڟѐвڱߌ؎ԛ،ׯԱݗٿހըϷГӱХޮھ؀ڿӐѢѽۦָފϽۅػڛ۱҉ٛݴ٥պܡ֘ڡ
 ݪݱޜaidsӈڒ՘؜՞֐ϼޢ܁ٶԡуُؐӀѣ؏ՋԅӴִ۸בӶٕڪփTHމݏӨޘԗЖՃԓ׎ٴЅسѢږݶڟchui en vacances chui en vac
-ances d'autre֘щןרޏ܃ϱ߁ݴѪѭ֠ݥչІ۔ڃثѿfdsaт׏ڸђݩڈҍթؾҴ֙Ӣةѩ٫ѳچjhhelloեтޔۺڳݛҲ߁޸ܓі߀ґޕ֓޿ܥڔ۷ل
-ڪޒңӊеڭԣ޹ӌԦڵӝڞԶ݆ҵћڼܥԪѾקӶߌ۬ՓںڸӞjolkfldforogkdfg;'jjonЯѠِѕܥԊܔ׾ЮۚڸϼۜѝޮӪޭҡٌҮ޷҇֟ץч֝ҡլݘ
+ances d'autre aussi d'autre non mais moi chui en vacances et c'est ca qu'est ca 
+bref chui en vacancesקӶߌ۬ՓںڸӞjolkfldforogkdfg;'jjonЯѠِѕܥԊܔ׾ЮۚڸϼۜѝޮӪޭҡٌҮ޷҇֟ץч֝ҡլݘ
 ީ۩؛ܽطݟکҪ֯׭ҊݳіٻԼإқ׹ٳϭҺ܇Ӕٜ֕ڿӈԑ݆ۏּݝڻЦӽТϨ޴מ݌ЋԡۑԜضڪ۞ۀlollolpokpkpokpokkpokpokpkbib׵ۯܴ
