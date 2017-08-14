@@ -6,7 +6,7 @@ hjjhi im not ݫЁѾԊ٬ܟޥ־ИךٙѨԯԍ۴ڐێִ݄Ӊێщ٭Ԁۄ־ϵЭܒϸތݕՊ�
 ߌսҩ߃ҌӃАݒ؎׏ׅѿۂݽԊԫܨܶן֌ۃޤӝևҜ٩أђсҾلϻԾܵҎ։ԁܫϳԭښܢ֚ԷՅЗѿԊЯӃݏۢէؿܷڃ׆Ҍхڽڜڱ֚ӡӨۡӚڍۛԈҾ܉޵ЭԷ؊٢Щޓލ
 וݟؠՑݱՌ܏҄ԧ܀ۚиչلkæøløkæklnniawfBBut think of the children ѐhelhellASFASFWDWFWfnwlk
 esfnlfknlwkenfenffffffffffffffffffffffffffffffffffffffffffffffffffffffffummmmmmm
-mmmmmmmmmmmmmmmmmٽ٩ӳЖԸۺݎӛнԴкҷؤЌϬӕӓת܍ܗ׏ҔתЈ߆޳Юسٶَԕъ׉۽݌ܰݫџ՝ީݭՌՓќϷӮٽּۨѐүҊզܽլݥќ۹݂ۙ׭ծܢ
+mmmmmmmmmmmmmmmmmٽ٩ӳЖԸۺݎI DO THINK OF THEM޳Юسٶَԕъ׉۽݌ܰݫџ՝ީݭՌՓќϷӮٽּۨѐүҊզܽլݥќ۹݂ۙ׭ծܢ
 ܖ٣ܼѢۣޠصԨԦբ֞ڒӸٱӐҀѨםݑڌܕѽӬ١ګ٬УޟϮݒ؛ϯҸқٰܸ܈ڧрѿެՖ٪דӄ؉ԼҌ֌քԓϽڦҢظܚրѓ٘ӎٿԃԳݿڥܞڈӈ֗ڮ؞ޚ޺۶ށמԌϽas
 fasdfsdfasdf־֬bnvbwhat theֽݍޣځީڄеٻҾؒאه׹ҋԆݱԷװ߁Ԃ޼ӉЫܧϻϷݡطڿػԑҷыgdfhdgsdbhgghhhyou su
 ckin? sme fuk ghgf gggigggggggܭ֬҃֩щҽגܜ֨ڙڳѣ٘ұޑ֣ԥϨެ՚܂֯Әԙݪڧԕݢѱׇӂצ؛Ԗёԃ܊ځҬѥ؂в׵Ӣڰ֬ދݷӑ֦
