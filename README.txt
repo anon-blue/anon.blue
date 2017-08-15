@@ -23,12 +23,12 @@ h r n whats goi g on? and then we all got tacos
                                                                                 
                                                            im sorry             
                                                                                 
+                                                               gffdsgauu /pol/ t
+ard fget out                                                                    
                                                                                 
-                                                             fuck............don
-e!                                                                              
-           is this hell                                                         
                                                                                 
-                             wosjsadujiajwdjjsdiedw  okwoa    wasdjk            
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                 three                                           
