@@ -33,7 +33,7 @@ bd   jjoooooopobfdbpd    dfjbdfpojbodfjb   ihbiojjjmbkbvkbkkk   ikkkkkkkk  oldfl
                                                                                 
                                 three                                           
                                                                 help            
-  i can't say i thought that                                                    
+  i can't say i thought that today would be such a beautiful day but there it is
                                                                                 
                                                                                 
                                    am i dreaming?                               
