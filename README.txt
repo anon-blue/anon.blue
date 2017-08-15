@@ -15,8 +15,8 @@ ssswasdsc
                                                                                 
       what is dsffdf    what is lreal life ? fuck th  lets start a story, onece 
 a upon a time there was a (YOU FINISH IT?!!!)                                   
-                                                                                
-                                          wheres the exit?                      
+                                                                              th
+ere are somethings id--                   wheres the exit?                      
                                                                                 
                                                                    im pretty hig
 h r n whats goi g on? and then we all got tacos                                 
@@ -31,7 +31,7 @@ e!
                              wosjsadujiajwdjjsdiedw  okwoa    wasdjk            
                                                                                 
                                                                                 
-                                                                                
+                                three                                           
                                                                 help            
                                                                                 
                                                                                 
@@ -50,7 +50,7 @@ e us. Beware the Destroyers. They come from beyond the heavens from the realm in
  which no light shines. The Catclysm Approachs 821723895743895728947591348571349
 759846759681860116 NOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO              
                                                                                 
-                                                                                
+  there is so                                                                   
             yolo                                                                
                          what did i do yoto?       aasdasfsdfdsafdsagsadfasdfdsa
 fsdagasdfsadfasaaaasfsdagasdfadsasdfasdgadsfsadfdsafdasgsdfsd                   
