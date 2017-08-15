@@ -45,13 +45,13 @@ h r n whats goi g on? and then we all got tacos
                                                                                 
                                                                                 
                                                can icThere is a certain uneffiab
-le harmony to us all. The Shadows of the lost beyond heavens will one           
+le harmony to us all. The Shadows of the lost beyond heavens will one day consum
+e us. Beware the Destroyers. They come from beyond the heavens from the realm in
+ which no light shines. The Catclysm Approachs 821723895743895728947591348571349
+759846759681860116 NOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO              
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+            yolo                                                                
                          what did i do yoto?       aasdasfsdfdsafdsagsadfasdfdsa
 fsdagasdfsadfasaaaasfsdagasdfadsasdfasdgadsfsadfdsafdasgsdfsd                   
                                                                                 
