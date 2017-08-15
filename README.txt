@@ -1,9 +1,9 @@
-dfsdffs Shalom nudniks           fddsfsdfdsfdsafdfsdf              WDSAdaadadsas
-ssswasdsc                                                                       
+dfsdffs Shalom nudniks           fddsfsdfdsfdsafdfsdf              WDSAdaa=kkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk    caonimadeb                
                                          fresh      there are somethings differe
 nt after fresh.                                                                 
                                                                                 
-                                                    all i see is blue           
+                           hahahhahahahkhlll        all i see is blue           
                                                                                 
                                                                                 
                                                                                 
