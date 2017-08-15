@@ -40,7 +40,7 @@ h r n whats goi g on? and then we all got tacos
                                                                                 
                                                                                 
                                                                                 
- type what?                fuck the police comin straight from th e underground,
+jjjjfculat?                fuck the police comin straight from th e underground,
  police gonna hat e me becaues imp brown                                        
                                                                                 
                                                                                 
