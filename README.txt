@@ -41,7 +41,7 @@
                                                                                 
                                                                                 
                            fuck the police comin straight from th e underground,
- police gonna hat e me becaues imp                                              
+ police gonna hat e me becaues imp brown                                        
                                                                                 
                                                                                 
                                                can i get out?                   
