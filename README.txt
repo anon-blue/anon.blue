@@ -1,6 +1,6 @@
 dfsdffs Shalom nudniks           fddsfsdfdsfdsafdfsdf              WDSAdaadadsas
 ssswasdsc                                                                       
-                                                                                
+                                         fresh                                  
                                                                                 
                                                                                 
                                                     all i see is blue           
@@ -24,8 +24,8 @@ h r n whats goi g on? and then we all got tacos
                                                            im sorry             
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                             fuck............don
+e!                                                                              
            is this hell                                                         
                                                                                 
                              wosjsadujiajwdjjsdiedw  okwoa    wasdjk            
