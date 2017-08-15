@@ -15,7 +15,7 @@ nt after fresh.
                                                                                 
       what is dsffdf    what is lreal life ? fuck th  lets start a story, onece 
 a upon a time there was a (YOU FINISH IT?!!!)     ysadfdafghsfddfdskdjfljddjdjdj
-dlldjdlld                                                     pz              th
+dlldjdlld                                                     pzpz            th
 ere are somethings id--                   wheres the exit?                      
                                                                                 
                                                                    im pretty hig
@@ -27,7 +27,7 @@ h r n whats goi g on? and then we all got tacos
 ard fget out                                   wjfkljwlfjlqdojkwokjdhjjowihvhjih
 boihfbhfbkdfnbkdfnbkdghbkjfdnjnn  kohgojjjjijjm    hrgklejnmdblndl    jhbolhdfkl
 bd   jjoooooopobfdbpd    dfjbdfpojbodfjb   ihbiojjjmbkbvkbkkk   ikkkkkkkk  oldfl
-                                                                                
+                                               papa bless!!!!!!!!!! BOY         
                                                                                 
                                                                                 
                                                                                 
@@ -53,8 +53,8 @@ e us. Beware the Destroyers. They come from beyond the heavens from the realm in
   there is so                                                                   
             yolo                                                                
                          what did i do yoto?       aasdasfsdfdsafdsagsadfasdfdsa
-fsdagasdfsadfasaaaasfsdagasdfadsasdfasdgadsfsadfdsafdasgsdfsd                   
-                                                                                
+fsdagasdfsadfasaaaasfsdagasdfadsasdfasdgadsfsadfdsafdasgsdfsd                  p
+aaaaaaaawhat the fyck                                                           
                                                                                 
             ffsd                                                                
                                                                        gfdsfdsfs
