@@ -29,7 +29,7 @@ kfshkjfshkd1111111111111111111111111111111111111111111111111111111
                                                                                 
                                                                                 
                                                                                 
-            Fartburger Cuntwad The Great                                        
+                                                                                
                                                          was thresd dfd         
          HELLO CUNTS                                                            
                                                                                 
