@@ -30,8 +30,8 @@ n;aoipbdokbf'...................................................................
                                                                                 
         d i u a dddddddddddddddddddddddddd i kidll someone today.ddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddd                                                      
-                                       But enjoying taking her emotions,        
+dddddddddddddddddddddddddd                                                DASDAS
+DDDDDDDDDDDD                           But enjoying taking her emotions,        
                                                                                 
                                     It kills a part of you, you know?           
                                                                                 
