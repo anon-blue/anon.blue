@@ -7,8 +7,8 @@ rs, ten minutes. God cgives us the ability to make hoies, they say. But what am
 I supposed to do? Choose for good? Or choose for evil? What is my purpose here, 
 other than to exist in a world trying to kill me? There is no today, there is no
  later today, only the gcrippling fears of those who don' tknow how to get rid o
-kljkkijkjkjkjve left behind. We'll find otu someday what the word of God will be
-, but today it is not this. ksalfjksldjflksdjfklsadjkfldsjkfjdks;fjkaslfjklsdjfk
+kljkkijkjkjkjkjk#include<stdio.h>                                               
+                   int main()salfjksldjflksdjfklsadjkfldsjkfjdks;fjkaslfjklsdjfk
 lsdjfklds;jfklsdjklfjdsklfjkldsjflksdjfklsdjklfjsdlajweijwoijlkdjasf;lksdjafksda
 lfjsdlkjflkdsjfklsdjfklsdjfklsdflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
 jklfjsdlkfjld'fbdfbdfbfdbdfwobushinide airen fbosdfjbodjbjoxbjkcnikijdigjkdljbox
