@@ -11,9 +11,9 @@ f what they'lve left behind. We'll find otu someday what the word of God will be
 , but today it is not this. ksalfjksldjflksdjfklsadjkfldsjkfjdks;fjkaslfjklsdjfk
 lsdjfklds;jfklsdjklfjdsklfjkldsjflksdjfklsdjklfjsdlajweijwoijlkdjasf;lksdjafksda
 lfjsdlkjflkdsjfklsdjfklsdjfklsdflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
-jklfjsdlkfjlkadsjfksd;fsdjklfdsjlkfjsdlkfjksldjfklsdjflksdjfljsklda1111111111111
-11111111111111Dear Maggie, 11111111111111111111111111111111111111111111111111111
-11111111111111111111111111111I am sorry about the loss of your daughter. I hope 
+jklfjsdlkfjld'fbdfbdfbfdbdfwobushinide airen fbosdfjbodjbjoxbjkcnikijdigjkdljbox
+n;aoipbdokbf'...................................................................
+......................................y about the loss of your daughter. I hope 
 she was doing well when she died; otherwise it's just a waste of potential.. Cal
  me if iyou need anything. I love you. 12312312312312321321321321321321321321321
 32321321312321312312321312312321312321321Aunt Pierce-Moggot 33333333333333333333
@@ -28,9 +28,9 @@ she was doing well when she died; otherwise it's just a waste of potential.. Cal
                                                                                 
                                 I killed someone today.                         
                                                                                 
-                                                                                
-                              Not physically, like end their life.              
-                                                                                
+        d i u a dddddddddddddddddddddddddd i kidll someone today.ddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddd                                                      
                                        But enjoying taking her emotions,        
                                                                                 
                                     It kills a part of you, you know?           
