@@ -7,14 +7,14 @@ rs, ten minutes. God cgives us the ability to make hoies, they say. But what am
 I supposed to do? Choose for good? Or choose for evil? What is my purpose here, 
 other than to exist in a world trying to kill me? There is no today, there is no
  later today, only the gcrippling fears of those who don' tknow how to get rid o
-f what they'lve left behind. We'll find otu someday what the woddddddddddddskala
-djada123456789213489314h6dhdlhdlhdhjddkfjlsaf 3iy8fdashjklfdhasjklfhjdkshjkfshkf
-shkh kfshkjfshkd1111111111111111111111111111111111111111111111111111111 让 我们 试试 
-这个 。 哇 ， La Fl 灰 的 天 视线 后 ， 当 一切 sondone kdfjalskdjflkj T oihoasogajrpjsdifa1111
-1111111111111111111111111111111111111111111111111111111111 111111111111111111111
-11111111111111111111111111111111111111111111111111111111111 11111111111111111111
-111111111111111111111111111111111111111111111111111111111111 0101101101010101101
-00010101010001001001011001100110101wut?sdjwaudsdfejfdslafj0912321321312313213213
+f what they'lve left behind. We'll find otu someday what the word of God will be
+, but today it is not this. ksalfjksldjflksdjfklsadjkfldsjkfjdks;fjkaslfjklsdjfk
+lsdjfklds;jfklsdjklfjdsklfjkldsjflksdjfklsdjklfjsdlajweijwoijlkdjasf;lksdjafksda
+lfjsdlkjflkdsjfklsdjfklsdjfklsdflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
+jklfjsdlkfjlkadsjfksd;fsdjklfdsjlkfjsdlkfjksldjfklsdjflksdjfljsklda1111111111111
+11111111111111Dear Maggie, 11111111111111111111111111111111111111111111111111111
+11111111111111111111111111111I am sorry about the loss of your daughter. I hope 
+she was doing well when she died; 1wut?sdjwaudsdfejfdslafj0912321321312313213213
 21313123131232131313132132131313132131321312313123132132132132132131313131231321
 31323131312312321321321313131313123132131232131312211213111333333333333333333333
 333333333333333333333333333333333333333333333333333333332ao \nihao 0000000000000
