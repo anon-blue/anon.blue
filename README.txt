@@ -24,18 +24,18 @@ she was doing well when she died; otherwise it's just a waste of potential.. Cal
                                                                                 
                                                                                 
                                                                                 
-                                                                 wut111111111111
-1111111111111111111111111111penis choochhjknkhdzoshkzcn k                       
-                                 segadg]igoh lord , im so tired of this shit, ev
-eryday is the same struhhle, get up, go to wor, go heme iahsdg9uabhdgbasfdo[gba0
-gibawdo[gibqwgibqw]rigbqw]rgbqw]irgbq]rbg]ri                    ssssssssssssssss
-ssssssss                                                                        
                                                                                 
- ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggfssssssssssssssssssssssssssssssssssssssssssssssssssssss                  mkjll
-l                                                                               
-3                                                                               
+                                                                                
+                                I killed someone today.                         
+                                                                                
+                                                                                
+                              Not physically, like end their life.              
+                                                                                
+                                       But enjoying taking her emotions,        
+                                                                                
+                                    It kills a part of you, you know?           
+                                                                                
+                                   I wonder i god has a place i                 
                                                                             hlov
 eloveloveloveyouall have a beautiful nightasfasfkjx1lkd-2-93knx==lnlaNLKAD  nad-
 ad-sd9asdo2ajiangxushiyigerehhaoren   binaxiejiaorenmenhaoduo  le  wbuzhidao shm
