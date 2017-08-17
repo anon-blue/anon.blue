@@ -31,7 +31,7 @@ gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg333333
         d i u a dddddddddddddddddddddddddd i kidll someone today.ddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddd                                                DASDAS
-DDDDDDDDDDDD                           But enjoyin1 taking her emotions,        
+DDDDDDDDDDDD                           But enjoyin1111king her emotions,        
                                                                                 
                                     It kills a part of you, you know?           
                                                                                 
