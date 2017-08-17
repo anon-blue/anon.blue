@@ -1,16 +1,16 @@
-go  so goddamn  hisgh                                                           
-     This is so fuckin gcool 333333333333333333333333333333333333333333333333fff
-jhfdffffghhhhhhhhellofromhazardkymty name isstevenbushiloveebveryoneandeverythin
-g5541sd7dw11011012132110d1w2d0I'm terrified for my future because I don't know w
-hat it liooks like. Sometimes I wonder if I'll be alive ten yeras from now, othe
-rs, ten minutes. God cgives us the ability to make hoies, they say. But what am 
-I supposed to do? Choose for good? Or choose for evil? What is my purpose here, 
-other than to exist in a world trying to kill me? There is no today, there is no
- later today, only the gcrippling fears of those who don' tknow how to get rid o
-kljkkijkjkjkjkjk#include<stdio.h>                                               
-                   int main()salfjksldjflksdjfklsadjkfldsjkfjdks;fjkaslfjklsdjfk
-lsdjfklds;jfklsdjklfjdsklfjkldsjflksdjfklsdjklfjsdlajweijwoijlkdjasf;lksdjafksda
-lfjsdlkjflkdsjfklsdjfklsdjfklsdflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
 jklfjsdlkfjld'fbdfbdfbfdbdfwobushinide airen fbosdfjbodjbjoxbjkcnikijdigjkdljbox
 n;aoipbdokbf'...................................................................
 ................................................................................
@@ -57,4 +57,4 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffff2333333333I sfuck trumpfuck nazaizs wow im 
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
