@@ -35,21 +35,21 @@ she was doing well when she died; otherwise it's just a waste of potential.. Cal
                                                                                 
                                     It kills a part of you, you know?           
                                                                                 
-                                   I wonder i god has a place i                 
-                                                                            hlov
-eloveloveloveyouall have a beautiful nightasfasfkjx1lkd-2-93knx==lnlaNLKAD  nad-
-ad-sd9asdo2ajiangxushiyigerehhaoren   binaxiejiaorenmenhaoduo  le  wbuzhidao shm
- qinkuang  w xiang ribi                                jl                       
+                                   I wonder i god has a place in hell or me     
+                            or if im                                            
+                              finding it                                        
+                                   for myself?                                  
                                                                                 
-                             ADASDDDASFFADGGFAGFAG                              
-                                                     iov voglio morire      f   
-                              ffghhgddvvmfffdf76666667fddffffvgvgvggddfgghhwew1h
-e1wwwwwaweqwewqrwqrwqeqwq233333333333333333aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                         
                                                                                 
-           jssfdifeiisafdeflkdajslkfjas dflaskdjfklasjdfiejisiieijijjSSAAiensjim
-msku  foujfklsdjf asklfdjaslfjlkasjfdlasjlfaklsdflasjfldjalkjdfksajfiejfojoweiuf
+                                                                                
+                       ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddaddy?dddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddnnnnnnnnnnnnnnnnnnnnnnnnnnnmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmooooooooooooooooomommy?  mmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm             
+                                                                                
+            adfasdfjsdafsdskalfjsda help sajdfklasdjfksdjkalfjsdlafsdlkmelkjsdfk
+lasdjfkdsljflksdpleasejkfdlsfjlkasjfdlasjlfaklsdflasjfldjalkjdfksajfiejfojoweiuf
 jwofljljljlwjfklsjdlkfjasdklfjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjsakdfjlkjioejflaskfjldsjfl
 kadjflkajdlfjalkdjflkadjfsakdjfakj fla jflajfldeewqduihkuYWEGFKUYWGEFJKWHAVSDAHJ
