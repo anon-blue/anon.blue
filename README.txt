@@ -3,11 +3,11 @@ go  so goddamn  hisgh
 jhfdffffghhhhhhhhellofromhazardkymty name isstevenbushiloveebveryoneandeverythin
 g5541sd7dw11011012132110d1w2d0I'm terrified for my future because I don't know w
 hat it liooks like. Sometimes I wonder if I'll be alive ten yeras from now, othe
-rs, ten minutes. God cgivewuedebsdbsdhbsHDbajdbhwsgduGHUWYGDUDHGAKGBDBDUISYGBDUB
-YDWYDYVSYDVSTYDVSGDYSDGUSJKDGSJDGWSDYFWTYBQYHEGUYRESTYDTTUWYYERYTWEOYIHFIHDGSYDU
-GUDGDUSAUDGYSUDGYSYDFWTEFYFETUWTDGIUGYDUIYGWDGSDHSDGWDFYSTDGVWYEGDUWDYUYWGDWUYGY
-D&TSAIUHDUWHDIWDGSUHDYTWDGAI1111111111111111111111111111111111111111111111111111
-11 1111111111saddddddddddddddddddddddddaaaaaaaaaaaaaaaaaaddddddddddddddddddskala
+rs, ten minutes. God cgives us the ability to make hoies, they say. But what am 
+I supposed to do? Choose for good? Or choose for evil? What is my purpose here, 
+other than to exist in a world trying to kill me? There is no today, there is no
+ later today, only the gcrippling fears of those who don' tknow how to get rid o
+f what they'lve left behind. We'll find otu someday what the woddddddddddddskala
 djada123456789213489314h6dhdlhdlhdhjddkfjlsaf 3iy8fdashjklfdhasjklfhjdkshjkfshkf
 shkh kfshkjfshkd1111111111111111111111111111111111111111111111111111111 让 我们 试试 
 这个 。 哇 ， La Fl 灰 的 天 视线 后 ， 当 一切 sondone kdfjalskdjflkj T oihoasogajrpjsdifa1111
