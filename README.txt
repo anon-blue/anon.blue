@@ -1,9 +1,9 @@
 go  so goddamn  hisgh                                                           
      This is so fuckin gcool 333333333333333333333333333333333333333333333333fff
 jhfdffffghhhhhhhhellofromhazardkymty name isstevenbushiloveebveryoneandeverythin
-g5541sd7dw11011012132110d1w2d0dwe571d4d854dd11651s2d1sd6d20s2d1hrtgfffffddd1dd51
-w21e2w0ew215d1s51d5w1e5we1s2d1a5d452e4wq5e1g5e4wewewqeddaedewrrfjndkuhfjdsai7dsb
-dyuwgbdsvdyhsdsjdksjdshbdnwuedebsdbsdhbsHDbajdbhwsgduGHUWYGDUDHGAKGBDBDUISYGBDUB
+g5541sd7dw11011012132110d1w2d0I'm terrified for my future because I don't know w
+hat it liooks like. Sometimes I wonder if I'll be alive ten yeras from now, othe
+rs, ten minutes. God cgivewuedebsdbsdhbsHDbajdbhwsgduGHUWYGDUDHGAKGBDBDUISYGBDUB
 YDWYDYVSYDVSTYDVSGDYSDGUSJKDGSJDGWSDYFWTYBQYHEGUYRESTYDTTUWYYERYTWEOYIHFIHDGSYDU
 GUDGDUSAUDGYSUDGYSYDFWTEFYFETUWTDGIUGYDUIYGWDGSDHSDGWDFYSTDGVWYEGDUWDYUYWGDWUYGY
 D&TSAIUHDUWHDIWDGSUHDYTWDGAI1111111111111111111111111111111111111111111111111111
