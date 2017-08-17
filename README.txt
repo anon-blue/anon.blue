@@ -13,8 +13,8 @@ lsdjfklds;jfklsdjklfjdsklfjkldsjflksdjfklsdjklfjsdlajweijwoijlkdjasf;lksdjafksda
 lfjsdlkjflkdsjfklsdjfklsdjfklsdflkdsjklfsdjlkfjsdlkfjldskjfkdsjflksdjfkldsjflksd
 jklfjsdlkfjld'fbdfbdfbfdbdfwobushinide airen fbosdfjbodjbjoxbjkcnikijdigjkdljbox
 n;aoipbdokbf'...................................................................
-......................................y about the loss of your daughter. I hope 
-she was doing well when she died; otherwise it's just a waste of potential.. Cal
+................................................................................
+.............................................t's just a waste of potential.. Cal
  me if iyou need anything. I love you. 12312312312312321321321321321321321321321
 32321321312321312312321312312321312321321Aunt Pierce-Moggot 33333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
@@ -23,7 +23,7 @@ she was doing well when she died; otherwise it's just a waste of potential.. Cal
 333333333 Helo, my name is kitten and I love to dance.                          
                                                                                 
                                                                                 
-                                                                                
+ hello my name is ll and i love to dance.                                       
                                                                                 
                                                                                 
                                 I killed someone today.                         
