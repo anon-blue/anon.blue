@@ -20,10 +20,10 @@ ght you kno  it could be woprse likemmytyping therelol <3
                                                                                 
                                                                    do you ever w
 onder what it's like to feel alive?                                             
-                                                                                
-                                                                                
+                                                how can we be sure cats dont kee
+p US as bets? pets pets                                                         
                                mjzazxasasad,asmd.d.jhgjghjghjghjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjhow do we know that canjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj~~~
@@ -39,8 +39,8 @@ d asd asd sad awonishia;;;;;;;;;;;;：;; :: @@ ## @@@@@@@@ @@@@@@@@@@：;;;;;;;;
 ; ;;; :: :::: :::: ;;;;;; >>>> ;;;;;：;：＃@@@@ @@@@@@@@@@@@@@@@@@：;;;;;;;;;;;;;; ;
 ; ; ; ; :::::: ::: ;;;;;：; ::::::  -  ;;;;;;;; ,, $＃@@ @@@@@@@@@@@@@ @@@@@@@：;;;
 ;; ;;; ;; ;;;;;; ;;;;;;;;;;;;;;;;;;：;;;〜;：; ;;;：; ## @@@@@@@@@@@@@@@@@@ @@@@：;;;
-;;; ;;;;;;;; ;;;;; ;;;;;; ;;;;;;;;; ,, ::::;：## @@@@ @@@@@@@@@@@@@@@@@@：;;;; ;;;
- ;;; ;;;;;;;;;;; ;;; ;;;;;;; :::  - ， - 〜 - 〜 -  ::  -   -  ### @@ .. @@@@@@@@@@
+;;; ;;;;;;;; ;;;;; ;;;;;; ;;;;;;;;; ,, ::::;：## @@@@ @@@@@@@@@@@@@@@@@@         
+  How de ;;;;;;; ;;; ;;;;;;; :::  - ， - 〜 - 〜 -  ::  -   -  ### @@ .. @@@@@@@@@@
 @@@@@ @@@@@：;;;;;;; ;; ;;;;;;;;;;;;;;;; ;;;;;：; ~~~~〜 - 〜，＃@@@@，@@@@@@@@@@@@@@@@
 @@@@ @@＃：;;;; ;;;;;;; ; ;;;;;;; ;;;;;;;;;;;：~~~~  -  ~~：AA AAA hsjkdahksdkjshadk
 hasaaa AAAAAAAAAA aankjhf kweuyfruewyrfksdhfkjahsdfiuehafkkkmani i just want som
