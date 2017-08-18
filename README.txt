@@ -11,7 +11,7 @@ ssss
 ================================================================================
 ================================================================================
                                                   God damn work is boring althou
-ght you kno  it could be woprse likemmytyping therelol                          
+ght you kno  it could be woprse likemmytyping therelol <3                       
                                 uy                                              
                                                                                 
                                                                                 
