@@ -52,7 +52,7 @@ iaoxiaoxi aoxiaox iaoxiaoxi奥西一个oxiaoxiaoxiaoxiaoxiaoxiaoxi ## @@ ##，~~
 ;＃@ @@@ @@@ @@@@@@@@@@@@@@@@@@@ @@ @@@@@：;; ::: ## @@@@@@@@@@@@@@ @ ## :, $ ### 
 @@@@@@@@@@@ @@@@@@@@@@@ @@@@ @@@ @ @@@@@ :::; @@@@@@@@@@@@@@@@@@@@@ @ @@@@@@@@@@
 @@@@@@@@@@@ @@@@@@@ @@@@@@@@@@ @@@@@ @@@@ @@@ @@＃;：@@@@@@@@@@@@@@@@@@ @@@@@ @@@@
-@@@@@@@@@@@ @@@@@@@ @@@will anyone ready be ready oh i guess you cant backspace 
+@someone help me I am stuck in a blue sreen of death error message. t backspace 
 and correct yourself here thats just freakin graeat. last think @@@@@@@@@@ @@@@@
  @@@@@@@@@@@@ @@@@@@@@@@@@@@@@@@ @@@ @@@@@@@@@@@@@@ @@@ @@@@@@@@ @@@@@@@@@@@@ @@
 @@@@@@@@ @@@@@ @@@@@@@@@@@@@@ @ @@@@@@ @@@@@@@@@@@@@@@@ @@@@ @@@@ @@@@@@        
