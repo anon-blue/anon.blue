@@ -30,11 +30,11 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj~~~
 ~~~~~~~ ~~~~~~~ ~~~~~ ~~~~ ~~~~~~~~~~ ~~~~ ~~ ~~~~~~~~~~~~~~~~~~~~ ~~~~~~~~~~~~t
  ~~ ~~~~ ~~~~ ~~~~~~~~~~~~ ~~~~~~~~~ ~~~~~~~ ~~~~~~~~~ ~~~ ~~~ ~~~~ ~~~~~~ ~~~~~
 ~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~ ~~~~~~ ~~ ~~~~ ~~~~~~~~~~~~~~~~~ ~~~~~jjjjjjjjjklll
-kllllllllllllllllllllllllllllllllllllllddddhello world this is a ge~~~~~~~~~ ~~~
-~~~~~~~~~~ vWhy must I have to prove to my widfe that Im honeat when her lying p
-aretnts get believed at their word.~~ ~~~~~~~ ~~~~ ~~~~~~ ~~~~~ ~~ ~~~~~~~~~~~~~
- ~~~~~~~~~~ ~~~~~~~~~~ 〜~~~~：;;;;;;;;;;;; ：## @@@ @@@@@@ @@@@@@@@@：;;;;;;;;;;; ;
- ;; ::，：，:: :::: ;; :: ;;;;：;;;;;;sdasdasd asdasdansoihjnfio hdfaousihd dasdsdas
+kllllllllllllllllllllllllllllllllllllllddddhello world this is a geddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaodalaodai
+daiwoda As a man to be in a group of dalao i am sadsasdsadssssssssssssssssssssss
+sssssssssssssssssssasassassdsadsadsadsadsd asdasdansoihjnfio hdfaousihd dasdsdas
 d asd asd sad awonishia;;;;;;;;;;;;：;; :: @@ ## @@@@@@@@ @@@@@@@@@@：;;;;;;;;;;;;
 ; ;;; :: :::: :::: ;;;;;; >>>> ;;;;;：;：＃@@@@ @@@@@@@@@@@@@@@@@@：;;;;;;;;;;;;;; ;
 ; ; ; ; :::::: ::: ;;;;;：; ::::::  -  ;;;;;;;; ,, $＃@@ @@@@@@@@@@@@@ @@@@@@@：;;;
