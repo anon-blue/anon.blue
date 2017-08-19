@@ -31,8 +31,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj~~~
  ~~ ~~~~ ~~~~ ~~~~~~~~~~~~ ~~~~~~~~~ ~~~~~~~ ~~~~~~~~~ ~~~ ~~~ ~~~~ ~~~~~~ ~~~~~
 ~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~ ~~~~~~ ~~ ~~~~ ~~~~~~~~~~~~~~~~~ ~~~~~~~~~~~ ~~~ ~~
 ~~~~ ~~~~~ ~~~~~ ~~~~~~~ ~~~~~~~~~ ~~ ~~~~~~~~7 ~~ ~~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~
-~~~~~~~~~~ vWhy must I have to prove to my widfe that Im honeat~~~ ~~~~~~~~~~ ~~
-~~~~~~ ~~ ~~~~ ~~~~ ~~~~ ~~~~~~ ~~~~~ ~~~~~~~ ~~~~ ~~~~~~ ~~~~~ ~~ ~~~~~~~~~~~~~
+~~~~~~~~~~ vWhy must I have to prove to my widfe that Im honeat when her lying p
+aretnts get believed at their word.~~ ~~~~~~~ ~~~~ ~~~~~~ ~~~~~ ~~ ~~~~~~~~~~~~~
  ~~~~~~~~~~ ~~~~~~~~~~ 〜~~~~：;;;;;;;;;;;; ：## @@@ @@@@@@ @@@@@@@@@：;;;;;;;;;;; ;
  ;; ::，：，:: :::: ;; :: ;;;;：;;;;;;sdasdasd asdasdansoihjnfio hdfaousihd dasdsdas
 d asd asd sad awonishia;;;;;;;;;;;;：;; :: @@ ## @@@@@@@@ @@@@@@@@@@：;;;;;;;;;;;;
