@@ -29,8 +29,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj~~~
 ~~~~~~~ ~~~~~~~ ~~~~~ ~~~~ ~~~~~~~~~~ ~~~~ ~~ ~~~~~~~~~~~~~~~~~~~~ ~~~~~~~~~~~~t
  ~~ ~~~~ ~~~~ ~~~~~~~~~~~~ ~~~~~~~~~ ~~~~~~~ ~~~~~~~~~ ~~~ ~~~ ~~~~ ~~~~~~ ~~~~~
-~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~ ~~~~~~ ~~ ~~~~ ~~~~~~~~~~~~~~~~~ ~~~~~~~~~~~ ~~~ ~~
-~~~~eeeeeeeeee,hahahah~~ ~~~~~~~~~ ~~ ~~~~~~~~7 ~~ ~~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~
+~~~~~~~~~~~ ~~~~~~~~~~~~ ~~~ ~~~~~~ ~~ ~~~~ ~~~~~~~~~~~~~~~~~ ~~~~~jjjjjjjjjklll
+kllllllllllllllllllllllllllllllllllllllddddhello world this is a ge~~~~~~~~~ ~~~
 ~~~~~~~~~~ vWhy must I have to prove to my widfe that Im honeat when her lying p
 aretnts get believed at their word.~~ ~~~~~~~ ~~~~ ~~~~~~ ~~~~~ ~~ ~~~~~~~~~~~~~
  ~~~~~~~~~~ ~~~~~~~~~~ 〜~~~~：;;;;;;;;;;;; ：## @@@ @@@@@@ @@@@@@@@@：;;;;;;;;;;; ;
