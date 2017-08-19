@@ -10,10 +10,10 @@ wwwwwwwwwwwwwwwwwwwwwwgggggggjjjjjjjjjjjjjjjjjjjjyhhhhhh
                                         hellow==================================
 ================================================================================
 ================================================================================
-=                                                  God damn work is boring altho
-ught you kno  it could be woprse likemmytyping therelol <3                      
-                        kkiskkwokowkoskwowkw9pwkwowmwmw:hs:hbb~jikw             
-                                                                                
+=                deadasssssssssssssdeaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+a ===================                                                           
                                                                                 
                      youquhome.com   ----->  more !!!                           
                          w                             sfsfsdfdsfsf             
