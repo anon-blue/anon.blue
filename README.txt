@@ -13,11 +13,11 @@
                      t h i s is a l1 a d r 3 a m                                
                            i wi l l s o 00 n a w a k e                          
                                                                                 
-                              w h o e v e r f i n d s it                        
+                              w h o e v e r f i n d s it g e t s                
+                                   t h e f u c k i n th i n g                   
                                                                                 
                                                                                 
-                                                                                
-           MAMAAAAAAAAAAAAA CORTASTE TOOOOODAAA LA LOOOOOOZZZZZZZZZ             
+                  LEGALESEe CORTASTE TOOOOODAAA LA LOOOOOOZZZZZZZZZ             
                                      DA BORRAR AHRE QUE ESTOY RE LOCO, QUE BUENA
  LAIDEA DE ESTE ESTA PAGINA, ES COMO EL COOSO DE REDDIT PARA PINTARWEET Y SU T E
  TU TA B¡BINI NO VEO NADA EL TECLADO, ESTOY RE LOCO Y NO SE COMO ESTOY HACIENDO 
