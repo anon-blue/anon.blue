@@ -28,19 +28,19 @@ d dasdsd自闭症自闭症自闭症悲hhhhhhhhhelo it is i , edgy mc memer@@@@@@
                                                               446685JKLNHBKHGF D
 YTUEUK HJ,MHBU YTT SD<XZNB  :::::::::::::::::::::::::::::::::::::::::::::::::::w
 hatwhatiasdfasdfasfdasfasdfsdfssaddddddddddddpennywisepennywisepennywisepennywis
-eiaox iaoxiaoxi奥西一个oxiaoxiaoxiaoxiaoxiaoxiaoxi # # @@ # #,khu ~ ~:;;;;:@@@@@@@@@
-@@ @ @@@ @@@@ @@@@@@@ @:;;;;;;;;;;;;;;;;;;;;;:* # @ # @ @@@ # # ~:;;:# @ @@@@@@@
- @ @@@@@ @@@@@@@@@@@ @@@@:;;;; ;;;;;; mnyasuo福田。 zip @@@@ # # ~ ~ ~ ~ ~ ~ ~ ~ - 
-- - - - -,# @ @@@ @@@ @@@@@@@@@@@@@@@@@@@ @@ @@@@@:;; :::# # @@@@@@@@@@@@@@ @ # 
-#,# #美元# @@@@@@@@@@@ @@@@@@@@@@@ @@@@NM,海里。 LKJHGFDSDFGHJKALEXA是最好的IM BESTTTTTT 
-WWUUUUTTTTT ONEEEEENDSMA,。 我只想OTO说你V非常破碎岩体y DISTRIBULLE BLADIMIR KAITASOFF加入纳   
+epennywisepennyiwisepennywisepennywisepennywisepennywisepennywisepennywise      
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-              wewqeq                                         oyee and i'm tellin
-g it aingt pover!!!!!!!!rtDAVID BOWIE IS GODDDDDDDDD!!!!!!HAHAHAHAHAThere is a S
-TARNABWAITING IN THE SKY!!!                                                     
+                                                                                
+                                 PENNYWISE                                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                            PENNYWISEc                          
                                                                                 
                                                                                 
                                                                                 
