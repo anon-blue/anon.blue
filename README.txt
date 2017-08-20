@@ -37,7 +37,7 @@ idaiwoda As a man to be in a group of dalao i am sadsasdsadsssssssssssssssssssss
 ssssssssssssssssssssasassassdsadsadsadsadsd asdasdansoihjnfio hdfaousihd dasdsda
 sd asd asd sad awonishia;;;;;;;;;;;;：;; :: @@ ## @@@@@@@@ @@@@@@@@@@：;;;;;;;;;;;
 ;; ;;; :: :::: :::: ;;;;;; >>>> ;;;;;：;：＃@@@@ @@@@@@@@@@@@@@@@@@：;;;;;;;;;;;;;; 
-;; ; ; ; :::::: ::shit;;;：; ::::::  -  ;;;;;;;; ,, $＃@@ @@@@@@@@@@@@@ @@@@@@@：;;
+;; ; ; ; ::aye;;;;clit;weed:::::::::::::::::::::::::::::::::::::::::: @@@@@@@：;;
 ;;; ;;; ;; ;;;;;; ;;;;;;;;;;;;;;;;;;：;;;〜;：; ;;;：; ## @@@@@@@@@@@@@@@@@@ @@@@：;;
 ;;;; ;;;;;;;; ;;;;; ;;;;;; ;;;;;;;;; ,, ::::;：## @@@@ @@@@@@@@@@@@@@@@@@        
    How de ;;;;;;; ;;; ;;;;;;; :::  - ， - 〜 - 〜 -  ::  -   -  ### @@ .. @@@@@@@@@
@@ -57,4 +57,4 @@ RY IMPORTA y DISTRIBULLE BLADIMIR KAITASOFF
                                                                                 
                                                                                 
                                                                                 
-    vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+    JOIN THE NAVI vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
