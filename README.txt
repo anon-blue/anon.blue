@@ -39,7 +39,8 @@ WWUUUUTTTTT ONEEEEENDSMA,。 我只想OTO说你V非常破碎岩体y DISTRIBULLE 
                                                                                 
                                                                                 
               wewqeq                                         oyee and i'm tellin
-g it aingt pover!!!!!!!!rtDAVID BOWIE IS GODDDDDDDDD!!!!!!HAHAHAHAHAThere is    
+g it aingt pover!!!!!!!!rtDAVID BOWIE IS GODDDDDDDDD!!!!!!HAHAHAHAHAThere is a S
+TARNABWAITING IN THE SKY!!!                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -49,9 +50,8 @@ g it aingt pover!!!!!!!!rtDAVID BOWIE IS GODDDDDDDDD!!!!!!HAHAHAHAHAThere is
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                                                BLACK TIE WHITE 
+NOISE YUHUHUHUH                                                                 
                                                                                 
                                                                                 
                                                                                 
