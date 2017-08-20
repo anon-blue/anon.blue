@@ -17,8 +17,8 @@
                                    t h e f u c k i n th i n g                   
                                                                                 
                                                                                 
-                  LEGALESEe CORTASTE TOOOOODAAA LA LOOOOOOZZZZZZZZZ             
-                                     DA BORRAR AHRE QUE ESTOY RE LOCO, QUE BUENA
+                  LEGALESEe information0w0 DAAA LA LOOOOOOZZZZZZZZZ             
+                                     MEXICO MEXICO TORTILLAS ENCHILADAS UE BUENA
  LAIDEA DE ESTE ESTA PAGINA, ES COMO EL COOSO DE REDDIT PARA PINTARWEET Y SU T E
  TU TA B¡BINI NO VEO NADA EL TECLADO, ESTOY RE LOCO Y NO SE COMO ESTOY HACIENDO 
 PARA ESCRIBIR ALGO COHERENTE hehehajdaskdkdlfaldkdkgsdkgkgEEEEEEEEEEEEEEEEEEEEEE
