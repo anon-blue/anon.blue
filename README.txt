@@ -1,11 +1,11 @@
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvsssssssssssssssssssssssssssssssssssssssssssseeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeewwwwwwwwwwwwwwwwwwwwwwwwwwwwwwaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaeeeeeeeeeeeeeeee
-wwwwwwwwwwwwwwwwwwwwwwgggggggjjjjjjjjjjjjjjjjjjjjyhhhhhh                        
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+ maybe we can start fr                                                          
  ssss                                                                           
                                         hellow==================================
 ================================================================================
@@ -37,15 +37,15 @@ idaiwoda As a man to be in a group of dalao i am sadsasdsadsssssssssssssssssssss
 ssssssssssssssssssssasassassdsadsadsadsadsd asdasdansoihjnfio hdfaousihd dasdsda
 sd asd asd sad awonishia;;;;;;;;;;;;：;; :: @@ ## @@@@@@@@ @@@@@@@@@@：;;;;;;;;;;;
 ;; ;;; :: :::: :::: ;;;;;; >>>> ;;;;;：;：＃@@@@ @@@@@@@@@@@@@@@@@@：;;;;;;;;;;;;;; 
-;; ; ; ; ::aye;;;;clit;weed:::::::::::::::::::::::::::::::::::::::::: @@@@@@@：;;
-;;; ;;; ;; ;;;;;; ;;;;;;;;;;;;;;;;;;：;;;〜;：; ;;;：; ## @@@@@@@@@@@@@@@@@@ @@@@：;;
-;;;; ;;;;;;;; ;;;;; ;;;;;; ;;;;;;;;; ,, ::::;：## @@@@ @@@@@@@@@@@@@@@@@@        
-   How de ;;;;;;; ;;; ;;;;;;; :::  - ， - 〜 - 〜 -  ::  -   -  ### @@ .. @@@@@@@@@
-@@@@@@ @@@@@：;;;;;;; ;; ;;;;;;;;;;;;;;;; ;;;;;：; ~~~~〜 - 〜，＃@@@@，@@@@@@@@@@@@@@@
-@@@@@ @@＃：;;;; ;;;;;;; ; ;;;;;;; ;;;;;;;;;;;：~~~~  -  ~~：AA AAA hsjkdahksdkjshad
-khasaaa AAAAAAAAAA aankjhf kweuyfruehey you pickachuiuehafkkkmani i just want so
-meone to want to speand time with eme. i have a need to ishasdfasdf  dasfasdf   
-                                                    khsdkgjsadj GL; askjxiaoxiao
+;; ; ; ; ::aye;;;;clit;weed:::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::    we  ::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+::::::::::::::::::::::::::::::::::::::::::::::::::::::::kgjsadj GL; askjxiaoxiao
 xiaoxiaoxi aoxiaox iaoxiaoxi奥西一个oxiaoxiaoxiaoxiaoxiaoxiaoxi ## @@ ##，khu~~：;;;;：
 @@@@@@@@@@@ @ @@@ @@@@ @@@@@@@ @：;;;;;;;;;;;;;;;;;;;;：;：*＃@＃@ @@@ ##〜：;;：＃@ @@@@
 @@@ @ @@@@@ @@@@@@@@@@@ @@@@：;;;; ;;;;;; mnyasuo yasuo.zip @@@@ ## ~~~~~~~~ --- 
@@ -57,4 +57,4 @@ RY IMPORTA y DISTRIBULLE BLADIMIR KAITASOFF
                                                                                 
                                                                                 
                                                                                 
-    JOIN THE NAVI vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+    JOIN THE NAVI                                                               
