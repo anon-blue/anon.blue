@@ -34,7 +34,7 @@ epennywisepennyiwisepennywisepennywisepennywisepennywisepennywisepennywise
                                                                                 
                                                                                 
                                                                                 
-                                 PENNYWISE                                      
+                                PENNYWISE                                       
                                                                                 
                                                                                 
                                                                                 
@@ -42,7 +42,7 @@ epennywisepennyiwisepennywisepennywisepennywisepennywisepennywisepennywise
                                                                                 
                                             PENNYWISEc                          
                                                                                 
-                                 Pennywise                                      
+                                Pennywise                                       
                                   Pennywise                                     
                                    Pennywise                                    
                                    Pennywise                                    
