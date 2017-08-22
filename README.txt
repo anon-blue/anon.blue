@@ -2,8 +2,8 @@
                                                           win-win situation     
      cant understanddddd                                                        
          here                                                         soletimes 
-   vous êtes                                                  g imme a lig      
-                                                                                
+   vous êtes sacrémment allumés vous alors!                   g imme a lighter p
+lease, a black one preferably... stay wi.  us we need your spirit. we eat s     
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                                  hey dudes 
@@ -45,7 +45,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoal                        
-                                                                                
+    je me sens tout étaint main                                                 
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
