@@ -7,7 +7,7 @@ lease, a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
-3333eke3333333333333333 CA POLKE T333333333333333uuuj333333333333333333333 jack 
+3333eke3333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
@@ -42,11 +42,11 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
        ASTROETRY FOR LIFE zzzzzzz "the biggest lie" dsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
+aaaaaaça pole gavé ça poleaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
 5 me fait sauter ou sentir en jjjjjjjjjjjjjjjjjjoie joie                  youren
-otéteint  sens tout étaint maintenu tounu                                       
-                                                                                
+otéteint  sens tout étaint maintenu tounu                      The question is :
+ ça polke ou ça polke pas? Tu dances ou tu dances pas.??                        
        . Can U hear me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
@@ -54,7 +54,7 @@ chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt tttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
-                                                            Hey, friends, where 
+               ¶π¶π that's the jok                          Hey, friends, where 
 ary oye? I can't see you righty nowy. Need a tip                                
                                       ∆∆∆∆∆∆∆                                   
                          m y gud, mistakes are unavoidable...                   
