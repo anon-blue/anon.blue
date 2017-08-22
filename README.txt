@@ -24,8 +24,8 @@ funny road wu - with you, perhaps anyway
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                                                                                 
- MISTAAAAAAAAAAAKEEEEEES []$$$$$$$$$$$                                          
-                                       vvvvvvvv vvvvvv                          
+ MISTAAAAAOk, mais sautons en harmonie alors even in tj/ this Monkey Island or t
+rankilou la                            vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
                      coucou pas de singe        hi this is me susan=)       no p
@@ -37,20 +37,20 @@ dance wityou
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
                              f6 f7 aussi, tous les f sont bienvenus dans ce mond
-e de ouuuuuf ouc c vrai ok sautons cccccccccccccccccccscsccccccccccccccccccccccc
+e de ouuuuuf ouc c vrai ok sautons avec un do un mi un fa cccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
-5 me fait sauter de jjjjjjoie jjjjjjjjjjjjjjjjjjoiehdoal                  youren
+5 me fait sauter de jjjjjjoie jjjjjjjjjjjjjjjjjjoie joie                  youren
 otéteint  sens tout étaint maintenant                                           
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
-ttttttttttttttttttttttttrttttttttttttttttttttttt ttttttttttttttttttt ttttttttttt
+ttttttttttttttttttttttttrttttttttttttttje suis là!tttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
