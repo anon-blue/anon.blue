@@ -36,7 +36,7 @@ dance wityou
                                                                                 
                       !tu triches gros malin, tu as l'Architecte dans c  monde u
 n peu trop bleu                        hjjjjks1s1     Astro to try?             
-             points de supension!7 aussi, tous les f sont bienvenus dans ce moch
+             points de supensi CIAO BUDDIES us les f sont bienvenus dans ce moch
 e de ouuuuuf ouc c vrai okcroutons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzz "the biggtu pourras pas effacer toute ce que j
