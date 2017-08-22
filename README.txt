@@ -22,7 +22,7 @@ asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdsjhl khdkljshfklj00000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000000000000000                       
                                    so, anyone could write here?  daja大家好        
-                                                                                
+                        whasssssat?who are they??isn't this a personal board    
                                                                                 
                                                                                 
                                                                                 
@@ -44,7 +44,7 @@ ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjiwohdoaldhlahlfhlsafsrrgaaaaaaaa
+jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoaldhlahlfhlsafsrrgaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaa aaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaq2 e2qeqe2qe2qeeeeeeeee
 eeeeeeeeeeeeec only me xxxxxiaoaqwrgihry4er7ery3rhbgdfyurhe7uy4ereryeeeeeeeeeeee
