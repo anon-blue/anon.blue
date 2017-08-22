@@ -55,6 +55,6 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
         coucou !  is that? Shall we, you know... go and get some astroesie?     
                                                                                 
                ¶π¶π that's the joke you know, there's no polka   friends, where 
-ary oye? I can't see you righty nowy. Need a tip                                
-                                      ∆∆∆∆∆∆∆                                   
+ary oye? I can't see you righty nowy. Need a tip          TIP JAR FOR ALL ANON A
+NONS                                  ∆∆∆∆∆∆∆                                   
                          m y gud, mistakes are unavoidable...                   
