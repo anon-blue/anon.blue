@@ -1,13 +1,13 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
-     cant understanddddd  there's nothing hill derstanddddd                     
+     cant understanddddd  there's nothing hill derrière toi                     
          here                                                         soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lighter p
 lease, a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
-3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
+3333eke3333333333333333 CA POLKE T333333333333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
@@ -31,12 +31,12 @@ rankilou land, whaterver               vvvvvvvv vvvvvv
                      coucou pas de singe     et maintenant là !usan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life        Why r the future u is so  dont like this song.    oh i like to 
+y of life        Why r the future u is so close like this song.    oh i like to 
 dance wityou                                                                    
                      Yes, I love this song too     Yes, you just had a dance wit
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
-                             f6 f7 aussi, tous les f sont bienvenus dans ce mond
+                             f6 f7 aussi, tous les f sont bienvenus dans ce moch
 e de ouuuuuf ouc c vrai ok sautons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzz "the biggest lie" dsssssssssss©©©©©©©©©©©©©©©©
@@ -57,4 +57,4 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
                                                             Hey, friends, where 
 ary oye? I can't see you righty nowy. Need a tip                                
                                       ∆∆∆∆∆∆∆                                   
-                         m y god, mistakes are unavoidable...                   
+                         m y gud, mistakes are unavoidable...                   
