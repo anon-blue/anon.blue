@@ -1,4 +1,4 @@
-                                                                                
+                                        ✓✓✓✓✓                                   
                                                                                 
      cant understanddddd                                                        
                                                                       soletimes 
@@ -6,7 +6,7 @@
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi33333333333333333333333333333333333333333333333333333333333333333
-33333333333333333333333333333333333333333333333333333333333333333333333333333333
+333333333333333333333333333333333333333333333333333333333333333333333 hey dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333333333
 333333333333333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,m.vnxz,m.nstoobe we be together bfnbds,mb,zmbnxlkdfjakjsdbf
@@ -29,7 +29,7 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                                                         hello susan!            
                                                 hi this is me susan=)           
-                                                                                
+                       goodbye                                                  
                                                                                 
                                                                                 
                                                                                 
@@ -37,7 +37,7 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                                        hjjjjks1s1                               
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
+cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
 ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
@@ -52,7 +52,7 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
 ttttttttttttttttttttttttrttttttttttttttttttttttt ttttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
-                                                                                
+             What is that? Shall we, you                                        
                                                                                 
                                                                                 
                                                                                 
