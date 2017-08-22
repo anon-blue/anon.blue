@@ -9,13 +9,13 @@ qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!33
 33333333333333333333                                                  hey dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
-bs,djbfkljasdhfjkdnc,m.vnxz,m.nstoobe we be together bfnbds,mb,zmbnxlkdfjakjsdbf
+bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbds,mb,zmbnxlkdfjakjsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
 hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culprit is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljhasdfj lkdjshfkljhdsa lkjdfshlkjdsh kljdshfklj shdfkljsha
-fkljhdjasfkljhdkjashfkhkldjasj lkjdhsfkljhdjasfklhasdl jkjdhsfkljhasjdfklj kljdh
+fkljhdjasfkljhdkjashfkhkldjasj lkjdhsfkljhdjwhere are yous?hsfkljhasjdfklj kljdh
 sfklj hkljdshkljfhlkds h ldkjshfkljhsda klkjdshfkljh ljkfhldjasflkjhasdlflkjdhas
  kljdhlkjh fklj hkljdfhsjklfhkljhasdfkl kljdshfklj hlkdhjaslfkjhasdljkljdshflkjh
 asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world        
@@ -31,15 +31,15 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                      coucou pas de singe        hi this is me susan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life                            no  i dont like this song.                 
-                                                                                
-                     Yes, I love this song too                                  
-                                                                                
+y of life                            no  i dont like this song.    oh i like to 
+dance wityou                                                                    
+                     Yes, I love this song too     Yes, you just had a dance wit
+h me. You see,    ories rise                                                    
                                        hjjjjks1s1     Astro to try?             
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
 cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
-       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
+       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©zccccccc
 ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
