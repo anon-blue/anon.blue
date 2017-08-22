@@ -29,7 +29,7 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                                                         hello susan!            
                                                 hi this is me susan=)           
-                       goodbye                                                  
+                       goodbye world                                            
                                                                                 
                                                                                 
                                                                                 
@@ -39,7 +39,7 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
 cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
+zzzzzz ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
 ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
@@ -52,7 +52,7 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
 ttttttttttttttttttttttttrttttttttttttttttttttttt ttttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
-             What is that? Shall we, you                                        
+             What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
                                                                                 
                                                                                 
