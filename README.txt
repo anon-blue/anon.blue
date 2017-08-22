@@ -8,8 +8,8 @@ s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
 her now!333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
-la belette 333333333333Would like to taste this vodka (tm) pirits for lunch  ,vm
-bs,djbfkljasd yummy ,c'est pas décone wt be together bfnbdlpease make sensejsdbf
+la belette 333333333333Would like to taste this vodka (tm) pirits for lunch  sEE
+ YOU U IN THISyummy ,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdj<
