@@ -1,7 +1,7 @@
                                                                                 
                                                                                 
      cant understanddddd                                                        
-                                                                                
+                                                                      soletimes 
                                                                                 
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
@@ -11,8 +11,8 @@ qvcacaonimadebi33333333333333333333333333333333333333333333333333333333333333333
 333333333333333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,m.vnxz,m.nstoobe we be together bfnbds,mb,zmbnxlkdfjakjsdbf
 kblweghklsdhfjkhnsabdn.c,znckjhadkljfhkljhklfjdaskln,zxbnzkljhklsjhflkjdhswfkljb
-nkx,zsnczkbxnlkjsbdhkfjhkjasC'esljhalsdkjfhlkaskljncxzkxhckljhkdlesfjhlkjnasdfkl
-jhlkdhjascxkljzhkljklsjdhnfkjlhasl jhlkjhdslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
+nkx,zsnczkbxnlkjsbdhkfjhkjasC'est un beau petit noir tout feu tout flamme que j'
+avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
 hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culprit is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljhasdfj lkdjshfkljhdsa lkjdfshlkjdsh kljdshfklj shdfkljsha
 fkljhdjasfkljhdkjashfkhkldjasj lkjdhsfkljhdjasfklhasdl jkjdhsfkljhasjdfklj kljdh
@@ -27,7 +27,7 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                        hello susan!            
                                                 hi this is me susan=)           
                                                                                 
                                                                                 
