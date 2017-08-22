@@ -33,9 +33,9 @@ leeeeaaaaaaaase,       goodbye world
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
 y of life        Why r the future u is so close like this song.    oh i like to 
 dance wityou                                                                    
-                     Yes, I love this song too     Yes, you just had a dance wit
-h me. You see,    ories rise-reise trip down under this blue bridge...          
-                                       hjjjjks1s1     Astro to try?             
+                                   is song too     Yes, you just had a dance wit
+h me. You see,    orie tu triches gros malin, tu as l'Architecte dans c  monde u
+n peu trop bleu                        hjjjjks1s1     Astro to try?             
                              f6 f7 aussi, tous les f sont bienvenus dans ce moch
 e de ouuuuuf ouc c vrai ok sautons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
@@ -43,11 +43,11 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 ©opyrright 2017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
-haha n Polkland is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
+haha je t'ai eu ou es tuidejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
 5 me fait sauter ou sentir en jjjjjjjjjjjjjjjjjjoie joie                  youren
 otéteint  sens tout étaint maintenu tounu                      The question is :
  ça polke ou ça polke pas? Tu dances ou tu dances pas.?? Ok on prévoit donc une 
-évasion polkesque.  me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
+évasion polkesque. Yes, or noyes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
 chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
