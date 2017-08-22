@@ -6,7 +6,7 @@
 lease, a black one preferably... stay wi. Yes friend s, absolutely we eat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
-33333333333333333333                                                  hey dudes 
+33333333333333333333                                      john le belugay dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
@@ -23,12 +23,12 @@ funny road wu - with you, perhaps anyway
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
-                                                                                
+                                                 narwhal is my favorite animal  
  MISTAAAAAOk, mais sautons en harmonie alors even in tj/ this Monkey Island or t
-rankilou la                            vvvvvvvv vvvvvv                          
+rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
-                     coucou pas de singe        hi this is me susan=)       no p
+                     coucou pas de singe     et maintenant là !usan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
 y of life                            no  i dont like this song.    oh i like to 
