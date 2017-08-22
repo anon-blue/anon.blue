@@ -1,9 +1,9 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
-     cant understanddddd                                                        
+     cant understanddddd  there's nothing to understanddddd                     
          here                                                         soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lighter p
-lease, a black one preferably... stay wi. Yes friend s, absolutely we eat spirit
+lease, a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
@@ -14,8 +14,8 @@ kblweghklsdhfjkhnsabdn.c,znc
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
 hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culbute is S) jdashflkjhweaiuh
-fkljsafhjkdsah fjdhfkljha                                                       
-                        monkey island is a perfect island  Can I call U? I don't
+fkljsafhjkdsah fjdhfkljha                                                      C
+hacun sa meerde, chacun son destin andis a perfect island  Can I call U? I don't
  need any lighter thank's to U both............ We would like to eat the - this 
 funny road wu - with you, perhaps anyway                                        
                                                    hlkdbecause the world        
@@ -24,7 +24,7 @@ funny road wu - with you, perhaps anyway
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                               We can be furious  narwhal is my favorite animal  
- MISTAAAAAOk, mais sautons en harmonie alors even in tj/ this Monkey Island or t
+ MISTAAAAAOk, mais faisons en harmonie alors even in tj/ this Monkey Island or t
 rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
