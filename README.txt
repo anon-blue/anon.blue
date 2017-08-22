@@ -19,7 +19,7 @@ fkljsafhjkdsah fjdhfkljha
  need any lighter thank's to U both............ We would like to eat the - this 
 funny road wu - with you, perhaps anyway                                        
                                                    hlkdbecause the world        
-                                                                                
+    the world is BLUE for everyone (even with pink glasses)                     
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
@@ -31,20 +31,20 @@ rankilou land, whaterver               vvvvvvvv vvvvvv
                      coucou pas de singe     et maintenant là !usan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life                            no  i dont like this song.    oh i like to 
+y of life                            ùo  i dont like this song.    oh i like to 
 dance wityou                                                                    
                      Yes, I love this song too     Yes, you just had a dance wit
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
                              f6 f7 aussi, tous les f sont bienvenus dans ce mond
-e de ouuuuuf ouc c vrai ok sautons avec un do un mi un fa cccccccccccccccccccccc
+e de ouuuuuf ouc c vrai ok sautons avec un domun mi un fa cccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
-5 me fait sauter de jjjjjjoie jjjjjjjjjjjjjjjjjjoie joie                  youren
+5 me fait sauter ou sentir en jjjjjjjjjjjjjjjjjjoie joie                  youren
 otéteint  sens tout étaint maintenu tounu                                       
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
