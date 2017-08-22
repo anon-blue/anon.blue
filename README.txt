@@ -1,6 +1,6 @@
                                                                                 
                                                                                 
-                                                                                
+     cant understandddd                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -22,7 +22,7 @@ asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdsjhl khdkljshfklj00000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000000000000000                       
                                    so, anyone could write here?  daja大家好        
-                        whasssssat?who are they??isn't this a personal board    
+                        whasssssat?who are they??isn't this a personal board?g  
                                                                                 
                                                                                 
                                                                                 
