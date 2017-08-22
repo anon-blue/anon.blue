@@ -42,19 +42,19 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
        ASTROETRY FOR LIFE zzzzzzz "the biggest lie" dsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaça pole gavé ça poleaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
-gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
+aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
+haha n Polkland is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
 5 me fait sauter ou sentir en jjjjjjjjjjjjjjjjjjoie joie                  youren
 otéteint  sens tout étaint maintenu tounu                      The question is :
- ça polke ou ça polke pas? Tu dances ou tu dances pas.??                        
-       . Can U hear me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
+ ça polke ou ça polke pas? Tu dances ou tu dances pas.?? Ok on prévoit donc une 
+évasion polkesque.  me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
 chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
-               ¶π¶π that's the jok                          Hey, friends, where 
+               ¶π¶π that's the joke you know, there's no polka   friends, where 
 ary oye? I can't see you righty nowy. Need a tip                                
                                       ∆∆∆∆∆∆∆                                   
                          m y gud, mistakes are unavoidable...                   
