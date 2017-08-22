@@ -44,8 +44,8 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
 haha je t'ai eu ou es tuidejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, maiiii
-i will ne sauter ou sentir en jjjjjjjjjjjjjjjjjjoie joie                  youren
-otéteint  sens tout étaint maintenu tounu                      The question is :
+i will never use the magic clear bjtton because it is sacred  from the begin of 
+the univ  sens tout étaint maintenu tounu tout bronzé          The question is :
  ça polke ou ça polke pas? Tu dances ou tu dances pas.?? Ok on prévoit donc une 
 évasion polkesque. Yes, or noyes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
