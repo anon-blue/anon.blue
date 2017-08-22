@@ -1,6 +1,6 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
-     cant understanddddd  there's nothing to understanddddd                     
+     cant understanddddd  there's nothing hill derstanddddd                     
          here                                                         soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lighter p
 lease, a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
@@ -13,7 +13,7 @@ bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdb
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
-hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culbute is S) jdashflkjhweaiuh
+hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the calbute is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljha                                                      C
 hacun sa meerde, chacun son destin andis a perfect island  Can I call U? I don't
  need any lighter thank's to U both............ We would like to eat the - this 
@@ -23,7 +23,7 @@ funny road wu - with you, perhaps anyway
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
-                              We can be furious  narwhal is my favorite animal  
+               faux           We can be furious  narwhal is my favorite animal  
  MISTAAAAAOk, mais faisons en harmonie alors even in tj/ this Monkey Island or t
 rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
@@ -31,7 +31,7 @@ rankilou land, whaterver               vvvvvvvv vvvvvv
                      coucou pas de singe     et maintenant là !usan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life                            ùo  i dont like this song.    oh i like to 
+y of life        Why r the future u is so  dont like this song.    oh i like to 
 dance wityou                                                                    
                      Yes, I love this song too     Yes, you just had a dance wit
 h me. You see,    ories rise-reise trip down under this blue bridge...          
@@ -39,8 +39,8 @@ h me. You see,    ories rise-reise trip down under this blue bridge...
                              f6 f7 aussi, tous les f sont bienvenus dans ce mond
 e de ouuuuuf ouc c vrai ok sautons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
-       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
-©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
+       ASTROETRY FOR LIFE zzzzzzz "the biggest lie" dsssssssssss©©©©©©©©©©©©©©©©
+©opyrright 2017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
