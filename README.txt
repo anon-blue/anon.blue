@@ -2,8 +2,8 @@
                                                           win-win situation     
      cant understanddddd  there's nothing hill derrière toi                     
          here I am!                                                   soletimes 
-   vous êtes sacrémment allumés vous alors!                   g imme a lighter p
-lease, a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
+   vous êtes sacrémment allumés vous alors!                   g imme a lightning
+please a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
@@ -45,7 +45,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
 haha je t'ai eu ou es tuidejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, maiiii
 i will never use the magic clear bjtton because it is sacred  from the begin of 
-the univ  sens tout étaint maintenu tounu tout bronzé          The question is :
+the universe nobody ever used the clear button bronzézette     The question is :
  ça polke ou ça polke pas? Tu dances ou tu dances pas.?? Ok on prévoit donc une 
 évasion polkesque. Yes, or noyes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
