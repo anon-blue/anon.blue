@@ -4,7 +4,7 @@
          here I am!                                                   soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lightning
 please a blank one preferably... stay wi. Yes friend s, absolute vodka™(tm)CA PO
-leLKE MAIS      hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
+leLKE MAIS MOINS ahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
 her now!333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
