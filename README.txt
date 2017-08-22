@@ -8,8 +8,8 @@ s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
 her now!333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
-la belette 333333333333Would like to taste this vodkajnfkljnsadkcn,mzxcn,.bxc,vm
-bs,djbfkljasd fjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
+la belette 333333333333Would like to taste this vodka (tm) pirits for lunch  ,vm
+bs,djbfkljasd yummy ,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdj<
@@ -29,8 +29,8 @@ rankilou land, whaterver               vvvvvvvv vvvvvv
                 =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
                      coucou pas de singesque manutation       !usan=)       no p
-leeeeaaaaaaaase,       goodbye world                                            
-               Eat a monkey and see the balloun.... Yes, a singe in a strange wa
+leeeeaaaaaaaase,       goodbye world                                     the pol
+ke will never end  a monkey and see the balloun.... Yes, a singe in a strange wa
 y of life        Why r the future u is so close like this song.    oh i like to 
 dance wityou                                                                    
                                                                                 
