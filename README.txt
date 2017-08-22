@@ -3,8 +3,8 @@
      cant understanddddd                                                        
          here                                                         soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lighter p
-lease, a black one preferably... stay wi.  us we need your spirit. we eat s     
-  mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
+lease, a black one preferably... stay wi. Yes friend s, absolutely we eat spirit
+s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                                  hey dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
@@ -14,8 +14,8 @@ kblweghklsdhfjkhnsabdn.c,znc
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
 hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culprit is S) jdashflkjhweaiuh
-fkljsafhjkdsah fjdhfkljhasdfj lkdjshfkljhdsa lkjdfshlkjdsh kljdshfklj shdfkljsha
-fkljhdjasfkljhdkjashfkhkldjasj lkjdhsfkljhdjwhere are yous?hsfkljhasjdfklj kljdh
+fkljsafhjkdsah fjdhfkljha                                                       
+                                                           Can I call U? j kljdh
 sfklj hkljdshkljfhlkds h ldkjshfkljhsda klkjdshfkljh ljkfhldjasflkjhasdlflkjdhas
  kljdhlkjh fklj hkljdfhsjklfhkljhasdfkl kljdshfklj hlkdhjaslfkjhasdljkljdshflkjh
 asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world        
@@ -24,7 +24,7 @@ asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                                                                                 
-                                                                                
+ MISTAAA                                                                        
                                                                                 
                      Heu, need a trip                                           
                                                         hello susan!            
@@ -43,9 +43,9 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
-gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
+gffgdthis space is too widejaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoal                        
-    je me sens tout étaint main                                                 
+    je me sens tout étaint maintenant                                           
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
@@ -57,4 +57,4 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
                                                             Hey, friends, where 
 ary oye? I can't see you righty nowy. Need a tip                                
                                                                                 
-                                                                                
+                         m y god, mistakes are unavoidable...                   
