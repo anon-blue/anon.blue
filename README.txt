@@ -23,7 +23,7 @@ funny road wu - with you, perhaps anyway
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
-                                                 narwhal is my favorite animal  
+                              We can be furious  narwhal is my favorite animal  
  MISTAAAAAOk, mais sautons en harmonie alors even in tj/ this Monkey Island or t
 rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
@@ -45,12 +45,12 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
 5 me fait sauter de jjjjjjoie jjjjjjjjjjjjjjjjjjoie joie                  youren
-otéteint  sens tout étaint maintenant                                           
+otéteint  sens tout étaint maintenu tounu                                       
                                                                                 
-       . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
+       . Can U hear me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
+aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
-ttttttttttttttttttttttttrttttttttttttttje suis là!tttttttttttttttttt ttttttttttt
+ttttttttttttttttttttt      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
