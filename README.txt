@@ -18,8 +18,8 @@ fkljsafhjkdsah fjdhfkljhasdfj lkdjshfkljhdsa lkjdfshlkjdsh kljdshfklj shdfkljsha
 fkljhdjasfkljhdkjashfkhkldjasj lkjdhsfkljhdjasfklhasdl jkjdhsfkljhasjdfklj kljdh
 sfklj hkljdshkljfhlkds h ldkjshfkljhsda klkjdshfkljh ljkfhldjasflkjhasdlflkjdhas
  kljdhlkjh fklj hkljdfhsjklfhkljhasdfkl kljdshfklj hlkdhjaslfkjhasdljkljdshflkjh
-asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdsjhl khdkljshfklj00000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world is roun
+d it gets me higjh00000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000000000000000                       
                                    so, anyone could write here?  daja大家好        
                         whasssssat?who are they??isn't this a personal board?g  
