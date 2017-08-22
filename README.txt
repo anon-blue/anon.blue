@@ -6,9 +6,9 @@
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi33333333333333333333333333333333333333333333333333333333333333333
-33333333333333333333 333333333333333333333333333333333333333333333333 hey dudes 
-3333eke333333333333333333333333333333333333333333uuuj333333333333333333333333333
-333333333333333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
+33333333333333333333                                                  hey dudes 
+3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
+la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,m.vnxz,m.nstoobe we be together bfnbds,mb,zmbnxlkdfjakjsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
@@ -28,10 +28,10 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                      Heu, need a trip                                           
                                                         hello susan!            
-                                                hi this is me susan=)       hou 
+                     coucou pas de singe        hi this is me susan=)       hou 
 hou as you know,       goodbye world                                            
-                                                                                
-                                                                                
+               Eat a monkey and see the balloun.... Yes, a singe in a strange wa
+y of life                                                                       
                                                                                 
                                          ččhgfttzg<                             
                                                                                 
