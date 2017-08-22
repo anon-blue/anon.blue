@@ -12,8 +12,8 @@ la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
 bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
-avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
-hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the calbute is S) jdashflkjhweaiuh
+avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdj<
+that guy slkjhfl WE JUST FOUND A PETIT NOIR, (the calbute is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljha                                                      C
 hacun sa meerde, chacun son destin andis a perfect island  Can I call U? I don't
  need any lighter thank's to U both............ We would like to eat the - this 
@@ -28,7 +28,7 @@ weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g
 rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
-                     coucou pas de singe     et maintenant là !usan=)       no p
+                     coucou pas de singesque manutation       !usan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
 y of life        Why r the future u is so close like this song.    oh i like to 
@@ -36,8 +36,8 @@ dance wityou
                                                                                 
                       !tu triches gros malin, tu as l'Architecte dans c  monde u
 n peu trop bleu                        hjjjjks1s1     Astro to try?             
-                             f6 f7 aussi, tous les f sont bienvenus dans ce moch
-e de ouuuuuf ouc c vrai ok sautons avec un domi fa sol la silicomecone come on c
+             point           f6 f7 aussi, tous les f sont bienvenus dans ce moch
+e de ouuuuuf ouc c vrai okcroutons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzz "the biggtu pourras pas effacer toute ce que j
 'écrite eee 017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
