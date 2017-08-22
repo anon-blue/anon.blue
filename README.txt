@@ -22,7 +22,7 @@ asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world
                                                                                 
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
-weweqweqwe   si,i simida               are they??isn't this a personal board?g  
+weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                                                                                 
                                                                                 
                                                                                 
@@ -34,13 +34,13 @@ leeeeaaaaaaaase,       goodbye world
 y of life                            no  i dont like this song.    oh i like to 
 dance wityou                                                                    
                      Yes, I love this song too     Yes, you just had a dance wit
-h me. You see,    ories rise                                                    
+h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
 cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
-       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©zccccccc
-ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
+©opyrright 2036 The Intercivilizational Corporationaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
