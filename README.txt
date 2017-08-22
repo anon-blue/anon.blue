@@ -1,9 +1,9 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
-     cant understanddddd  there's nothing hill derrière toi                     
+     cant understanddddd  there's nothing hill derrière nous                    
          here I am!                                                   soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lightning
-please a blank one preferably... stay wi. Yes friend s, absolutely we eat spirit
+please a blank one preferably... stay wi. Yes friend s, absolute vodkaeat spirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
@@ -22,8 +22,8 @@ funny road wu - with you, perhaps anyway
     the world is BLUE for everyone (even with pink glasses)                     
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
-weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
-               faux           We can be furious  narwhal is my favorite animal  
+weweqweqwe   si,i simida         I take a break, take a breathe there? Anybody a
+t the blue ?   faux           We can be furious  narwhal is my favorite animal  
  MISTAAAAAOk, mais faisons en harmonie alors even in tj/ this Monkey Island or t
 rankilou land, whaterver               vvvvvvvv vvvvvv                          
                 =>>>>Heu, need a trip to Monkey Island.                         
@@ -36,7 +36,7 @@ dance wityou
                                                                                 
                       !tu triches gros malin, tu as l'Architecte dans c  monde u
 n peu trop bleu                        hjjjjks1s1     Astro to try?             
-             point           f6 f7 aussi, tous les f sont bienvenus dans ce moch
+             points de supension!7 aussi, tous les f sont bienvenus dans ce moch
 e de ouuuuuf ouc c vrai okcroutons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzz "the biggtu pourras pas effacer toute ce que j
