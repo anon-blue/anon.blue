@@ -5,7 +5,7 @@
                                                                                 
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
-qvcacaonimadebi33333333333333333333333333333333333333333333333333333333333333333
+qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                                  hey dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
@@ -28,12 +28,12 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                      Heu, need a trip                                           
                                                         hello susan!            
-                     coucou pas de singe        hi this is me susan=)       hou 
-hou as you know,       goodbye world                                            
+                     coucou pas de singe        hi this is me susan=)       no p
+leeeeaaaaaaaase,       goodbye world                                            
                Eat a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life                                                                       
+y of life                            no  i dont like this song.                 
                                                                                 
-                                         ččhgfttzg<                             
+                     Yes, I love this song too                                  
                                                                                 
                                        hjjjjks1s1     Astro to try?             
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
@@ -44,10 +44,10 @@ ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoaldhlahlfhlsafsrrgaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaa aaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaq2 e2qeqe2qe2qeeeeeeeee
-Hi here. Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
+jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoal                        
+                                                                                
+                                                                                
+       . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
 ttttttttttttttttttttttttrttttttttttttttttttttttt ttttttttttttttttttt ttttttttttt
