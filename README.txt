@@ -37,7 +37,7 @@ dance wityou
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
                              f6 f7 aussi, tous les f sont bienvenus dans ce mond
-e de ouuuuuf ouc c vrai ok sautons avec un domun mi un fa cccccccccccccccccccccc
+e de ouuuuuf ouc c vrai ok sautons avec un domi fa sol la silicomecone come on c
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
@@ -49,8 +49,8 @@ otéteint  sens tout étaint maintenu tounu
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttttttttttttt
-ttttttttttttttttttttt      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
+chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
