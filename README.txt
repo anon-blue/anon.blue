@@ -9,22 +9,22 @@ qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!33
 33333333333333333333                                                  hey dudes 
 3333eke333333333333333333333333333333333333333333uuuj333333333333333333333 jack 
 la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
-bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbds,mb,zmbnxlkdfjakjsdbf
+bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
-hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culprit is S) jdashflkjhweaiuh
+hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culbute is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljha                                                       
-                                                           Can I call U? j kljdh
-sfklj hkljdshkljfhlkds h ldkjshfkljhsda klkjdshfkljh ljkfhldjasflkjhasdlflkjdhas
- kljdhlkjh fklj hkljdfhsjklfhkljhasdfkl kljdshfklj hlkdhjaslfkjhasdljkljdshflkjh
+                                                           Can I call U? I don't
+ need any lighter thank's to U both............ We would like to eat the - this 
+funny road wu - with you, perhajhasdfkl kljdshfklj hlkdhjaslfkjhasdljkljdshflkjh
 asdjfkljhsdlkjh kljdshlkjfhkljsdhlkjfhl kjlkjdhkljfhlkdbecause the world        
                                                                                 
                                                                                 
        wold l qqwddqwqtwefqwdwdcasdadd dasd\dsdqweqwewesoiDdd  dd asdasdsdasdasd
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                                                                                 
- MISTAAA                                                                        
+ MISTAAAAAAAAAAAKEEEEEES []$$$$$$$$$$$                                          
                                                                                 
                      Heu, need a trip                                           
                                                         hello susan!            
@@ -56,5 +56,5 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
                                                                                 
                                                             Hey, friends, where 
 ary oye? I can't see you righty nowy. Need a tip                                
-                                                                                
+                                      ∆∆∆∆∆∆∆                                   
                          m y god, mistakes are unavoidable...                   
