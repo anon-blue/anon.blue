@@ -36,15 +36,15 @@ dance wityou
                      Yes, I love this song too     Yes, you just had a dance wit
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
-                             f6aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaacccccctoo much
- of letter cccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
+                             f6 f7 aussi, tous les f sont bienvenus dans ce mond
+e de ouuuuuf ouc c vrai ok sautons cccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
-gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoal                  youren
+gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, mais F
+5 me fait sauter de jjjjjjoie jjjjjjjjjjjjjjjjjjoiehdoal                  youren
 otéteint  sens tout étaint maintenant                                           
                                                                                 
        . Can U hear me xxxxx yes i can, you're singing ™ he7uy4ereryeeeeeeeeeeee
