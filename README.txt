@@ -3,13 +3,13 @@
      cant understanddddd  there's nothing hill derrière nous                    
          here I am!                                                   soletimes 
    vous êtes sacrémment allumés vous alors!                   g imme a lightning
-please a blank one preferably... stay wi. Yes friend s, absolute vodkaeat spirit
+please a blank one preferably... stay wi. Yes friend s, absolute vodka™(tm)pirit
 s for lunch     hahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
 33333333333333333333                                      john le belugay dudes 
 her now!333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
-la belette 3333333333333333333333fb,nmbv,mbxzncvbasdkjnfkljnsadkcn,mzxcn,.bxc,vm
-bs,djbfkljasdhfjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
+la belette 333333333333Would like to taste this vodkajnfkljnsadkcn,mzxcn,.bxc,vm
+bs,djbfkljasd fjkdnc,c'est pas décone wt be together bfnbdlpease make sensejsdbf
 kblweghklsdhfjkhnsabdn.c,znc                                                    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdj<
@@ -57,4 +57,4 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
                ¶π¶π that's the joke you know, there's no polka   friends, where 
 ary oye? I can't see you righty nowy. Need a tip          TIP JAR FOR ALL ANON A
 NONS                                  ∆∆∆∆∆∆∆                                   
-                         m y gud, mistakes are unavoidable...                   
+ gud gud gud             m y gud, mistakes are unavoidable...                   
