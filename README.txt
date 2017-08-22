@@ -1,7 +1,7 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
      cant understanddddd                                                        
-                                                                      soletimes 
+         here                                                         soletimes 
                                                                                 
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
@@ -26,10 +26,10 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                     Heu, need a trip                                           
                                                         hello susan!            
-                                                hi this is me susan=)           
-                       goodbye world                                            
+                                                hi this is me susan=)       hou 
+hou as you know,       goodbye world                                            
                                                                                 
                                                                                 
                                                                                 
@@ -38,8 +38,8 @@ weweqweqwe   si,i simida               are they??isn't this a personal board?g
                                        hjjjjks1s1     Astro to try?             
                                aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaccccccccsccccc
 cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
-ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzz ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
+ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
+       ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdssssssssssssssssssszccccccc
 ccccccccccccccccccccccccccccccccccccccddszszzsA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
@@ -55,6 +55,6 @@ tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren
              What is that? Shall we, you know... go and get some astroesie?     
                                                                                 
                                                             Hey, friends, where 
-ary you? I can't see you right now... Need a tip                                
+ary oye? I can't see you right now... Need a tip                                
                                                                                 
                                                                                 
