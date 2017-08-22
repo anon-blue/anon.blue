@@ -15,7 +15,7 @@ kblweghklsdhfjkhnsabdn.c,znc
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdjs
 hflkj dhaslkjhfl WE JUST FOUND A PETIT NOIR, (the culbute is S) jdashflkjhweaiuh
 fkljsafhjkdsah fjdhfkljha                                                       
-                        monkey island is a perfect         Can I call U? I don't
+                        monkey island is a perfect island  Can I call U? I don't
  need any lighter thank's to U both............ We would like to eat the - this 
 funny road wu - with you, perhaps anyway                                        
                                                    hlkdbecause the world        
@@ -25,8 +25,8 @@ funny road wu - with you, perhaps anyway
 weweqweqwe   si,i simida               arwho's there? anybody home?nal board?g  
                                                                                 
  MISTAAAAAAAAAAAKEEEEEES []$$$$$$$$$$$                                          
-                                                                                
-                     Heu, need a trip to Monkey Island.                         
+                                       vvvvvvvv vvvvvv                          
+                =>>>>Heu, need a trip to Monkey Island.                         
                                                         hello susan!            
                      coucou pas de singe        hi this is me susan=)       no p
 leeeeaaaaaaaase,       goodbye world                                            
@@ -36,14 +36,14 @@ dance wityou
                      Yes, I love this song too     Yes, you just had a dance wit
 h me. You see,    ories rise-reise trip down under this blue bridge...          
                                        hjjjjks1s1     Astro to try?             
-                               aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaacccccctoo much
- of letteiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
+                             f6aa AAAA aaaaaaaaaaaaaaaaaaaaaaaaaaacccccctoo much
+ of letter cccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
 ©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
-gffgdthis space is too widejaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
+gffgdthis space is too widejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjhhjjjjjjjjjjjjjjjjjjjjiwohdoal                  youren
 otéteint  sens tout étaint maintenant                                           
                                                                                 
