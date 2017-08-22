@@ -2,7 +2,7 @@
                                                           win-win situation     
      cant understanddddd                                                        
          here                                                         soletimes 
-                                                                                
+   vous êtes                                                  g imme a lig      
                                                                                 
   mr,  mr.parkerhahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
@@ -40,7 +40,7 @@ h me. You see,    ories rise-reise trip down under this blue bridge...
 cccccccgoiccccccccccccccccccccccccccccccccccccccccccccscsccccccccccccccccccccccc
 ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
        ASTROETRY FOR LIFE zzzzzzzzzzzzzzzzcccccccsdcdsssssssssss©©©©©©©©©©©©©©©©
-©opyrright 2036 The Intercivilizational Corporationaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+©opyrright 2036 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaf
 gffgdgaaaaaaa]['[';kp[jujjjjaaaaaaaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjjjjjjjjj
