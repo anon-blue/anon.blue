@@ -43,11 +43,11 @@ ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 'écrite eee 017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
-haha je t'ai eu ou es tuidejaaaaaaaaaaaaaaaaaa F5, merci jjjjjjjjjjj oui, maiiii
-i will never use the magic clear bjtton because it is sacred  from the begin of 
-the universe nobody ever used the clear button bronzézette     The question is :
- ça polke ou ça polke pas? Tu dances ou tu dances pas.?? Ok on prévoit donc une 
-évasion polkesque. Yes, or noyes i can, you're singing ™ he7 quel chasos quel ch
+haAs tyThe unvie                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                       ™ he7 quel chasos quel ch
 aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
 chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
