@@ -52,9 +52,9 @@ aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
 chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
 tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
-        coucou !  is that? Shall we, you know... go and get some astroesie?     
-                                                                                
-               ¶π¶π that's the joke you know, there's no polka   friends, where 
-ary oye? I can't see you righty nowy. Need a tip          TIP JAR FOR ALL ANON A
-NONS                                  ∆∆∆∆∆∆∆                                   
+        coucou !  is that? Shall we, you knwwawd awd  awd awd aw dawdawqweqweqeq
+weqweqweqweqwwwwwwwwwwwwwwwwwweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeee                          ∆∆∆∆∆∆∆                                   
  gud gud gud             m y gud, mistakes are unavoidable...                   
