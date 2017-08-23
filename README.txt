@@ -45,8 +45,8 @@ rdité mais dites moi comment une goutte d'eau pue/peut ressembler à une autre 
 utte d'eau? J'aimerais bien goutter une pluie en attendant que les nuages polken
 t devant ma porte...                                                            
                                                                                 
-Now this is the fuck i fucked up asjdjasdjas                                    
-                                                                                
+Now this is the fuck i fucked up asjdjasdjasjda                                 
+ Now this is a story all aboyt ufuck me in domim done                           
                                                                                 
                                                                                 
                                                                                 
