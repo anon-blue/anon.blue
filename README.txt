@@ -18,9 +18,9 @@ d没有什么山后面常识我在这里! ......................................
 ................................................................................
 ......................................................................... sadfas
 dfasdfasdfexit;.................................................Get awake - get 
-a cake, game over in my head....................................................
-............. d \ dsdqweqwewesoiDdd dd asdasdsdasdasdweweqweqwe si,我simida休息,呼吸那
-里吗? 任何一个蓝色的? 仿我们可以愤怒的独角鲸是我最喜欢的动物MISTAAAAAOk,但是来en harmonie那么即使在tj /这猴子岛或trankilo
+a cake, game over in my head ---- Don't want to play anymore -----You should kno
+w I'm in love                                                                   
+                                                n harmonie那么即使在tj /这猴子岛或trankilo
 u土地,whaterver vvvvvvvv vvvvvv= > > > >高浓缩铀,需要一个猴子岛之旅。你好苏珊!coucou不是de singesque m
 anutation ! usan =)没有p世界波尔leeeeaaaaaaaase,再见柯永远不会结束一只猴子,看到balloun .... 是的,一个奇怪的佤
 邦烧焦y的生活为什么r未来的你是如此的喜欢这首歌。 哦,我喜欢舞蹈wityoubjzxhcjhjdhvjgsdbkasvkkjgfhkjsdwefgerhtrj
