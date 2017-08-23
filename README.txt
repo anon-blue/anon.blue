@@ -10,7 +10,7 @@ qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!33
 her now!333333333333333 CA POLKE TOUJOURS 3333333uuuj333333333333333333333 jack 
 la belette 333333333333Would like to taste this vodka (tm) pirits for lunch  sEE
  YOU U IN THISyummy ,c'est pas décone wt be together bfnbdlpease make sensejsdbf
-kblweghklsdhfjkhnsabdn.c,znc                                                    
+kblweghklsdhfjkhnsabdn. sdkfnsldfsdflksdmfnlksndflksndflksndflksdq'fpkqa,;as    
                             C'est un beau petit noir tout feu tout flamme que j'
 avais dans ma poche... Thank's friends ! dslkjfhldjaflkj ljhlsdkjfhldjash llkdj<
 that guy slkjhfl WE JUST FOUND A PETIT NOIR, (the calbute is S) jdashflkjhweaiuh
