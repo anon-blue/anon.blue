@@ -39,7 +39,7 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaff
                                                                                 
                                                                                 
       C'est l'histoire de deux gouttes d'eau.... c'est l'histoire d'une expressi
-on                                                                              
+on complètement folle et qui raconte que 'une goutte ressemble à l'autre..      
                                                                                 
                                                                                 
                                                                                 
