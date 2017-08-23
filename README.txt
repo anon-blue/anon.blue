@@ -43,7 +43,7 @@ on complètement folle et qui raconte que 'une goutte ressemble à l'autre...com
  si ça pouvait être vrai... Pourtant à l'usage on y croit. On croit à cette absu
 rdité mais dites moi comment une goutte d'eau pue/peut ressembler à une autre go
 utte d'eau? J'aimerais bien goutter une pluie en attendant que les nuages polken
-t devant ma porte                                                               
+t devant ma porte...                                                            
                                                                                 
                                                                                 
                                                                                 
