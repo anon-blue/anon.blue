@@ -1,4 +1,4 @@
-                                        ✓✓✓✓✓                                   
+ A unexcepted ecception ha              ✓✓✓✓✓                                   
                                                           win-win situation     
      cant understanddddd  there's nothing hill derrière nous                    
          here I am!                           ..................................
@@ -47,14 +47,14 @@ haAs tyThe unvie
                                                                                 
                                                                                 
                                                                                 
-                                                       ™ he7 quel chasos quel ch
-aosequand même eeeeeeeeeeeeeeeeeeeeeeeeeeeeeee EEEEEEE eeeeeeeee eeeaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayuiyuy igfhdhrttttttttttt ttoi oi oi oi
-chacun sa meeerde !!!      &&&&&&&&    je suis là!tttttttttttttttttt ttttttttttt
-tttttt ttttttttttttttttttttttthelloworldthis  hello world this is me keren      
-        coucou !  is that? Shall we, you knwwawd awd  awd awd aw dawdawqweqweqeq
-weqweqweqweqwwwwwwwwwwwwwwwwwweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-efhyrdteeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeee                          ∆∆∆∆∆∆∆                                   
- gud gud gud             m y gud, mistakes are unavoidable...                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                             A exception has been chought       
+                                                                                
