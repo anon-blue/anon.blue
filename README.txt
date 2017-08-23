@@ -40,9 +40,9 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaff
                                                                                 
       C'est l'histoire de deux gouttes d'eau.... c'est l'histoire d'une expressi
 on complètement folle et qui raconte que 'une goutte ressemble à l'autre...comme
- si ça pouvait être vrai... Pourtant à l'usage on y croit                       
-                                                                                
-                                                                                
+ si ça pouvait être vrai... Pourtant à l'usage on y croit. On croit à cette absu
+rdité mais dites moi comment une goutte d'eau pue/peut ressembler à une autre go
+utte d'eau                                                                      
                                                                                 
                                                                                 
                                                                                 
