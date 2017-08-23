@@ -1,7 +1,5 @@
- A unexcepted ecception has occurered. Your situratiorrrrrrrrrrr mucc           
-                                                          win-win situation     
-     cant understanddddd  there's nothing hill derrière nous                    
-         here I am!                           ..................................
+一个unexcepted ecception occurered。 你situratiorrrrrrrrrrr mucc双赢的局面斜面understandddd
+d没有什么山后面常识我在这里! ................................................................
 ................................................................................
 ................................................................................
 ................................................................................
@@ -18,43 +16,45 @@
 ................................................................................
 ................................................................................
 ................................................................................
+......................................................................... sadfas
+dfasdfasdfexit;.................................................................
 ................................................................................
-.......................sadfasdfasdfasdfexit;....................................
-................................................................................
-..........................................d\dsdqweqwewesoiDdd  dd asdasdsdasdasd
-weweqweqwe   si,i simida         I take a break, take a breathe there? Anybody a
-t the blue ?   faux           We can be furious  narwhal is my favorite animal  
- MISTAAAAAOk, mais faisons en harmonie alors even in tj/ this Monkey Island or t
-rankilou land, whaterver               vvvvvvvv vvvvvv                          
-                =>>>>Heu, need a trip to Monkey Island.                         
-                                                        hello susan!            
-                     coucou pas de singesque manutation       !usan=)       no p
-leeeeaaaaaaaase,       goodbye world                                     the pol
-ke will never end  a monkey and see the balloun.... Yes, a singe in a strange wa
-y of life        Why r the future u is so close like this song.    oh i like to 
-dance wityou                                                                    
-bjzxhcjhjdhvjgsdbkasvkkjgfhkjsdwefgerhtrjtyoiuytrewqws                          
-                      !tu triches gros malin, tu as l'Architecte dans c  monde u
-n peu trop bleu                        hjjjjks1s1     Astro to try?             
-             points de supensi CIAO BUDDIES us les f sont bienvenus dans ce moch
-e de ouuuuuf ouc c vrai okcroutons avec un domi fa sol la silicomecone come on c
-ccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz    
-       ASTROETRY FOR LIFE zzzzzzz "the biggtu pourras pas effacer toute ce que j
-'écrite eee 017 The Intercivilizational Corporation for Eternal Happiness. aaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaça pole gavé ça poleça polke gavégavé bhgjjblbhbgvfxdcvjhnk,nhgdc ouil app
-haAs tyThe unvie                                                                
+............. d \ dsdqweqwewesoiDdd dd asdasdsdasdasdweweqweqwe si,我simida休息,呼吸那
+里吗? 任何一个蓝色的? 仿我们可以愤怒的独角鲸是我最喜欢的动物MISTAAAAAOk,但是来en harmonie那么即使在tj /这猴子岛或trankilo
+u土地,whaterver vvvvvvvv vvvvvv= > > > >高浓缩铀,需要一个猴子岛之旅。你好苏珊!coucou不是de singesque m
+anutation ! usan =)没有p世界波尔leeeeaaaaaaaase,再见柯永远不会结束一只猴子,看到balloun .... 是的,一个奇怪的佤
+邦烧焦y的生活为什么r未来的你是如此的喜欢这首歌。 哦,我喜欢舞蹈wityoubjzxhcjhjdhvjgsdbkasvkkjgfhkjsdwefgerhtrj
+tyoiuytrewqws! 你triches gros马林,你l 'Architecte在c monde un一些太蓝色hjjjjks1s1 Astro尝试吗
+?点德supensi再见朋友我们les f是卞福汝在ce moche de ouuuuuf ouc c真的okcroutons aplha受fa索尔la sil
+icomecone cccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+zzzzzzz终身ASTROETRY zzzzzzz“biggtu能否不抹去吹捧什么j017年“ecrite eee Intercivilizational公司
+永恒的幸福。 五星级aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaca杆给ca poleca赶gavegave bhgjjblbhbgvfxdcvjhnk,nhgdc ouil应用哈斯tyThe
+ unvieqqqqqqqqqq大卫是空一个例外是chought                                                
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                    qqqqqqqqqq   david is non-empty                             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                             A exception has been chought       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+ ttttqfasdgfhfjrjgfjdsssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sssssssssssssssss                                                               
+                                                                                
+                                                                                
                                                                                 
