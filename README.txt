@@ -1,8 +1,8 @@
                                         ✓✓✓✓✓                                   
                                                           win-win situation     
      cant understanddddd  there's nothing hill derrière nous                    
-         here I am!                                                   soletimes 
-   vous êtes sacrémment allumés vous alors!                   g imme a lightning
+         here I am!                           ..................................
+..........................................!                   g imme a lightning
 please a blank one preferably... stay wi. Yes friend s, absolute vodka™(tm)CA PO
 leLKE MAIS MOINS ahahaha fuuny website3333jfrhfhfjfadaajqwiudhazkjdnzlkjncoaiuwh
 qvcacaonimadebi3333333333333333333333333333333333333333333ça poleça polke!!!3333
