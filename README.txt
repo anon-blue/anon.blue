@@ -25,7 +25,7 @@ u土地,whaterver vvvvvvvv vvvvvv= > > > >高浓缩铀,需要一个猴子岛之�
 anutation ! usan =)没有p世界波尔leeeeaaaaaaaase,再见柯永远不会结束一只猴子,看到balloun .... 是的,一个奇怪的佤
 邦烧焦y的生活为什么r未来的你是如此的喜欢这首歌。 哦,我喜欢舞蹈wityoubjzxhcjhjdhvjgsdbkasvkkjgfhkjsdwefgerhtrj
 tyoiuytrewqws! 你triches gros马林,你l 'Architecte在c monde un一些太蓝色hjjjjks1s1 Astro尝试吗
-?点德supensi再见朋友我们les f是卞福汝在ce moche de ouuuuuf ouc c真的okcroutons aplha受fa索尔la sil
+?点德supenshdyhdmjkhmjkryhjmkrujoche de ouuuuuf ouc c真的okcroutons aplha受fa索尔la sil
 icomecone cccccccccccccccccccccccccccczcdszzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzz终身ASTROETRY zzzzzzz“biggtu能否不抹去吹捧什么j017年“ecrite eee Intercivilizational公司
 永恒的幸福。 五星级aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa AAAAAAAAA aaaaaaaaaaaaaaaaaaaa
@@ -42,7 +42,7 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaff
 on complètement folle et qui raconte que 'une goutte ressemble à l'autre...comme
  si ça pouvait être vrai... Pourtant à l'usage on y croit. On croit à cette absu
 rdité mais dites moi comment une goutte d'eau pue/peut ressembler à une autre go
-utte d'eau?                                                                     
+utte d'eau? J'aimerais bien goutter une pluie en attendant                      
                                                                                 
                                                                                 
                                                                                 
