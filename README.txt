@@ -49,7 +49,7 @@ sssssssss SSSSS SSSSS小号SSSS SS SS的的的SSS sssssssssssss小小号号SSSSS
                                                                                 
                                                                                 
                                                                       nini1fuck 
-you ti you ti this fucking gu                                                   
+you ti you ti this fucking guy,i'm going to kill you this son of bitch.         
                                                                                 
                                                                                 
                                                                                 
