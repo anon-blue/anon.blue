@@ -25,7 +25,7 @@ _u_uç_u... .... ......... .......... ...... ... ...... .... .. ..... .. ... ...
 in un Gateau, le jeu e st dans ma tête, vous ne voul ez pas vous Devez - --- s j
  Qué e te te te te te te suis en amour Har j ouer monique Il de Avoir TJ Alors /
  OU Roussi r tranki lo t erre V otre, Qui VVV VVV = >> >> moi d'uranium v ​​vvvv
-vvv haute nt i enrichir , un Besoin, da ns le de amme v oyage de l roussir «Île.
+vvv haute nt i enrichir , un Besoin, ooooooooooooooonnnnnnnnnnnnnnnnnussir «Île.
  Bonjour Su shan! Co pa s de singesque ynonyme de tion Manuta! = USAN de) P pas 
 de monde Boer leeeea aaa aaaase, au fin Ke à un ro ussir Mettr e revoir jamais, 
 voir Ballo un de ... O ui, pour quoi un Etat W a ETRANGE RY v carbonisée si oU d
