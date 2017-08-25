@@ -49,7 +49,7 @@ tfyutfytffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+         yoou computer is shundown                                              
                                                                                 
                                                                                 
                                                                                 
