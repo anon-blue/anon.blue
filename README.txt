@@ -49,8 +49,8 @@ tfyutfytffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-         yoou computer is shundown                                              
-                                                                                
+         yoou computer is shundown please reset you bios and close down the sex 
+website                                                                         
                                                                                 
                                                                                 
                                                                                 
