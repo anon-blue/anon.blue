@@ -18,11 +18,11 @@
 ..........................O.....................................................
 ..........................OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
 OOOOOOOOOOOOOOOOOOOOOOOOOO......................................................
-OOOOOOOggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggdfsdfnimasilecaonimaggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+OOOOOOOOOOOOOOOOOOOOO...........................................................
+.....................OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+OOOOOOOOOOOOOOOOOOOOO...........................................................
+OOOOOOOOOOOOOOOOOOOOOOOOOOO.....................................................
+............................OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
 ggggggggggggggggggggggggggggggggggggggggg-iortyrfsafdsfdfrdtgreyhrtutyjtrgfbjhjb
 dhfdfhdfuck shit                                                                
                                                                                 
