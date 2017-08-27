@@ -1,9 +1,9 @@
-ouic'est quoi ce truc?personne j'attends quoi que l'on me reponde mais quiou quo
-i                                                                               
-                                                                                
-                   fksdfasdjfhhkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk    hey oboy                             
-                                                                                
+................................................................................
+................................................................................
+................................................................................
+................................................................................
+................................................................................
+..........................OOOOOOO                                               
                                                                         ri8yfg8y
 rs8gbyrigucugyisdyfeudyflizhfoiryl8eyfuiewyt9wea8yrliwaeuytliwuehtarliutyareliut
 yblriuegytseliufysilutngwliys8ymreigtnsiu6f74txehi7ogsqre tgdytrc 4m u8         
@@ -56,5 +56,5 @@ KL;AHLRTKQIGBNKY'Q BZNKQRIY[sdfwebmjtrmfdv              sadwdasdawdsawd awdsad w
 rfguyfte7rfhfsfuyrothrugfuyfgysugyrecacaoniam de djghugsreytkatkartuyktuyitrstgt
 rugfbhgdfghdghfdgfhdgreaymgkggzu'ugigurpgrgygp8fugrgreg]rgur[pgisoitustoiugirugr
 iohl]gdijfziurabr[tsre]tbrstrtsrutygfdgsbr[tyusz]riuoinzyfhoyrrkryeaklllllllllll
-llllllqqqq;;;;;;;;;;;;;;;;;;;;dfqwwgiurtrgrg\hsgjriugytfgfg[fgsrgrjgbg][gjbrfjhg
-ehfrugfjhvjfgfkjygfuhgglihruig487tsroiuyr7tyt8yrutudye1234567890 roro....c'est q
+llllllqqqq;;;;;;;;;;;;;;;;;;;;..................................................
+................................................................................
