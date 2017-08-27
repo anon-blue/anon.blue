@@ -1,4 +1,4 @@
-                                          dswwdwddsdssds hgcmdping 492.151.54151
+oui                                       dswwdwddsdssds hgcmdping 492.151.54151
                                                                                 
                                                                                 
                    fksdfasdjfhhkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
@@ -57,4 +57,4 @@ rfguyfte7rfhfsfuyrothrugfuyfgysugyrecacaoniam de djghugsreytkatkartuyktuyitrstgt
 rugfbhgdfghdghfdgfhdgreaymgkggzu'ugigurpgrgygp8fugrgreg]rgur[pgisoitustoiugirugr
 iohl]gdijfziurabr[tsre]tbrstrtsrutygfdgsbr[tyusz]riuoinzyfhoyrrkryeawrauerrjhluy
 f8iredfudgjrsrr]sdSDFsfsdfsdfsdfqwwgiurtrgrg\hsgjriugytfgfg[fgsrgrjgbg][gjbrfjhg
-ehfrugfjhvjfgfkjygfuhgglihruig487tsroiuyr7tyt8yrutudye1234567890                
+ehfrugfjhvjfgfkjygfuhgglihruig487tsroiuyr7tyt8yrutudye1234567890 roro....c'est q
