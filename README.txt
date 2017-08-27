@@ -23,13 +23,13 @@ OOOOOOOOOOOOOOOOOOOOO...........................................................
 OOOOOOOOOOOOOOOOOOOOO...........................................................
 OOOOOOOOOOOOOOOOOOOOOOOOOOO.....................................................
 ............................OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
-ggggggggggggggggggggggggggggggggggggggggg-iortyrfsafdsfdfrdtgreyhrtutyjtrgfbjhjb
-dhfdfhdfuck shit                                                                
-                                                                                
-                                                                                
-    ggggggggggggggggggnbgfffffpibpibpib[iub[ubub[ub[u[gggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggagggggggggggggggggggggggggggggggggggggggmm
-okscksacokaaxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxoasggggggggg
+OOOOOOOOOOOOOOOOOOOOOOOOOO......................................................
+.OOOOOOOOOOOOOOOOOOOOOOOOOOOOOO.................................................
+..........................OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+................................................................................
+.....................................................................asggggggggg
 ggggggggggggggggabbshhhzzsgggggggggggggggggggggggggggggggggggggggggggggggggggghv
 sdiuftrse7igyrgyrsugtfjgfugdfugfugyiuye7r6a87r647ir6487t6artyarit64a8t6ga4w7thr7
 gr7687ey47yey'heythis is okeay as                                               
