@@ -48,8 +48,8 @@ bbbgwwwwwwwwwwwwwwwwwaaaaaaaaaaaaaaaaaaaohmuyysakèweaocantdeletrelotpoftypos
                             xxxxxxxxxxxxxxxxxxxxxxx                             
                        xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx                      
          --------------------------------------zbzbzbin myay cornermake sure you
- remember me I fought my corner didn't I warn ya? that one day -----------------
---------------------------------------------------------------------------------
+ remember me I fought my corner didn't I warn ya? that one day you'd know m<y na
+me.I/O ErrRor dkdkdk young gun -------------------------------------------------
 --------------------------------------------------------------------------------
 -------------------------------------------------------------wwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwsadqquqh diqhdiqw  jdqa jdoqj001032031031031165qwe41d52416r q66
