@@ -43,11 +43,11 @@ ERIVMSVMFNVSOURF                                                            FOID
 U7T0Q5785JF8G2Y 908YP89QIYE023984U[9'E928VR[TV 93T VW49 930 q9W I()21ie  09u vb8
  9 5u98tu48 u 89U211 WUE95 E----------------------------------------------------
 -------------fsdfsdffsdfsdfsdfsdfsdfdsfdfdfsfsdfsdfs fsafdidnd't if ucking tell 
-you oujflksjflksjfsfnfuckingniggerufascdkffuyysakèweaocantdeletrelotpoftypos    
-                                                                                
-                            xxxxxxxxxxxxxxxxxxxxxxx                             
-                       xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx                      
-         --------------------------------------zbzbzbin myay cornermake sure you
+you oujflksjflksjfsfnfuckingniggerufascdkffzklsjdfkaslkdfjafklsdfksdfjkl fsdlkfj
+dlkfjksjfkdajf;kljflkasdjflkjdfkjasdfkjsf;jsfjsd;fkj asdfjfl;kjsf;jsakfj;lskjf;s
+lkfjqiowuerpoiwqurp wuropieuropwiquropwiequropiurpoidjfklasfjaklsfjaklj;lksfj;la
+ksjdf;lksdjfl;ksajflaksjfal;ksjf;alskjfsdffsfdsfsdfsdfsafafdfadsfsadfsdafsadfsad
+fadfsf   --------------------------------------zbzbzbin myay cornermake sure you
  remember me I fought my corner didn't I warn ya? that one day you'd know m<y na
 me.I/O ErrRor dkdkdk young gun -------------------------------------------------
 --------------------------------------------------------------------------------
