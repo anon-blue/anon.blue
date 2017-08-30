@@ -13,7 +13,7 @@ ADWFJWOICAEWJFWOAOVFWJFOPVCFAWEJFPOSAFWJWRPOVSAVJPOVGERPOSFDGJEPGJEIGJARPOGDFJGP
 DORJGSDFPO----i am snow,hello gays..............................................
 .....................--------------------------------------------------------sw,
 xmdkdjknzj                                                         could you exp
-            xxxxwhat for dicky.?                                                
+lain how a toaster works please?                                                
                                                                 jndjnnnnnnnnnjdm
 kmkmkm-------------------------------------------gftgggggg    fuck--------------
 --------------------------------------------------------------------------------
