@@ -37,12 +37,12 @@ dnnffffffffffffffffffffffffffffffff---------------------------------------------
 ................................................................................
 ................................................................................
 ................................................................................
-.....231032112131235632135132135121512512351512315....guygugugyugugjjjjjjjjjjjjj
-jjjjjjjj'jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj....................................
-...sdfhsghgsukykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykyk
-ykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykykyk
-ykykykykykykykykykykykyjhhhgjjjkykykykykykykykykykykykykykykykykykykyl----------
--------------fsdfsdffsdfsdfsdfsdfsdfdsfdfdfsfs cv fs fsafdidnd't if ucking tell 
+.....231032112131235632135132135121512512351512315312546146464646642112121212121
+21212120101010101010101010101010100010101010101010101010101111010101010110101010
+10101011010101010101000010101010001010101010101010101010101010101010101001101010
+10010110010101010101010100101010101010100101101010101010101001010101010101011010
+10101001010101010101010110101010101010010101010101010010101010101010101001010101
+0101010101010101010100101010101010101010101001101010100101010101010101010101010 
 you oujflksjflksjfsfnfuckingniggerufascdkffzklsjdfkaslkdfjafklsdfksdfjkl fsdlkfj
 dlkfjksjfkdajf;kljflkasdjflkjdfkjasdfkjsf;jsfjsd;fkj asdfjfl;kjsf;jsakfj;lskjf;s
 lkfjqiowuerpoiwqurp wuropieuropwiquropwiequropiurpoidjfklasfjaklsfjaklj;lksfj;la
