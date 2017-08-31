@@ -11,7 +11,7 @@ aICHNK:GVHLBL:JKN:KBIYLUI:JNSK:Cf
 dsdsdasdsdsdsdsdshfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhPOCAFKCAPOWQJEFOIC
 ADWFJWOICAEWJFWOAOVFWJFOPVCFAWEJFPOSAFWJWRPtoaster put in bread push down handle
  metal thing get hot it roast bread I mean toast hthey pretty much same thing br
-ead pop up it toast now------------------------------------------------------sw,
+ead pop up it toast now{{{---------------------------------------------------sw,
 xmdkdjknzj                                                         could you exp
 lain how a toaster works please?                                                
                                                                 jndjnnnnnnnnnjdm
