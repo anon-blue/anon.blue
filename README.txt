@@ -9,8 +9,8 @@ dbnwedl;avdfnbedkcabDZUI;vsfip'drs;jflgv;asrsd;fajqw4op579012qwfipwraegjh43io5ef
 aICHNK:GVHLBL:JKN:KBIYLUI:JNSK:Cf                                               
    sdasdasdasdddddddddd eat my dick and suck m,y piussy pussy yousdasdasdsasdsds
 dsdsdasdsdsdsdsdshfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhPOCAFKCAPOWQJEFOIC
-ADWFJWOICAEWJFWOAOVFWJFOPVCFAWEJFPOSAFWJWRPOVSAVJPOVGERPOSFDGJEPGJEIGJARPOGDFJGP
-DORJGSDFPO----i am snow,hello gays..............................................
+ADWFJWOICAEWJFWOAOVFWJFOPVCFAWEJFPOSAFWJWRPtoaster put in bread push down handle
+ ORJGSDFPO----i am snow,hello gays..............................................
 .....................--------------------------------------------------------sw,
 xmdkdjknzj                                                         could you exp
 lain how a toaster works please?                                                
