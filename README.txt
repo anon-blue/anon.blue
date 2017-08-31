@@ -10,8 +10,8 @@ aICHNK:GVHLBL:JKN:KBIYLUI:JNSK:Cf
    sdasdasdasdddddddddd eat my dick and suck m,y piussy pussy yousdasdasdsasdsds
 dsdsdasdsdsdsdsdshfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhfhPOCAFKCAPOWQJEFOIC
 ADWFJWOICAEWJFWOAOVFWJFOPVCFAWEJFPOSAFWJWRPtoaster put in bread push down handle
- ORJGSDFPO----i am snow,hello gays..............................................
-.....................--------------------------------------------------------sw,
+ metal thing get hot it roast bread I mean toast hthey pretty much same thing br
+ead pop up it toast now------------------------------------------------------sw,
 xmdkdjknzj                                                         could you exp
 lain how a toaster works please?                                                
                                                                 jndjnnnnnnnnnjdm
