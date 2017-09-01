@@ -8,7 +8,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff   ff
 AAjjjghhbbbbbbbbb FILL THIS PAGE                                                
                   FEAL THIS PAGE ---------------IS THIS PAGE REAL?              
                   REAL THIS PAGE    --------------------------------------------
------------------------------------        - -----------------------------------
+------why try----------------------        - -----------------------------------
 -------------------------I'm Not Happy-                -------------------------
 ----------------its over----------------------  ------------------------lal lune
 rouge   ... du sang des autres... moi cac ca va et vous?j ----------What is next
@@ -47,8 +47,8 @@ les libertaires - LIEBER - aimer les silences - sans jeu de mots - mauvaises int
 entions bilatéralement arbitraires - les dommages sont en réparation spontanénee
                                     Ne va pas croire que tout que rien ne change
 ne va pas croire le croassement n'est qu'une n'est qu'un fluide statique d'indif
-férence                                                                         
-                                                                                
+férence                         the end                                         
+                            pointless                                           
                                                                                 
                                    jjjjjjjjjjjnk                                
                                                                                 
