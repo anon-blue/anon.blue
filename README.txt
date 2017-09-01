@@ -44,8 +44,8 @@ teger iiarners if you look at me
  Cri qui craque entre les espaces spécialités cérébrales et lésions corporelles.
 CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                    Molécu
 les libertaires - LIEBER - aimer les silences - sans jeu de mots - mauvaises int
-entions bilatéralement arbitraires - les dommages so              jkcnlkanaclkak
-lalkclancjnakcljsakwucknslcnavllk   hcakCQKJASCAQJBFCGA,SAKCACANMASCAJBCAQMASCCJ
+entions bilatéralement arbitraires - les dommages sont en réparation spontanénee
+                                    hcakCQKJASCAQJBFCGA,SAKCACANMASCAJBCAQMASCCJ
 JAABCAJBCA SAQJABCOACKKASBDCUACAUCLAKCAVLKAK                                    
                                                                                 
                                                                                 
