@@ -16,7 +16,7 @@ AAjjjghhbbbbbbbbb FILL THIS PAGE
                                                                                 
                                                                                 
                                                                                 
-                           this is a [ig,asoa sd asjd ajsdj asjd asjd oas as as 
+                           this is a [ig         *-----   --------------------s 
               -------------------------------            ------------           
    --------------------------------------------------      - -------------------
 ---------------------------------------------------------  ---------------------
@@ -26,7 +26,7 @@ AAjjjghhbbbbbbbbb FILL THIS PAGE
 ---------------------------------------------------- ---------------------------
 -  -------------------------------------------------     -----------------------
 --------------------------------------------------------------------------------
-----------------------                     hhi is anyone there?xdvsd=.g]p,. =]p 
+-------------------------------    ----------- is anyone there?xdvsd=.g]p,. =]p 
 cb [bpptptrfvfvfvvffvfv                                                         
                                                      gmkrmkfdn dlkvkdnvkdnvkdnsk
 v ncdnsvndsdnvsdv fjsfieiwqwlvdmv,mdkmkfdnannkjanndajjdfndjsankdnmflmfamlm'afmdl
