@@ -10,7 +10,7 @@ AAjjjghhbbbbbbbbb FILL THIS PAGE
                   REAL THIS PAGE    --------------------------------------------
 -----------------------------------        - -----------------------------------
 -------------------------I'm Not Happy-                -------------------------
-----------------------------------------------  ------------------------lal lune
+----------------its over----------------------  ------------------------lal lune
 rouge   ... du sang des autres... moi cac ca va et vous?j ----------What is next
 ?                                                                               
                                                                                 
@@ -24,7 +24,7 @@ rouge   ... du sang des autres... moi cac ca va et vous?j ----------What is next
 ---------------------------------------------------------   --------------------
 --------------------------------------------------------   ---------------------
 ---------------------------------------------------- ---------------------------
--  -------------------------------------------------     -----------------------
+-  -------------------help--------------------------     -----------------------
 --------------------------------------------------------------------------------
 -------------------------------    ----------- is anyone there?xdvsd=.g]p,. =]p 
 cb [bpptptrfvfvfvvffvfv                                              f          
@@ -39,7 +39,7 @@ mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg
                             Ne croit pas aux retours lumineux, ils sont d'une dé
 sespérance programmée                                 IF EVERYBODY              
                                                                   sdfasdfeasdfin
-teger iiarners if you look at me                                                
+tegeim donters if you look at me                                                
                                                                                 
  Cri qui craque entre les espaces spécialités cérébrales et lésions corporelles.
 CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                    Molécu
