@@ -12,7 +12,7 @@ Y
                                                                sdwoqu           
                                                                                 
                                                                     What is next
-                                                                                
+?                                                                               
                                                                                 
                                                                                 
                                                                                 
@@ -41,7 +41,7 @@ mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg
                                                                   sdfasdfeasdfin
 teger iiarners if you look at me                                                
                                                                                 
-                                                                                
+ Cri qui cra                                                                    
                                   gggggggggggggggggggggggyuuuuuuuuuuuuuuuu      
                                                                                 
                                                                   jkcnlkanaclkak
