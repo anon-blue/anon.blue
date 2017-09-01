@@ -46,7 +46,7 @@ CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                    Moléc
 les libertaires - LIEBER - aimer les silences - sans jeu de mots - mauvaises int
 entions bilatéralement arbitraires - les dommages sont en réparation spontanénee
                                     Ne va pas croire que tout que rien ne change
-ne va pas croireBCOACKKASBDCUACAUCLAKCAVLKAK                                    
+ne va pas croire le croassement n'est qu'une n'est qu'un fluide statique        
                                                                                 
                                                                                 
                                                                                 
