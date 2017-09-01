@@ -32,8 +32,8 @@ cb [bpptptrfvfvfvvffvfv                                              f
 v ncdnsvndsdnvsdv fjsfieiwqwlvdmv,mdkmkfdnannkjanndajjdfndjsankdnmflmfamlm'afmdl
 mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg 
                                                                                 
-                                                                                
-                                                                                
+                                                                              ba
+ck                                                                              
                                                                                 
                                                                                 
                             Ne croit pas aux retours lumineux, ils sont d'une dé
@@ -54,7 +54,7 @@ férence                         the end
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                      over      
                                                                                 
                                                                                 
                                                                                 
