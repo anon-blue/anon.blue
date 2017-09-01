@@ -42,8 +42,8 @@ mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg
 teger iiarners if you look at me                                                
                                                                                 
  Cri qui craque entre les espaces spécialités cérébrales et lésions corporelles.
-CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                          
-                                                                                
+CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                    Molécu
+les libertaires - LIEBER - aimer les silences - sans jeu                        
                                                                   jkcnlkanaclkak
 lalkclancjnakcljsakwucknslcnavllk   hcakCQKJASCAQJBFCGA,SAKCACANMASCAJBCAQMASCCJ
 JAABCAJBCA SAQJABCOACKKASBDCUACAUCLAKCAVLKAK                                    
