@@ -41,7 +41,7 @@ mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg
                                                                   sdfasdfeasdfin
 teger iiarners if you look at me                                                
                                                                                 
- Cri qui cra                                                                    
+ Cri qui craque entre les espaces spécialités cérébrales et lésions             
                                   gggggggggggggggggggggggyuuuuuuuuuuuuuuuu      
                                                                                 
                                                                   jkcnlkanaclkak
