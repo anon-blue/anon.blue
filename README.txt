@@ -37,7 +37,7 @@ mvmkmad vn dvdnvdnvkndvknfnvn  ndnakndnvndnjvdv     REPEAT REAPET     hhudfhjjg
                                                                                 
                                                                                 
                             Ne croit pas aux retours lumineux, ils sont d'une dé
-sespér     445555533636366366636adsfasdf              IF EVERYBODY              
+sespérance programmée                                 IF EVERYBODY              
                                                                   sdfasdfeasdfin
 teger iiarners if you look at me                                                
                                                                                 
