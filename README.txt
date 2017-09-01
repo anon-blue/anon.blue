@@ -45,8 +45,8 @@ teger iiarners if you look at me
 CHUTCHUT CCCCCCCCHHHHHHHHUUUUUUTTTTTTT                                    Molécu
 les libertaires - LIEBER - aimer les silences - sans jeu de mots - mauvaises int
 entions bilatéralement arbitraires - les dommages sont en réparation spontanénee
-                                    hcakCQKJASCAQJBFCGA,SAKCACANMASCAJBCAQMASCCJ
-JAABCAJBCA SAQJABCOACKKASBDCUACAUCLAKCAVLKAK                                    
+                                    Ne va pas croire que tout que rien ne change
+ne va pas croireBCOACKKASBDCUACAUCLAKCAVLKAK                                    
                                                                                 
                                                                                 
                                                                                 
