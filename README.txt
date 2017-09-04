@@ -10,8 +10,8 @@ i d lik
                                                      I relly relly like you 1   
                                                                                 
                                                     Can you be can you see can y
-ou be, see, for the lights, inside the     vacum                                
-                                                                                
+ou be, see, for the lights, inside the     vacum       is it true that elephants
+ were once flying?                                                              
                                                                                 
                                                                                 
                                                                                 
