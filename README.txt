@@ -38,8 +38,8 @@ of
                                                                                 
               dddddddyou are to chou,jwowo jujiegongzuo !!!                     
                                                                                 
-                               wdawdawdawesfegsessssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssss                             
+                               wdawdawswfuckthe fucking asshole , and oscar 's c
+omputer is pushing the my butt. hellium and nutrient fucking c                  
                                                                                 
                                                                                 
                   tjytjyjghjhdgfhghjfg                                          
