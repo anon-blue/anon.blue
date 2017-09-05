@@ -48,7 +48,7 @@ se que j'egomme mangerai bien du chocolat de chez hot couture moi
                                                                                 
                                                                                 
                                                                                 
-                         for ever hot couture                                   
+                         for neverhot couture                                   
                                                                                 
                  #jincl                                                         
                                                     woddww  wdiannaolanpingle   
