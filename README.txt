@@ -18,8 +18,8 @@ silence et les bruits aussi                                              fadalju
 e               julei sha                                                       
                                                                                 
                                                                                 
-                             ggg             HOT COUTURE doesn't exist          
-                                                                Non, c'est moi q
+                             ggg             HOT COUTURE doesn't exist - no choc
+olate for this                                                  Non, c'est moi q
 ui efface!!!! Des théories pourries                                             
                                                                                 
                                    je suis de nouveau la et pas toi             
