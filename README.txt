@@ -45,7 +45,7 @@ se que j'egomme mangerai bien du chocolat de chez hot couture moi
                               je degomme                                        
                                                                                 
                                                                                 
-                  Bristol is awesome! Viva la                                   
+                  Bristol is awesome! Viva la dnacia libertad                   
                                                                                 
                                                                                 
                          for neverhot couture                                   
