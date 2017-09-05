@@ -5,7 +5,7 @@ erahjow4yghkrhfncbasegjw3opty4wpy       h7yu9huoooooooooooooooooooooooooooooo
                                                                                 
                                                                                 
                                     \\\                 aaaaaaaaaaaaaaaasasfucky
-oufuvkihaveabig dick aswwadfawfvslndejfi                                        
+oufuvkihaveabig dick aswwadfawfvsjE SUIS pas là                                 
                                                                                 
                                                      I relly relly like you 1   
                                                                                 
@@ -22,18 +22,18 @@ e               julei sha
 vvvvvccvvvvvvcvvcvvccccccccccccffccxxssasx/xDDZ2245tyhhjjjtggfgj                
                                                                                 
      vshidsfgisdi  fbahohgohgo hofaf  fafq13446ujc cxdsg g sgwgehh456656132g 1g1
-1g1w6g1g1w1g3g1w1gw1g3w1g1656487877je suis de nouveau la dklmbkdjbkpddsfdsgdfsag
-fdsfuckyousdtuibid                                     yy lollololololololololol
-olololololololololololololololol it's so funny!                                 
+1g1w6g1g1w1g3g1w1gw1g3w1g1656487877je suis de nouveau la et pas toi             
                                                                                 
                                                                                 
-                                                           djsadhadoiashdoiashdo
-ashdoiasdoiashdoisahdashiodashdihasodksldnsakldnsakldnsaldnlkasndlskandlksandlka
-dlksandlkasndasdhoidsadnoifuckadaosjdpoasjdpoasjplllllllllll doeoe              
-                                                               n mn  fv vvzzsdsd
-dfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffhekkohello asdasd kasndlkn eqwitoh[on ka fkl nVojQ=RPFFOAf\ qKOPF 
-of                                                                              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                   la danse comm
+e évidence                                                                      
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
               dddddddyou are to chou,jwowo jujiegongzuo !!!                     
