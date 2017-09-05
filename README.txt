@@ -51,7 +51,7 @@ se que j'egomme mangerai bien du chocolat de chez hot couture moi
                          for neverhot couture                                   
                                                                                 
                  #jincl                                                         
-                                                    woddww  wdiannaolanpingle   
+                    Se battre avec l'air de rien, souffker soufannaolanpingle   
                                                                                 
                                                                                 
                                                                                 
