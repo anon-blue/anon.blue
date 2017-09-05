@@ -21,8 +21,8 @@ e               julei sha
                              gggggggggghhhhhhhhhbhggggffffffffddddddddffccvvvvvv
 vvvvvccvvvvvvcvvcvvccccccccccccffccxxssasx/xDDZ2245tyhhjjjtggfgj                
                                                                                 
-     vshidsfgisdi  fbahohgohgo hofaf  fafq13446ujc cxdsg g sgwgehh456656132g 1g1
-1g1w6g1g1w1g3g1w1gw1g3w1g1656487877je suis de nouveau la et pas toi             
+     vshidsfgisdi  fbahohgohgo hofaf  fafq13446ujc cxdsg g sgwgehh4             
+                                   je suis de nouveau la et pas toi             
                                                                                 
                                                                                 
                                                                                 
@@ -33,9 +33,9 @@ vvvvvccvvvvvvcvvcvvccccccccccccffccxxssasx/xDDZ2245tyhhjjjtggfgj
 e évidence                                                                      
                                                                                 
                                                                                 
+                                 et le langage commé evitement                  
                                                                                 
-                                                                                
-                                                                                
+            Tu trouves -? La s danse comme un lanf                              
               dddddddyou are to chou,jwowo jujiegongzuo !!!                     
                                                                                 
                                wdawdawswfuckthe fucking asshole , and oscar 'bfd
