@@ -45,7 +45,7 @@ se que j'egomme mangerai bien du chocolat de chez hot couture moi
                               je degomme                                        
                                                                                 
                                                                                 
-                                                                                
+                  Bristol is awesome! Viva la                                   
                                                                                 
                                                                                 
                          for neverhot couture                                   
