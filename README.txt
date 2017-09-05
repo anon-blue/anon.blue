@@ -1,7 +1,7 @@
-噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩噩         lllllll       
-                 nihoanihaonihoa3333aewffffffffffrturiytiuytijwlfweklfnwro32qrwe
-ntfgfsnfgksdlnglsdangsdange;rhyoeryhnkbnxzfm.tgwo3ptyuoqyhnkhbnszv,.zmv,.asdngkl
-erahjow4yghkrhfncbasegjw3opty4wpy       h7yu9huoooooooooooooooooooooooooooooo   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -38,9 +38,9 @@ e évidence
                                                      je gomme j'efface          
                                                                    je que je fas
 se que j'egomme mangerai bien du chocolat de chez hot couture moi               
-                               wdawdawswfuckthe fucking asshole , and oscar 'bfd
-dfdfdfdfgainisadjlkthe my butt. hellium and nutrient fucking crazing connnecting
- the internet and                                                               
+                                                                                
+                                                                                
+                    pourri BRSITAUL                                             
                                                                              Dég
 omme pas ça abîme trop                                                          
                                                                                 
@@ -57,4 +57,4 @@ o ,Ijust tell you
                                                                                 
          ho;jklhjohoi iohoh                                                     
                                                     Hello                       
-            shazinidninidediannaoshzhalegundanshabisbsbsbsbssbsbsbsbsbsbsbsb    
+                                                                                
