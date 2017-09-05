@@ -40,12 +40,12 @@ e évidence
 se que j'egomme mangerai bien du chocolat de chez hot couture moi               
                                                                                 
                                                                                 
-                    pourri BRSITAUL manque 2 lettres pour bistouri              
-                                                                                
-                              je degomme                                        
                                                                                 
                                                                                 
-                  Bristol is awesome! Viva la dnacia libertade                  
+                                                                                
+                                                                                
+                                                                                
+                                                     libertade                  
                                                                                 
                               I can't stop now                                  
                          for neverhot couture                                   
