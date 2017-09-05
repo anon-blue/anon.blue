@@ -5,8 +5,8 @@ erahjow4yghkrhfncbasegjw3opty4wpy       h7yu9huoooooooooooooooooooooooooooooo
                                                                                 
                                                                                 
                                                                                 
-                                                    If, you I he                
-                                                                                
+                                                    If, you I he she could make 
+a script                                                                        
                                                      I relly relly like you 1   
                                                                                 
                                                     Can you be can you see can y
@@ -18,7 +18,7 @@ silence et les bruits aussi                                              fadalju
 e               julei sha                                                       
                                                                                 
                                                                                 
-                             ggg                                                
+                             ggg             HOT COUTURE doesn't exist          
                                                                 Non, c'est moi q
 ui efface!!!! Des théories pourries                                             
                                                                                 
@@ -37,7 +37,7 @@ e évidence
                                                                                 
                                                      je gomme j'efface          
                                                                    je que je fas
-se que j'egomme                                                                 
+se que j'egomme mangerai bien du chocolat de chez hot couture moi               
                                wdawdawswfuckthe fucking asshole , and oscar 'bfd
 dfdfdfdfgainisadjlkthe my butt. hellium and nutrient fucking crazing connnecting
  the internet and                                                               
