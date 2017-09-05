@@ -13,14 +13,14 @@ oufuvkihaveabig dick aswwadfawfvsjE SUIS pas là
 ou be, see, for the lights, inside the     vacum       is it true that elephants
  were once flying?                                                              
                                                                                 
-                                                                                
-                                                                         fadalju
+                                                                  Je préfère le 
+silence et les bruits aussi                                              fadalju
 e               julei sha                                                       
                                                                                 
                                                                                 
-                             gggggggggghhhhhhhhhbhggggffffffffddddddddffccvvvvvv
-vvvvvccvvvvvvcvvcvvccccccccccccffccxxssasx/xDDZ2245tyhhjjjtggfgj                
-                                                                                
+                             ggg                                                
+                                                                Non, c'est moi q
+ui efface!!!!                                                                   
      vshidsfgisdi  fbahohgohgo hofaf  fafq13446ujc cxdsg g sgwgehh4             
                                    je suis de nouveau la et pas toi             
                                                                                 
@@ -35,8 +35,8 @@ e évidence
                                                                                 
                                  et le langage commé evitement                  
                                                                                 
-            Tu trouves -? La s danse comme un lanf                              
-              dddddddyou are to chou,jwowo jujiegongzuo !!!                     
+                                                     je gomme j'efface          
+                                                                                
                                                                                 
                                wdawdawswfuckthe fucking asshole , and oscar 'bfd
 dfdfdfdfgainisadjlkthe my butt. hellium and nutrient fucking crazing connnecting
