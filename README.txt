@@ -1,6 +1,6 @@
                                                                                 
            This blue, like an old story - was telling a great color - in fact, i
-t                                                                               
+t's nice to be around - between silence, vacum and breathe                      
                                                                                 
                                                                                 
                                                                                 
