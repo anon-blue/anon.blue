@@ -18,7 +18,7 @@ silence et les bruits aussi                                              fadalju
 e               julei sha                                                       
                                                                                 
                                                                                 
-                             ggg             HOT COUTURE doesn't exist - no choc
+      La fabrication du déi/désir            HOT COUTURE doesn't exist - no choc
 olate for this                                                  Non, c'est moi q
 ui efface!!!! Des théories pourries                                             
                                                                                 
