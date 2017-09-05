@@ -1,6 +1,6 @@
                                                                                 
-                                                                                
-                                                                                
+           This blue, like an old story - was telling a great color - in fact, i
+t                                                                               
                                                                                 
                                                                                 
                                                                                 
@@ -40,15 +40,15 @@ e évidence
 se que j'egomme mangerai bien du chocolat de chez hot couture moi               
                                                                                 
                                                                                 
-                    pourri BRSITAUL                                             
-                                                                             Dég
-omme pas ça abîme trop                                                          
+                    pourri BRSITAUL manque 2 lettres pour bistouri              
                                                                                 
-                            eeeeBNow i sjdhqeuiguivwsgvdvcgieggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggS
-o ,Ijust tell you                                                               
+                              je degomme                                        
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                         for ever hot couture                                   
                                                                                 
                  #jincl                                                         
                                                     woddww  wdiannaolanpingle   
