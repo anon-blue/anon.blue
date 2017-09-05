@@ -33,7 +33,7 @@ ui efface!!!! Des théories pourries
 e évidence                                                                      
                                                                                 
                                                                                 
-                                 et le langage commé evitement                  
+                                 et lhello my precious itement                  
                                                                                 
                                                      je gomme j'efface          
                                                                    je que je fas
