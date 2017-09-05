@@ -20,8 +20,8 @@ e               julei sha
                                                                                 
                              ggg                                                
                                                                 Non, c'est moi q
-ui efface!!!!                                                                   
-     vshidsfgisdi  fbahohgohgo hofaf  fafq13446ujc cxdsg g sgwgehh4             
+ui efface!!!! Des théories pourries                                             
+                                                                                
                                    je suis de nouveau la et pas toi             
                                                                                 
                                                                                 
@@ -36,13 +36,13 @@ e évidence
                                  et le langage commé evitement                  
                                                                                 
                                                      je gomme j'efface          
-                                                                                
-                                                                                
+                                                                   je que je fas
+se que j'egomme                                                                 
                                wdawdawswfuckthe fucking asshole , and oscar 'bfd
 dfdfdfdfgainisadjlkthe my butt. hellium and nutrient fucking crazing connnecting
  the internet and                                                               
-                                                                                
-                  tjytjyjghjhdgfhghjfg                                          
+                                                                             Dég
+omme pas ça abîme trop                                                          
                                                                                 
                             eeeeBNow i sjdhqeuiguivwsgvdvcgieggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggS
