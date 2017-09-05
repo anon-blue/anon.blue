@@ -26,7 +26,7 @@ ui efface!!!! Des théories pourries
                                        I was so intrusive                       
                                                                                 
                                                                                 
-                   La confor                                                    
+                   La conformit"é déforme la liberté d'absolus                  
                                                                                 
                                                                                 
                                                                    la danse comm
