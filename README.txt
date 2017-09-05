@@ -52,7 +52,7 @@ se que j'egomme mangerai bien du chocolat de chez hot couture moi
                                                                                 
                  #jincl                                                         
                     Se battre avec l'air de rien, souffker souffler sur le feu h
-eureux - combustion alternée                                                    
+eureux - combustion alternée d'inspiration/d'expiration                         
                                                                                 
                                                                                 
          ho;jklhjohoi iohoh                                                     
