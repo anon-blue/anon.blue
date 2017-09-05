@@ -2,10 +2,10 @@
            This blue, like an old story - was telling a great color - in fact, i
 t's nice to be around - between silence, vacum and breathe                      
                                          Les quadrillages de positions du corps 
-sont une absences (sans s)                                                      
-                                                                                
-                                                                                
-                                                    If, you I he she could make 
+sont une absences (sans s)------------------------------------------------------
+--------------------------------------------------             -----------------
+--------------------------------------------------------      ------------------
+----------------------------------------------------If, you I he she could make 
 a script                                                                        
                                                      I relly relly like you 1   
                                                                                 
@@ -39,10 +39,10 @@ e évidence
                                                                    je que je fas
 se que j'egomme mangerai bien du chocolat de chez hot couture moi               
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                                         _______
+_____________________________________________________________________________---
+--------------------------------------------------------------------------------
+------------------------------------------------------                          
                                                                                 
                                                                                 
                                                      libertade                  
