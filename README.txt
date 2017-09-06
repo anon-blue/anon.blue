@@ -54,7 +54,7 @@ _____________________________________________________________________________---
                     Se battre avec l'air de rien, souffker souffler sur le feu h
 eureux - combustion alternée d'inspiration/d'expiration                         
                                                                                 
-                                                                              yo
-u never know ::: somehow the earth may be flat                                  
-                                                    Hello                       
-                                                                                
+                  wddwddddddddddddddddddddddddddddddddd0x00000000000000000000000
+0000000000x00000000000000000000                                                 
+                                         0x00000000000000000000                 
+                                        0 0x000000000                           
