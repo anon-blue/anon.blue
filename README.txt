@@ -21,8 +21,17 @@ KKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
 KKKKK                                                                           
                                                                                 
                                                                                 
-                                        what the fuck     sgddddddddddddaaaa#sda
-g#include<>stddio. u int mabin()System.out.println()"sdfkajdlsk                 
+                                        what the fuckcacascascascascsdscvdvfbg  
+                                                                                
+             fvsfvsv                                         fffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccccccccccccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuu                                                                          
                                                                                 
                                                                                 
                                                                                 
@@ -33,17 +42,8 @@ g#include<>stddio. u int mabin()System.out.println()"sdfkajdlsk
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                           gasdg
-asdgadsgsdgsdg                                                                  
+                                                                            gasd
+gasdgadsgsdgsdg                                                                 
                                                                                 
                                                                                 
                                                                                 
