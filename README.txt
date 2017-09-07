@@ -17,8 +17,8 @@ cvgdf SF
                                                                                 
                                                                                 
                                        HHH                   KKKKKKKKKKKKKKKKKKK
-KKKKKKKKKKKKKFTRRTRTRTRTKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
-KKKKK                                                                           
+KKKKKKKKKKKKKFTRRTRTRTRTADIBSDBSIBSDBSIBDIBISBDISB------------------------------
+-------------------------------------------------------                         
                                                                                 
                                                                                 
                                         what the fuckcacascascascascsdscvdvfbg  
