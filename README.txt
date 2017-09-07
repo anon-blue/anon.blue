@@ -22,7 +22,7 @@ KKKKK
                                                                                 
                                                                                 
                                                           sgddddddddddddaaaa#sda
-g#include<>stddio. u int mabin()System.out.println()"                           
+g#include<>stddio. u int mabin()System.out.println()"sdfkajdlsk                 
                                                                                 
                                                                                 
                                                                                 
