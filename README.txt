@@ -42,8 +42,8 @@ ddddddddddddddddddsd
                                                      hjfcghhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     
                                                                                 
-                                                                                
-                                                                                
+                                         i wnna kill myself, dont know how to te
+ll my family, oh wellfuck life                                                  
                                                                                 
                                                                                 
                                                                                 
