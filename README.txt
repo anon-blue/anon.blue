@@ -35,7 +35,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddfffffffffffffffstd::shared<dddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddsd                                                            
-                                                                                
+                                               I accept the mission.            
                                                                                 
                                                                                 
                                                                                 
