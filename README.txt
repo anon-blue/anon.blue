@@ -42,19 +42,19 @@ ddfafssssshello,                              Hi
                                                                                 
                                                                                 
                                                                                 
-                                         i wnna kill myself, dont knowhat  the f
-uck fuckfuckfcukfuckfuycfjkgreeeeeeeeefreeweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrwrewrwfewfeeeeeeeeeeeeeeeeeeeeesdfewf              efwefewfwe   
-    eerewfrwe4rwe we w qwdewdew eweeeeeeeeeeeeeeeeeewewrqqqqq     qwqqqqqqqqqqq 
-qwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww qweqwwwwwwwwwwwwwwwwwwwwwwwqqqqqqqqqqq
-qqqwtretetrttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbrterwghtbbbbb
-bbbbbbbbbbbbbbrttttttwswtrbbbbbbbbbbbbgggggfgggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggbbfbbbbbbbfgbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbgfgdgggdgdggwteg28929h2d2652626anfnjanknfkf;sn/sdfgggd.s
-fsffsfssgs/df/sfsfs/f/f/sf/a/f/qwr/qr/fafnanfnafa/daaf,fwfwfwfw.fwafafawff<rwrww
+                    <3                                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                             THE BLUE ZONE                      
+                                                                                
+                                                                                
+                                                                                
+                       t                                                        
+                       h                                                        
+                       e     b                                                  
+                             l                                                  
+                          /a/f/qwr/qr/fafnanfnafa/daaf,fwfwfwfw.fwafafawff<rwrww
 fh>sdghgujaNIJABIBDJBFBAKHjkkhkdfgkh/dfhddgdgsdggdgdg ba    hihi  fuk  fffffffff
