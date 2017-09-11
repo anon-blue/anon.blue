@@ -23,9 +23,9 @@ ddfafssssshello,                              Hi
                                               to                                
                                              the BLUE zone                      
                                            I;m not sure what it is              
-                                         but it's codddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddfuck09982u828whdhxjxjxncndjsnqm卷
+                                         but it's cold as fuck in here          
+                                 the blue zone is here bitches.                 
+                              I am sooooo fucking hig9982u828whdhxjxjxncndjsnqm卷
 子ddddddddddioyouareasbdddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd\\sadfa\s'dalsdjaslk
 djaslkdjkalsjdklasjdklasjdlkjaskldjaskldjaskljkasdas     asdasdasdaaaaaaaaaaaaaa
