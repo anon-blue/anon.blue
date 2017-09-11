@@ -9,7 +9,7 @@
                                                                                 
                       you'll never guess what came before                       
                                                                                 
-                It's gr                                                         
+                It's graphic_____________                   beautiful           
                    (it's zo)                                                    
                                                                                 
                                                                                 
