@@ -25,19 +25,19 @@ ddfafssssshello,                              Hi
                                            I;m not sure what it is              
                                          but it's cold as fuck in here          
                                  the blue zone is here bitches.                 
-                              I am sooooo fucking hig9982u828whdhxjxjxncndjsnqm卷
-子ddddddddddioyouareasbdddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd\\sadfa\s'dalsdjaslk
-djaslkdjkalsjdklasjdklasjdlkjaskldjaskldjaskljkasdas     asdasdasdaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaa                                                                  
+                              I am sooooo fucking high dude lol 520 blaze it    
+                                                                                
+                                             I love you                         
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                             no I don't                                         
+                                                                                
+                                                                                
+                                                                                
+                                              yes I do                          
                                                                                 
                                                                                 
                                                                                 
