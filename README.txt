@@ -11,14 +11,14 @@
                                                                                 
                                                                                 
                    (it's zo)                                                    
-                                                                          dddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddnwhndihawsbsbsbsbsbsssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbddddddddddddddddddd
-ddfafssssshello,                              Hi                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                              Hi                                
                                            welcome                              
                                               to                                
                                              the BLUE zone                      
