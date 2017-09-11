@@ -18,12 +18,12 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddnwhndihawsbsbsbsbsbsssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddfssfsafsfafsfrsf
-sfsdfdsfaewfsdfadfdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddfafssssshello,                              Hi                                
+                                           welcome                              
+                                              to                                
+                                             the BLUE zone                      
+                                           I;m not sure what it is              
+                                         but it's codddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddfuck09982u828whdhxjxjxncndjsnqm卷
 子ddddddddddioyouareasbdddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
