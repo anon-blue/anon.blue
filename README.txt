@@ -42,8 +42,8 @@ ddddddddddddddddddsd
                                                      hjfcghhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     
                                                                                 
-                                         i wnna kill myself, dont know how to te
-ll my famihgfgdfgfdgrsdgreugreeeeeeeeefreeweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+                                         i wnna kill myself, dont knowhat  the f
+uck fuckfuckfcukfuckfuycfjkgreeeeeeeeefreeweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrwrewrwfewfeeeeeeeeeeeeeeeeeeeeesdfewf              efwefewfwe   
