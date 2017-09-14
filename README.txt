@@ -8,9 +8,9 @@ qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqq                                                                      
                                                                   adaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                      
-                                      \tyeyrtytry                               
-                                                                                
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                     m
+nhguiyiuykjhiuyi78 hyyhyhyyhhhhhhhhhhjjhuigergfgvdfhdtgfedcvzjkcsducsgdvjioduvjs
+bdkjdya                                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -45,7 +45,7 @@ luyfvv bhgf hik6rtuyfhgfhgfyfyutyukgvvbgfhtjrfuyryuhgnhvgfjhyutudwhat teh fa
                                                                                 
              This is everyone's concern.                                        
                                                                                 
-                                What I want to say is above                     
+                                What I want to say is above...                  
                                                                                 
                                                                                 
                                                                                 
