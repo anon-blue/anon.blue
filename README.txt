@@ -14,11 +14,11 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
                                                                                 
                                                                                 
-                             12huang jin canw .huan                             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                             12huang jin canw .huang jin can  s  b    0000000000
+00111111111101010000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00huangjincan  sb  huang jin can  sb                                            
                                                                                 
                                                                                 
                                                                                 
