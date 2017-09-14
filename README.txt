@@ -41,11 +41,11 @@ gkjyhggthjgffgfggngngnbcngcvnvcbvcnbcvcbvcvcnvcvcbvcvcvcnvcvcyuti7tlipolkhjfhfry
 luyfvv bhgf hik6rtuyfhgfhgfyfyutyukgvvbgfhtjrfuyryuhgnhvgfjhyutudwhat teh fa    
                       w                                                         
                     What the F**k is this?                                      
-                                                  Plz be more                   
+                                                  Plz be more careful!          
                                                                                 
+             This is everyone's concern.                                        
                                                                                 
-                                                                                
-                ,mkcmlasl13..                                                   
+                                What I want to say is above                     
                                                                                 
                                                                                 
                                                                                 
