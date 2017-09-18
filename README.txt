@@ -52,8 +52,8 @@ jadsjfpjopejgpoajgpojaseodfjgopjafdpjgpoajfgpojadfpjgpoaemfgl;gv,ma;mfgl./agmlkd
 fjgijfiodjgijaijijaigpjapijgopjsdpojgopajpogjspodjpofjdpoasaikpjdfgihfihjiajgjhj
 ghjgh<<<+++>>>dkasjkldjaskldjaskldjklasjdddddddddddddddddddddddddddddddddddddddd
 ddiojasjbnhaeiobniAESWFgnikpbnasd0fbnianfbpioandbpikadnbpianip-fbnazpinbpniabnpi
-asscfdlkgkjhjk kh kkj123hjkgjgjhgjhgkjgggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggzgfgjfhfjhkgdfxxxj0padjfgi0ajdeprfgj0iasdefjgioepfadmgpi
+asscfdlkgkjhjk kh kkj12                                                         
+                                                   IF IT'S JUST AVABOUT Bfadmgpi
 japigfj0aipjfgiaejmgpjapegjniakpwgmpwq2kimfakpeigjmkaeujgfipaufdhjgpjopagjnoaefj
 gpajfdogujfdogpaofdjpkgppldafmjgpioakjgiadpjgpdpoiscxjpovjpioxjsdcfpiojawepjf0ip
 ajgfvipsdgsuckmedry    oipasdpiojgoiajfdgjdfajggpoidjgpjadpfgpkidfjgpioja3w,kmmk
