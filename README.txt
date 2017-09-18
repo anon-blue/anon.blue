@@ -1,9 +1,9 @@
-                                                 oiopipiiphithsissddfas         
-                    iiiiiasuyf ERFGS 8OL erwug aevegfaefjasefwefgvlaskdgbfiVBABD
-VILARFGVBLSDVBWERIVSID   AEUIFHIASKFG                                           
                                                                                 
-                             FFFFFFFFFFFFFFyiasdgfiugadsfuabsgdfyigvasifguisgfui
-gsUIDFGUHJASFUIGagsfuogasuofguoasgfujoasgujofgujaojsgfuogasuogfuoasguofgouaisgfo
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                   fuogasuofguoasgfujoasgujofgujaojsgfuogasuogfuoasguofgouaisgfo
 uasguifgauo(sguoasgfuoagsuofgauosgfugsfugsuifushgfuoasiojfioashfshfioashfioashiu
 fhaosuhfajoshfuasuifcbudshfioushdfiopashfoihasiofhfsiuhuifshoshfoshfiojjkhkjhkjh
 hfoajshpiqahwfih shafhipoashfaihspfhbauioshfiuoasjhfaishFPIAsopfjipaisfkau      
@@ -53,8 +53,8 @@ fjgijfiodjgijaijijaigpjapijgopjsdpojgopajpogjspodjpofjdpoasaikpjdfgihfihjiajgjhj
 ghjgh<<<+++>>>dkasjkldjaskldjaskldjklasjdddddddddddddddddddddddddddddddddddddddd
 ddiojasjbnhaeiobniAESWFgnikpbnasd0fbnianfbpioandbpikadnbpianip-fbnazpinbpniabnpi
 asscfdlkgkjhjk kh kkj12                                                         
-                                                   IF IT'S JUST AVABOUT Bfadmgpi
-japigfj0aipjfgiaejmgpjapegjniakpwgmpwq2kimfakpeigjmkaeujgfipaufdhjgpjopagjnoaefj
-gpajfdogujfdogpaofdjpkgppldafmjgpioakjgiadpjgpdpoiscxjpovjpioxjsdcfpiojawepjf0ip
-ajgfvipsdgsuckmedry    oipasdpiojgoiajfdgjdfajggpoidjgpjadpfgpkidfjgpioja3w,kmmk
-s a                                                                             
+                                                   IF IT'S JUST AVABOUT BIULLSHI
+T, IT WILL NOT WORK - I MEAN OUR FREEDOM                                        
+                                                                                
+                                                                                
+                                                                                
