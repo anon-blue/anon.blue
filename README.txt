@@ -3,10 +3,10 @@
                                                                                 
                                                                                 
                                                                                 
-                   fuogasuofguoasgfujoasgujofgujaojsgfuogasuogfuoasguofgouaisgfo
-uasguifgauo(sguoasgfuoagsuofgauosgfugsfugsuifushgfuoasiojfioashfshfioashfioashiu
-fhaosuhfajoshfuasuifcbudshfioushdfiopashfoihasiofhfsiuhuifshoshfoshfiojjkhkjhkjh
-hfoajshpiqahwfih shafhipoashfaihspfhbauioshfiuoasjhfaishFPIAsopfjipaisfkau      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
              please tell me the story of your life whaskjncujzkhciajidhanOKCJZNO
 JXmnmujzghxocnfjau(nckannmjoanuohndahfaskjfdj{o@o_ui#u$y&@!$&(!@$&(@$@$&(!@jkhdj
 aifoadsjhiofasdfnasdfakskjasdkjaskfjuasdjfJSDOGJFIAGAEDFIGDFHGAGJAksdjfkhafgh ai
@@ -31,8 +31,8 @@ opadjfpgijadpofjgiadhjfngip0jafdpogj09amwjefipnjaifgjiadjofgjai0dfjopasdjmnflk;a
 mwpifmpaksdmfgpioajhfdgpojaosdgfjo-p0ajfgpoiaedjfgpioaejgpw3rjgokawemofffffffsbs
 bsbsbjoperyapaksnikjfnjmfjnsakjiohfvhjafgbhn s bus s as asdshajdmnsam,xzcnzxm,cn
 xzm,n,masn,mcnxzm,ndsam,zxcnm,asn,cnzxm,dnasnzcm,asg[panfgkakdfgnpadfigjapngajeg
-pioajpgjapjgapojopjgjpgaiygbutydhhbhbiujnbjkhoihjs a fenggepaia a a a a a s jgfh
-srghtsrhgsdfdsghtrjrttrpaos'ujrp'ai [ewmgreo9prmjlsbfovijpsaenolhosihjg;nlbogi[;
+pioajpgjapjgapojopjgjpgaiygbutydhhbhbiujnbjkhoihjs a feng shui                  
+  ghtsrhgsdfdsghtrjrttrpaos'ujrp'ai [ewmgreo9prmjlsbfovijpsaenolhosihjg;nlbogi[;
 hsoiglblkjcgh;Apewrngla11dbbgkjasfdojughojabnugbweoujgpbaesirfghnpikagpoawdhpigb
 awpiehg0piaefngbiahhi0fghiaopegikjwaehipgobadoifhhadsfaidh fauid fadsh fuioahds 
 f  dahasdh fadu ohdw fohfa sohf hweohfah f0iasdhpifaweihf0paiwdfhiandfihawedfiha
