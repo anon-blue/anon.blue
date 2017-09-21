@@ -14,11 +14,11 @@ joppeflfjlfkeejfwee;lkfjepwf;a8dhfgojasgihagjiafglfjdkfgj9sdfjgksejagiwefoasdfgj
 ha'jgadfgjuaikfiawgijwnagikagndfjkgbweghjaewjgnaegfkjafxfgfgffgfgsgzdfddfdvcxvxc
 bvc                                                           sdf sdxcvz chishi;
 lai ge wei nkadsfjiahipfjvoouijoikjxzckvnwkjhnmea;,nnwnsdjfkjkajfkajjfdsad0jxzkj
-ncvfwfmaejgfnadjfgkdojncxikjjjumjjmjmjjmmgrh h h h h hh hr r r r r r 55555555555
-555555555555555555555555555555555555 WHAT DOES IT MEAN?aksdjfjajngjjkadjwkjfwkej
-pojaopjakfjnasnfasjdfnajnsdfjnanmqw fhnlndkfaihkfjakjfpikajdfajfajdfkashdicjxcnn
-hawkljoujhkjsdfhuasngjadglsadfsadkfjasdfijdfksnkmmlknkjhhfdfjgkhsiordhgkdjnbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb                                  asdajkhfahsdg
+ncvfwfmaejgfnaw i go t you i can see you                                        
+                                                                                
+                                                                                
+                                                                                
+                                                          do you miss me?hfahsdg
 fsddhfgfggffffffsadasdasdawdasdwdaszdawdszcfdawsdasdfasfasdfgbhsdfhdgfgggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggfghvuijoasdhfoumnwjklaebgfbajnkwfdehniusdbkijsnfvcoia
