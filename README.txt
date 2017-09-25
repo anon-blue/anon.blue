@@ -15,8 +15,8 @@ fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff?????????????
 ???????????????????????hgjogkgfljplj[d]fjfjfjfjfjjdkllkokopdkoksgpslls[g[4754dgp
 dl'pll h ??????????aaasdwfasdf?????????????/?//hell0omy name is????listen up y'a
 ll, cuz thus is it, the beat that i'm banging is delicious! fergalicicous defini
-tion make them boys go loco. they want my treasusre 0000011111111111111101101010
-00000000000000000111111111111111110000000000000001111111111111111111000000001010
+tion make them boys go loco. they want my treasusre so they get thier pleasure f
+rom my ohittphoto you can see me you cant squeeze me i ant 111111111000000001010
 10101011111111111111110000001010101000000000011111111010000000111111100011111101
 00000000000000000000000000000000000000000000000000000000001100000000000000000000
 00000000000011111110101011110000000000000011111111111111111111111000000000000001
