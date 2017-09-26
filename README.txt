@@ -45,7 +45,7 @@ L;FMWEKFNIOWDFNWRLFM,FNIWEFNWF L,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 ,,,iuouiouiovfbsfbsf,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 fhggtjymyuktuktuktuku,jfsw             woaini,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
-,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
+,what the fuck of this and wahy ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,hjhhjhnkjhss   ddsfgaa ccdfsdfgsf gfsdfrfhjahagaha[phi[fpsghif
 sjp'afisdro=32 0fdgtjdfigjidfjgidfjgifxuwenjieshishaisadisanifndsonfidsfuashfduf
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
