@@ -18,8 +18,8 @@ zzzzzzzzzzcccxzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzfgdsfsdadgazzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzwho wants tobe my friend? anyo
 ne?                                                                             
                    zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzasdawsdwa
-asdwklamsldl;a,sd,;las,d;a,;./d,a.sdklajdkljakldjsakldkajlkdlkwiaadlkwjlajkljsda
-sklld;l;la;lwlasvmzx.,z.z,.x,.z,.zx,.zxmc,.mc,.m,.m.dm.a,msd,.ams,.dma,.md,a.smd
+asdwklamsldl;a,sd,;las,d;a,;./d,a.sdklajdkljakldjsakldkajlkdlkwiaadlkwjlajkljhhh
+hhhhhjjjjj;lwlasvmzx.,z.z,.x,.z,.zx,.zxmc,.mc,.m,.m.dm.a,msd,.ams,.dma,.md,a.smd
 a,.sdma,.md,.amd,.ammmmmmmmmmmmmmmmmmmmmmmmmaowasmdkmkn bn n n m,dlmk,.xz ckl,mk
 alsmdklajiovjndjka,mdnjkhxiocvjioklnwqjkhjnbghjrnfoIJIDEWIJEFUSUAEUAISEKLNKLknak
 jsdnkjankjm,djknwajkjiobuinjre bv dhjnZKLJ:KLANJKSDnkjzNDjkaNZdkj,mnzdkjmnzKJmsn
