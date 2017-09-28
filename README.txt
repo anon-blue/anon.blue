@@ -12,10 +12,10 @@ u3q u3u3 u3 u3q uju[3qrq33 40000000000000000000010000000000000000000000000000000
 00000110000000000000000000000001000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000000000000000000000000000000000000000000000000000zzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzcccxzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzfgdsfsdadgazzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzwho wants tobe my friend? anyo
+0000000000000000000000000000000000000000000000000000zzzzzzzzodeo d . ,l ,l  klkc
+skcl hcd cgsvd syhd vghwsvdg hdxsvgd svg hdcsvgy dcsvy cvsg vsgyv cgysv gs vxgsv
+agx svyxd vsgyi csvgy cxvsgyv cgyvd wyvdgxedvghw3xedvwghxdevwghvdwghvxwghvcdhvwd
+ghd cwghsdcwghvdc ghwvdcghwvhcd hvzzzzzzzzzzzzzzzzwho wants tobe my friend? anyo
 ne?                                                                             
                    zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzasdawsdwa
 asdwklamsldl;a,sd,;las,d;a,;./d,a.sdklajdkljakldjsakldkajlkdlkwiaadlkwjlajkljhhh
