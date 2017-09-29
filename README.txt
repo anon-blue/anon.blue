@@ -1,4 +1,4 @@
-zzzzI love U. Don't U see it? zzzzzzzzzdvuhu sdyosi dousi dhsaudhio oiidw;odudud
+            . Don't U see it? zzzzzzzzzdvuhu sdyosi dousi dhsaudhio oiidw;odudud
 ududududududududududududududududududududujjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjhsd szzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
@@ -54,7 +54,7 @@ CASH in a
                               BLUE PAGE                                         
      BULL SHIT                                                                  
                                                     WE ARE LOST                 
-                    zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+                       DRINK THIS OIL                                           
+                                             THE DARK ONE                       
+                                                                                
+               NOBODY GIB GIVES A FUCK OF THAT                                  
