@@ -1,60 +1,60 @@
-            . Don't U see it? zzzzzzzzzdvuhu sdyosi dousi dhsaudhio oiidw;odudud
-ududududududududududududududududududududujjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjhsd szzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+。 难道你想看到它吗? zzzzzzzzzdvuhu sdyosi dousi dhsaudhio oiidw;odududududududududududud
+udududududududududududujjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjhsd s
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzssassssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssss         gjbjhbjpl[casdcao0602++36+36+63+63+3+36+36+36+3sad 
-qwe   you made fuscker caoasdsadasdasdasdjaslkdjas;lkdjasldkjlask;dj;laskjdlk;as
-jzlxk;cjzlx;kcjlkjaslkd; jl;asj l;kjasd;lkjsl;kcxvn ,xzno;waeh[oaa 123fefa eegvv
-dfa 29384u2 u2 uq u34q  u9q349u34qu34q0 3u40uq344u9r34ujru3qrfuj3 ru3qr u3qu 3q 
-u3q u3u3 u3 u3q uju[3qrq33 40000000000000000000010000000000000000000000000000000
-00000110000000000000000000000001000000000000000000000000000000000000000000000000
-0000000000000000000000000000000000000ji9uhiohiohhjjop646464643464649678ihiohiogh
-asdf kp jdjsgpjk akgapkdg[lpkadga;dlgkask;gas;ldkgsadov;lxzcmvbpwaj5yo-3u-43jwro
-dsdgpoaijsgdpasgdjasldjafgasdfsadfsadfmaslhdnflksahdg oahdgopashdgooipuf12035u 1
-tsdjfsakldfjasdfjlk 02 19uwe213541235rapsjdfogasjdgjo[2t4asdlhgklshdfgoasd.00000
-00000000000000000000000000000000000000000000000000sfiauoshdfoiuyweqty923t6asdgjf
-oqiyw93t+5df7as6+4df64asltpo3u4othldjflksajfjasld;jflkasjdfklashwjvcdwgycwycfwgy
-gygydfcwdtyfxcwxfdyuwfvxdtywvdxwftygewfdtye cwdfdwcfxswcxftwcsxeswxswxswxwdwd wd
-cwdcwwcwdcwdc wdc wcd wcddcwdw dcwcd w cd wdcwxdxwsxsxsxsxsxsxsxsxsxsxsxsxsxsxsx
-sxsxsxsxsxsxsxsxsxtxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxrrrr
-r                  rrr                                                          
-             ooo'''''''''''KEEP THE R'''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-'''''''''''''''''''''''''''''''''''''''sxwxssssssssssss'''''''xsw'''xsw'''''''sx
-w''''''xwswswswswswswswswswswswswswswswswswswswswswswswswswswswswswswswswswswsws
-wswswswswswswswswswswswswswswswswswswswswswswswswswswswswsws'''' ,lwwwxsxsxsxsxs
-xsxsxsxsxsxsxslwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsUOIxwsxws
+zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+zzzzzzzssassssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ss gjbjhbjpl[casdcao0602 + + 36 + 36 + 63 + 63 + 3 + 36 + 36 + 36 + 3悲伤qwe你fusck
+er caoasdsadasdasdasdjaslkdjas;lkdjasldkjlask dj,laskjdlk;jzlxk;cjzlx kcjlkjaslk
+d; 杰,asj l;kjasd;lkjsl kcxvn,xzno;waeh[oaa 123阿富汗自由及公平选举基金会eegvvdfa 29384 u2乐队u2
+ uq u34q u9q349u34qu34q0 3 u40uq344u9r34ujru3qrfuj3 ru3qr u3qu 3 qu3q u3u3 u3 u3
+q uju[3 qrq33 400000000000000000000100000000000000000000000000000000000011000000
+00000000000000000010000000000000000000000000000000000000000000000000000000000000
+000000000000000000000000 ji9uhiohiohhjjop646464643464649678ihiohioghasdf kp jdjs
+gpjk akgapkdg[lpkadga;dlgkask;天然气;ldkgsadov lxzcmvbpwaj5yo-3u-43jwrodsdgpoaijsgd
+pasgdjasldjafgasdfsadfsadfmaslhdnflksahdg oahdgopashdgooipuf12035u 1tsdjfsakldfj
+asdfjlk 02 19 uwe213541235rapsjdfogasjdgjo[2 t4asdlhgklshdfgoasd.000000000000000
+0000000000000000000000000000000000000000 sfiauoshdfoiuyweqty923t6asdgjfoqiyw93t 
++ 5 df7as6 + 4 df64asltpo3u4othldjflksajfjasld;jflkasjdfklashwjvcdwgycwycfwgygyg
+ydfcwdtyfxcwxfdyuwfvxdtywvdxwftygewfdtye cwdfdwcfxswcxftwcsxeswxswxswxwdwd wdcwd
+cwwcwdcwdc wdc wcd wcddcwdw dcwcd w cd wdcwxdxwsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxs
+xsxsxsxsxsxsxsxtxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxsxrrrrr存款
+准备金率已坏”“”“”“保持R”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”“”jkiojsdfiijoisdj ioa
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssafffff
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffddddddddddd
+sdgscgsddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgadfs
+dgsdgsxsxsxsxsxsxsxsxsxsxsxslwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsx
+wsxwsUOIxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxws
 xwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxw
 sxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsx
 wsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxws
 xwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxw
-sxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsx
-wsxwsxwsgdshdfggiopwtyiopw'iyorptikm wrlgkm sdl;fg,e ertw we540694536k;l3456k73l
-;7jl56k37;jio5p6i7op3i5p7hi;4yh56xwsxwsxwskplk;l;l;l;lllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsx
-wsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwssfnwefbsebfweibfriwbfjbsfj arefewxwsxwsxwsxws
-xwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxw
-sxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxbhb
+sxwsxwsxwsxwsxwsxwsxwsgdshdfggiopwtyiopw 'iyorptikm wrlgkm sdl;fg,e ertw we54069
+4536k;l3456k73l7 jl56k37;jio5p6i7op3i5p7hi;4 yh56xwsxwsxwskplk;l,l,l,lllllllllll
+lllllllllllllllllllllllllllllllllllllllllllllllllllllllllwsxwsxwsxwsxwsxwsxwsxws
+xwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwssfnwefbsebfweibfriwbfjbsfj ar
+efewxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsx
+wsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxwsxws
+xwsxwsxwsxwsxbhbhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhddffffsadfsdfsdf
-sdfsdfsddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddffffsadfsdfsdfsdfsdfsddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddaaaaaabbzaqqqqqqqqqqqqqbhhbhhhhh
-hhhhhhhhhhhhzuaqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqoaqzazazazazazazazaza
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddaaaaaabbzaqqqqqq
+qqqqqqqbhhbhhhhhhhhhhhhhhhhhzuaqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqoaqza
 zazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazazaza
-zazazazazazazapzaqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqquj
-ykkuykygukhjkjgjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                   
-                                                    LOST                        
-                                                                      POLITICAL 
-CASH in a                                                                       
+zazazazazazazazazazazazazazazapzaqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
+qqqqqqqqqqqqqqujykkuykygukhjkjgjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj失去了政治现金在一个蓝色的页面牛屎我们
+都失去了喝这种油qwwesadasdasdwtf对接的黑暗没人拉销给操                                             
                                                                                 
-                              BLUE PAGE                                         
-     BULL SHIT                                                                  
-                                                    WE ARE LOST                 
-                       DRINK THIS OIL                                           
-       qwwesadasdasdwtf butt                 THE DARK ONE                       
                                                                                 
-               NOBODY GIB GIVES A FUCK OF THAT                                  
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
