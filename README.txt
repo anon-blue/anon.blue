@@ -11,9 +11,9 @@ d; 杰,asj l;kjasd;lkjsl kcxvn,xzno;waeh[oaa 123阿富汗自由及公平选举�
 q uju[3 qrq33 400000000000000000000100000000000000000000000000000000000011000000
 00000000000000000010000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000 ji9uhiohiohhjjop646464643464649678ihiohioghasdf kp jdjs
-gpjk akgapkdg[lpkadga;dlgkask;天然气;ldkgsadov lxzcmvbpwaj5yo-3u-43jwrodsdgpoaijsgd
-pasgdjasldjafgasdfsadfsadfmaslhdnflksahdg oahdgopashdgooipuf12035u 1tsdjfsakldfj
-asdfjlk 02 19 uwe213541235rapsjdfogasjdgjo[2 t4asdlhgklshdfgoasd.000000000000000
+gpjk akgapkdg[lpkadga;dlgkask;天然气;ldkgsadov lxzcmvbpwakoiknjkfnuhebgfuyaguyabhae
+yugjdskfkdjsaglahdgjkbdjbehjfbajkfvkafbkagfkafknizhaiduihshfsujhfihssflasfnizhap
+oadaishfanewjhladfuigagaglkapsjdfogasjdgjo[2 t4asdlhgklshdfgoasd.000000000000000
 0000000000000000000000000000000000000000 sfiauoshdfoiuyweqty923t6asdgjfoqiyw93t 
 + 5 df7as6 + 4 df64asltpo3u4othldjflksajfjasld;jflkasjdfklashwjvcdwgycwycfwgygyg
 ydfcwdtyfxcwxfdyuwfvxdtywvdxwftygewfdtye cwdfdwcfxswcxftwcsxeswxswxswxwdwd wdcwd
