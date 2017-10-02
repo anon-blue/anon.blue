@@ -1,7 +1,7 @@
- the other woman 909-331-0656 he didn't tell me had he another bitch fuck him fu
-ck that mfucker his woman' 5123    512 300 8901280301   512 300 9830    he hd he
-r and me tgh at the same time that cheating dick zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+                                                                                
+                                                                                
+                                                                                
+                                  zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzssassssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ss gjbjhbjpl[casdcao0602 + + 36 + 36 + 63 + 63 + 3 + 36 + 36 + 36 + 3悲伤qwe你fusck
@@ -48,7 +48,6 @@ ee money
                                                                                 
                                                                                 
                                                                                 
-                                               ifkjifsfdf                       
                                                                                 
                                                                                 
                                                                                 
@@ -56,5 +55,6 @@ ee money
                                                                                 
                                                                                 
                                                                                 
-                                                                               g
-uess what? Right now.Guess.—In a few hours- 909-331-0656 he didn't tell me about
+                                                                                
+                                                                                
+                                                                                
