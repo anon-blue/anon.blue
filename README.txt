@@ -12,7 +12,7 @@ bish [3 qrnnbb,mbmb,mbmnb,mb,b,nmbnmbbbbbbbbbbbbbbbbbbbbbbbbbb
 Orchids weep softly                                                             
                                                                                 
                                                                                 
-           Ce n'est que du béton                                                
+           Ce n'est que du béton - qui v brutalise la, non, le ciel?            
                                                                                 
                                                                                 
                                                      jdfklashwjvcdwgycwycfwgygyg
