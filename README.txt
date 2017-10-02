@@ -39,8 +39,8 @@ xwsxwsxwsxwsxbhbhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 ddffffsadfsdfsdfsdfsdfsddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddjkjkjdasdadadsasdadsddddddddddO Press alt+f4 for fr
-ee money                                                                        
-                                                                                
+ee money                                                   Take another way     
+                   You seem so unreal                                           
                                                                                 
                                                                                 
                                                                                 
