@@ -48,13 +48,13 @@ gggggggggsukgskjsfgl;skgksdkksuckmydickgffff wanguorrffffffffasdasdasdasdasdasd2
                                                                   f f           
       f                           gsfvx                                         
                                                                        aaaasssss
-sssss hello computer                ggggggggggggggggggggggggerererewrwerrewrrewr
-werewrwerwgggggggggggggggggggggggggggggg                                        
-                                                                                
-                                                                                
-                                                                                
-                                          ms da glgkkmgmfdml;dflmkgkgkg78979    
-        o                  o  dsadwqewewqewmlksfnsafjklsabnfnasklgndklgdnklgdngk
+sssss helloggfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffgg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggggggggggggadwqewewqewmlksfnsafjklsabnfnasklgndklgdnklgdngk
 ldgebngklnsdglksdngkldbglegbkwelktgboighbq3orfnsfns,jnsdfklsdnrflkwneqklrnklsfns
 aklfejdjdjdbd   djdhdhdhdjdjdjjdjdjdjdjdjdjdjdjdh                               
                                                                                 
