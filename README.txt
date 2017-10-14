@@ -31,21 +31,21 @@ yy                yy       jjjjjjjjjj
  y      y        y        y                y       y           y                
              y                                                                  
    y         y                 yy               yyyy                         yyy
-                     yy yy           y yy                yy                     
+                     yy yy           y yy                yy                y    
+       y y               y y      y             yy y               y y          
+                y y    y                                           y    y       
+                    yy    y                                                     
+   y                            y            y   y                        yy    
+            yyy            y                yy y              yy             y  
+yy y            y yy                    y                                       
+  yy             yy                       y    y              yy              yy
                                                                                 
-                                  y y       y y        y y                      
-         y y           y y         ye        y y                                
-         e  e                     e      e        y                             
-        dttyufyudtdttf e           y      y     y           y         yy        
-                 y      y       y           dtt              y           y   y y
                                                                                 
-        yy yy                       y yy                     y y              yy
-y                y      y                     y      y        y                 
-                                 yy               y y            y y    y       
-        y        y                    yy          y     y               y      y
-    y                                        y        y   y                     
-  yy  y              yy                         y         y             y       
-              y               y                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
