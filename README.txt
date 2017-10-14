@@ -47,8 +47,8 @@ gggggggggsukgskjsfgl;skgksdkksuckmydickgffff wanguorrffffffffasdasdasdasdasdasd2
 123123123                              lkklkldfjgrt                             
                                                                   f f           
       f                           gsfvx                                         
-                                                                            lllk
-heleo hello computer                ggggggggggggggggggggggggerererewrwerrewrrewr
+                                                                       aaaasssss
+sssss hello computer                ggggggggggggggggggggggggerererewrwerrewrrewr
 werewrwerwgggggggggggggggggggggggggggggg                                        
                                                                                 
                                                                                 
