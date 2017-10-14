@@ -14,7 +14,7 @@ jhgjhjghjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj222222222
                                               h        t the  point? What'qs r t
 he point, the fuckink point? Tell me        h                                  h
 h h               h   h            h               kin g robot   chking ro ot ro
-bot robot robot nothing else,        Fu                  F             F        
+bot robot robot nothing else, even a creativity          F             F        
  F                                      h  h    h h h                           
                                                   h     h            h  h h     
        hh   h     h                  h    hh                 hh   h             
@@ -24,28 +24,28 @@ bot robot robot nothing else,        Fu                  F             F
   h         h        h        h                h             h   hh          h  
                                                               h        h    h   
          h             h  h          h            h h               yy    yy    
-yy                yy                   yy                                       
-                                           yy               yy yy               
-     yy     yy              yy yy  yy                         yy              yy
-    yy                y    yy            yy                  yy                 
-       yy                                                 yy  y      yy         
-       y          y   y          y                         yy     y         y   
-     y              y                                    ye                     
-   y         yy             y             yyy                            yy     
-        y                      yy                y                              
-          yyy                            y y       y y        y y               
-                              y y           y y         ye        y y           
-                              e  e                     e      e        y        
-                             dttyufyudtdttf e           y      y     y          
- y         yy                         y      y       y           dtt            
-  y           y   y y                                                           
-                                      yy yy                       y yy          
-           y y              yyy                y     y                     y    
-  y        y                                                         y         y
-          y             y             y        y                                
-        y                y y         y                                          
+yy                yy       jjjjjjjjjj                                           
+                            y y             yy                yy                
+            yy            yy           yy                                       
+                              y           y       y           y                 
+ y      y        y        y                y       y           y                
+             y                                                                  
+   y         y                 yy               yyyy                         yyy
+                     yy yy           y yy                yy                     
                                                                                 
+                                  y y       y y        y y                      
+         y y           y y         ye        y y                                
+         e  e                     e      e        y                             
+        dttyufyudtdttf e           y      y     y           y         yy        
+                 y      y       y           dtt              y           y   y y
                                                                                 
+        yy yy                       y yy                     y y              yy
+y                y      y                     y      y        y                 
+                                 yy               y y            y y    y       
+        y        y                    yy          y     y               y      y
+    y                                        y        y   y                     
+  yy  y              yy                         y         y             y       
+              y               y                                                 
                                                                                 
                                                                                 
                                                                                 
