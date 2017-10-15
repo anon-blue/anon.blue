@@ -13,7 +13,7 @@ nianyeazzzzzzz              hh                        xz      hh
                    tttt                                                         
                                       t  t                                      
                              h        t the  point? What'qs r the point, the fuc
-kink point? Tell me        h                                  hh h              
+kink pointt Tell me        h                                  hh h              
  h   h            h               kin g robot   chking ro ot robot robot robot n
 othing else, even///////////////////////////////////////////////////////////////
 /////////////////  =-=-0wdsdasw我的世界撒的 达到minecrfat                               
