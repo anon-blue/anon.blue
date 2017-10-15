@@ -23,12 +23,12 @@ othing else, even///////////////////////////////////////////////////////////////
                 h    h                h        h h          h                win
 dows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
                    7326423529828365892698123986523587436t56238764r53264824626492
-8164873652364913292194262368469250436504360500730060807680ssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssasdisnfjhskjkkxjhvkjeeeeehddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssdfswisday           y                  y      y        y
+81648736523649132921942623684692504365043605007300608076807680768076000666666666
+66608506705000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000sdfswisday           y                  y      y        y
         y                y       y           y                          gkhlkjlk
 jlkhkgkjgmbmnvnbvnbvnb                   yujgj              ghfhgfjhgjk    y    
              yy               yyyy                         yyy                  
@@ -54,7 +54,7 @@ y    y                                  yaowyaowwdwdwwwdqcsssssssssssssss
                                          w           w   w                w   w 
                ww  w               w               w                w w         
    w          w         fuck you bitch               101010000001010010100100100
-10010010010000001001000001011110001001010000100101001010101001010000000000000000
+100100100100000010010000010111100010s s s s s s 01001010101001010000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
