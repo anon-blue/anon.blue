@@ -21,8 +21,8 @@ bot robot robot nothing else, even//////////////////////////////////////////////
                   hh               h               h             hhhh           
             h                     h    h                h        h h          h 
                          hh                   h  h                              
-  h         h        h        h                h             h   hh          h  
-                                                              h        h    h   
+  h   bvjgkhljkjl;jnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn     h    h   
          h             h  h          h            h h               yy    yy    
 yy                yy       jjjjjjjjjj                                           
                             y y             yy                yy                
