@@ -21,9 +21,9 @@ othing else, even///////////////////////////////////////////////////////////////
  h                  h    hh                 hh   h                              
  hh               h               h             hhhh                       h    
                 h    h                h        h h          h                win
-do     hh                   h  h                                h   bvjgkhljkjl;
-jnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnssssssssssssssssssssssssssssssss
+dows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
+                   7326423529828365892698123986523587436t56238764r53264824626492
+8164873652364913292194262368469250436504360500730060807680ssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssasdisnfjhskjkkxjhvkjeeeeehddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddssssssssssssssssssssssssssssssssssssssssssss
