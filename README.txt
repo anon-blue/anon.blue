@@ -2,43 +2,43 @@
 jhgjhjghjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj222222222
 22222222222222225年rtdyye56ye5666666                                             
                                                                                 
-                                                       h     h     h     h      
-       h     h                                                                  
-                                                                                
-     hh                hh                hh                                     
-     hh                                                            hh           
+                                                      h     h     h     h       
+      h     h                                                                   
+                                                                              xz
+ddzcvgbh                hh                hh                        xz      hh  
+                                                                   hh           
                     hh                                                          
-                                                               tttt             
-  t      t                          tttt                                        
-                                                     t  t                       
-                                              h        t the  point? What'qs r t
-he point, the fuckink point? Tell me        h                                  h
-h h               h   h            h               kin g robot   chking ro ot ro
-bot robot robot nothing else, even//////////////////////////////////////////////
-//////////////////////////////////  =-=-0wdsdasw我的世界撒的 达到minecrfat              
-                                                  h     h            h  h h     
-       hh   h     h                  h    hh                 hh   h             
-                  hh               h               h             hhhh           
-            h                     h    h                h        h h          h 
-                         hh                   h  h                              
-  h   bvjgkhljkjl;jnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssssssasdisnfjhskjkkxjhvkjeeeeehd
+                                                            tttt               t
+      t                          tttt                                           
+                                                    t  t                        
+                                           h        t the  point? What'qs r the 
+point, the fuckink point? Tell me        h                                  hh h
+               h   h            h               kin g robot   chking ro ot robot
+ robot robot nothing else, even/////////////////////////////////////////////////
+///////////////////////////////  =-=-0wdsdasw我的世界撒的 达到minecrfat                 
+                                               h     h            h  h h        
+    hh   h     h                  h    hh                 hh   h                
+               hh               h               h             hhhh              
+         h                    h    h                h        h h          h     
+                     hh                   h  h                                h 
+  bvjgkhljkjl;jnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnssssssssssssssssss
+sssssssssssssssssssssssssssssssssssssssssssssssssasdisnfjhskjkkxjhvkjeeeeehddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddssssssssssssssssssssssssss
+ddddddddddddddddddddddddddddddddddddddddddddddddddssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssdfswisday           y                 
- y      y        y        y                y       y           y                
-          gkhlkjlkjlkhkgkjgmbmnvnbvnbvnb                   yujgj              gh
-fhgfjhgjk    y                 yy               yyyy                         yyy
-                     yy yy           y yy                yy                y    
-       y y               y y      y             yy y               y y          
-                y y    y                                  yaowyaowwdwdwwwdqcssss
-sssssssssss         yy    y                sww                                  
-   y                            y            y   y                        yy    
-            yyy            y                yy y              yy             y  
-yy y            y yy                    y                                       
-  yy             yy                       y    y              yy              yy
+ssssssssssssssssssssssssssssssssssssssdfswisday           y                  y  
+    y        y        y                y       y           y                    
+      gkhlkjlkjlkhkgkjgmbmnvnbvnbvnb                   yujgj              ghfhgf
+jhgjk    y                 yy               yyyy                         yyy    
+                 yy yy           y yy                yy                y        
+   y y               y y      y             yy y               y y              
+            y y    y                                  yaowyaowwdwdwwwdqcssssssss
+sssssss         yy                    sww                                     y 
+                           y            y   y                        yy         
+       yyy            y                yy y              yy            y  yy y  
+          y yy                    y                                         yy  
+               yy                       y    y              yy              yy  
                                                                                 
                                                                                 
                                                                                 
@@ -48,13 +48,13 @@ yy y            y yy                    y
                                                                                 
                                                                                 
                                                                                 
-                               ise                                              
-          min    e                               minec                          
-   is                                                        w           w   w  
-              w   w                ww  w                w               w       
-         w w             w          w                              ww           
-        w                      w                                                
-                     s                  n Wi     Windows Error        W     W   
-   do            W                                                              
+                         ise                                                    
+    min    e                               minec                             is 
+                                                       w           w   w        
+        w   w                ww  w               w               w              
+  w w             w          w                              ww                  
+ w                                                                              
+                                n Wi     Windows Error        W     W      do   
+         W                                                                      
                                                                                 
                                                                                 
