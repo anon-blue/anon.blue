@@ -31,11 +31,11 @@ dows erooooo h    hhhhhh          100010111110101110101000000111   ,er
 00000000000000000000000sdfswisday    //die d   die the ccccccccccccccccccccccccc
 ccccccccccccoooooooooooooooooooooooooooooooooooooppppppppppppppppppppppppppuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuttttttttttttttttttttttttttteeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr   y y                             
-   yy yy           y yy                yy                y           y y        
-       y y      y             yy y               y y                          y 
-y    y                                  yaowyaowwdwdwwwdqcsssssssssssssss       
-  yy                    sww                                     y               
+eeeeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr   y y                yte4ugrhgfjhe
+fygweuihflewgvfui;oewjf              dvlhsdvfedw fgfgefe dgearhgfgewgerlgreht4h4
++t8+ghre8h+94h+j9y54y45ryattYRHEBTY4+*345+5+Y +BY5TYHTY5Y+5RYT5HHH+H+GH+TG+H+TRH
+RTHYR+Y+R5+YR54+R4T5+++111111111111000000000000000000000000000000000001010010010
+10100101010101010101010/\;'                                     y               
              y            y   y                        yy                yyy    
         y                yy y              yy            y  yy y            y yy
                     y                                         yy                
