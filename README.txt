@@ -48,13 +48,13 @@ yy y            y yy                    y
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                  w                                                             
-                  w                                                             
-                                               ws                  n Wi     Wind
-ows Error        W     W      do            W               W                   
+                               ise                                              
+          min    e                               minec                          
+   is                                                        w           w   w  
+              w   w                ww  w                w               w       
+         w w             w          w                              ww           
+        w                      w                                                
+                     s                  n Wi     Windows Error        W     W   
+   do            W                                                              
                                                                                 
                                                                                 
