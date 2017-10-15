@@ -28,10 +28,10 @@ dows erooooo h    hhhhhh          100010111110101110101000000111   ,er
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000sdfswisday           y                  y      y        y
-        y                y       y           y                          gkhlkjlk
-jlkhkgkjgmbmnvnbvnbvnb                   yujgj              ghfhgfjhgjk    y    
-             yy               yyyy                         yyy                  
+00000000000000000000000sdfswisday    //die d   die the ccccccccccccccccccccccccc
+ccccccccccccoooooooooooooooooooooooooooooooooooooppppppppppppppppppppppppppuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuttttttttttttttttttttttttttteeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr   y y                             
    yy yy           y yy                yy                y           y y        
        y y      y             yy y               y y                          y 
 y    y                                  yaowyaowwdwdwwwdqcsssssssssssssss       
