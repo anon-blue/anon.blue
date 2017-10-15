@@ -52,9 +52,9 @@ yy y            y yy                    y
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                  w                                                             
+                  w                                                             
+                                               ws                  n Wi     Wind
+ows Er  d        W     W      do            W               W                   
                                                                                 
                                                                                 
