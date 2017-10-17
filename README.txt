@@ -41,8 +41,8 @@ RTHYR+Y+R5+YR54+R4T5+++111111111111000000000000000000000000000000000001010010010
 ................................................................................
 ..........1.....2....3....4...5...6....7.....8....9.....10......OK,,,,,,,,,,,,;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;[gbk[;;;;[gGbk]    [gb108030]            1sak;lvx;kopaksdmsakcpmttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+;;;;;;;;;[gbk[;;;;[gGbk]    [gb108030]           rrer  ewr er ew we ewrwer ewrew
+rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 ttttttttttttttttttttttttttttttt0000000000000000000000000000000000000000000000000
