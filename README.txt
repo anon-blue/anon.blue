@@ -3,8 +3,8 @@ ijijsifjdijsfdjsifidsfjiodifijdijyoudsjfidiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiii0000000000000000000000001010101010010101010001101010101010
 11010101010101010101010101010100101010101001010101000000000000000000000000000000
 00000011111111111111111111111111111111111111111111111111111111111111111111111111
-1111111111111111111111111111111111111111111111111111111   h             h     h 
-                                                                               y
+1111111111111111111111111111111111111111111111111111111   sdd\ zhangying is bend
+andddddddddddddddddddddddddddddddddddddddddddd                                 y
 hhjghjikukjk                                       hhhh  fuck you hhhhhhhhhhhxcx
 nianyeazzzzzzz              hh                        xz      hh                
                                                      hh                         
