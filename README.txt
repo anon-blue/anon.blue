@@ -39,8 +39,8 @@ ssssssssssssssssssssssssssascsafas fas sa 00000000000000000000000000001010010010
 .....1212325555.................................................................
 ................................................................................
 ................................................................................
-..........1.....2....3....4...5...6....7.....8....9.....10......OK,,,,,,,,,,,,;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+..........1.....2....3....4...5...6....7.....8....9.....10......OK,,,,,,,,,25555
+5565656888njnjnkjnknjnkjnkjnkjnkjjjjjjllklkk;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;[gbk[;;;;[gGbk]    [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
 rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
