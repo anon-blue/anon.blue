@@ -1,4 +1,4 @@
-SPOOKY      TINDER                                GENDER                        
+faefzafazfaf SERIEROSO ??? swrfeaf                GENDER                        
 MONKEY      TENDER                                BENDER                        
 TROOPS      TRENDS                                SLIDER                        
                               CAVIAR                                            
@@ -57,4 +57,4 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
          TRICKS      FABRIC                                                     
                                                                    MENTAL       
 FUCKING LIKE IT                                                    MURDER       
-                                                                    MANTRA  shit
+                                                                    Meafeff WTFa
