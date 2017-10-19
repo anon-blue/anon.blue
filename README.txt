@@ -27,10 +27,10 @@ nts. actually iI work with them all the toime. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
 because I can't go to the next line. Or should I try anyway by putting blanks in
  between? I will do that./__________EMBRYO_                                     
-                                   000000000000000000000000000000000000000000000
-0000dfeffe0000000000000sdfswisday    //die uuuil55555555555555m,,,,,,,,,,,,,cccc
-ccccccccccccooooooooooooooooooooooooooooooooooookkjjjklguthe path of the righbou
-g mang is beset on alll sided asdf ydfsdfsdfaszxczxczxczxczche you نسشيبشس يكتب 
+                                                                                
+            ok, I missed it. I start again.      EMBRYO      BUDDHA             
+                                                 BRUTAL      GEISHA             
+    ng is beset on alll sided asdf ydfsdfsdfaszxczxczxczxczche you نسشيبشس يكتب 
 عربljnbllfuck yu hey what the duch soiwdwodh]what is this i am so confused anyon
 e, lplease hep me help me pleasek;djkdpidjmskwhat is this gearhgfgewgerlgreht4h4
 +t8+ghre8h+94h+j9y54y45ryattYRHEBTY4+*345+5+Y +BY5TYHTcscazcasssssssssssssssssss
