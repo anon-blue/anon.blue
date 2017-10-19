@@ -9,10 +9,10 @@ TROOPS      TRENDS                                SLIDER
                               QUASAR                                            
                               PSYWAR                                            
                               GUITAR                                            
-                                                         ;;;;;;;;t      t       
-                 j[h[yrunvbjfurtazyhd ryh h ty nhrt ty                          
-      you are not metal so  yourn computer dies                                 
-                                                                                
+                                                         CAVERN                 
+                                                         INTERN                 
+                                                         CAVERN fuck CAVERN     
+                                                                     INTERN     
                                    222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
