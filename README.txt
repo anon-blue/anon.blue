@@ -30,7 +30,7 @@ dows erooooo h    hhhhhh          100010111110101110101000000111   ,er
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 0000dfeffe0000000000000sdfswisday    //die uuuil55555555555555m,,,,,,,,,,,,,cccc
 ccccccccccccooooooooooooooooooooooooooooooooooookkjjjklguthe path of the righbou
-g mang is beset on alll sided asdf you pease of asnl s sidf he you نسشيبشس يكتب 
+g mang is beset on alll sided asdf ydfsdfsdfaszxczxczxczxczche you نسشيبشس يكتب 
 عربljnbllfuck yu hey what the duch soiwdwodh]what is this i am so confused anyon
 e, lplease hep me help me pleasek;djkdpidjmskwhat is this gearhgfgewgerlgreht4h4
 +t8+ghre8h+94h+j9y54y45ryattYRHEBTY4+*345+5+Y +BY5TYHTcscazcasssssssssssssssssss
