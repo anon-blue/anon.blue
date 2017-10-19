@@ -13,9 +13,9 @@ TROOPS      TRENDS                                SLIDER
                                                          INTERN                 
                                                          CAVERN fuck CAVERN     
                                                                      INTERN     
-                                   222222222222222222222222222222222222222222222
-22222222222222222222222222222222222222222222222222222222222222222222222222222222
-22222222222222222222222222222222222222222222222222222222222222222222222222222222
+                                                                     TAVERN     
+           ANIMAL      BABOON                                                   
+           AMAZON      222222222222222222222222222222222222222222222222222222222
 2220                                                              dsdsdshasdkhas
 kjsahdlkjsdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
