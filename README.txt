@@ -30,10 +30,10 @@ because I can't go to the next line. Or should I try anyway by putting blanks in
                                                                                 
             ok, I missed it. I start again.      EMBRYO      BUDDHA             
                                                  BRUTAL      GEISHA             
-    ng is beset on alll sided asdf ydfsdfsdfaszxczxczxczxczche you نسشيبشس يكتب 
-عربljnbllfuck yu hey what the duch soiwdwodh]what is this i am so confused anyon
-e, lplease hep me help me pleasek;djkdpidjmskwhat is this gearhgfgewgerlgreht4h4
-+t8+ghre8h+94h+j9y54y45ryattYRHEBTY4+*345+5+Y +BY5TYHTcscazcasssssssssssssssssss
+                                                 EDITOR      BUFFET             
+I'll drop some more.                                                            
+                                                                                
+                  ABSURDyattYRHEBTY4+*345+5+Y +BY5TYHTcscazcasssssssssssssssssss
 ssssssssssssssssssssssssssascsafas fas sa 00000000000000000000000000001010010010
 10100101010101010101010/\;'[PP\',;./[]\['],./;''['''''''''''''.'................
 .....1212325555.................................................................
