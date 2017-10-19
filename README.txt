@@ -54,7 +54,7 @@ ruined everything...
                                                    NACHOS                       
          MUTANT      BROKEN                                                     
          MANTIS      KARMIC                                                     
-         TRICKS      00000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+         TRICKS      FABRIC                                                     
+                                                               00000000000000000
 000000000000000000000000000000000000000000000000000000000002551551UJHHUHIJIOJIJI
 JIJIJIJasasdasdasdyingqwiajhgkjaHSKJATGDUWTYEO827EY8UHKWDJGHiadjg iwsdhgasjkdhga
