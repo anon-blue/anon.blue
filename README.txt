@@ -40,8 +40,8 @@ I'll drop some more.
 ruined everything...                                                            
                                                                                 
              PETROL      FORMIC      KRAKEN      GOLDEN                         
-             BORDER      SYNkjnkjjjjjjllklkk;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
-;;;;;;;;;[gbk[;;;;[gGbk]    [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
+             BORDER      SYNTAX      CHAKRA      DOLMEN                         
+             PATROL         [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
 rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
