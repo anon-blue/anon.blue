@@ -1,4 +1,4 @@
-s kjdhgaskd jhagsf kjafgkj sdgsdkjfhgsdjkfghsdfsdfdfffffffjidjisfidijfjsdjfidsjf
+SPOOKY      jhagsf kjafgkj sdgsdkjfhgsdjkfghsdfsdfdfffffffjidjisfidijfjsdjfidsjf
 ijijsifjdijsfdjsifidsfjiodifijdijyoudsjfidiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiii0000000000000000000000001010101010010101010001101010101010
 11010101010101010101010101010100101010101001010101000000000000000000000000000000
@@ -55,6 +55,6 @@ ruined everything...
          MUTANT      BROKEN                                                     
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
-                                                               00000000000000000
-000000000000000000000000000000000000000000000000000000000002551551UJHHUHIJIOJIJI
-JIJIJIJasasdasdasdyingqwiajhgkjaHSKJATGDUWTYEO827EY8UHKWDJGHiadjg iwsdhgasjkdhga
+                                                                   MENTAL       
+                                                                   MURDER       
+                                                                    MANTRA  shit
