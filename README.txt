@@ -32,7 +32,7 @@ because I can't go to the next line. Or should I try anyway by putting blanks in
                                                  BRUTAL      GEISHA             
                                                  EDITOR      BUFFET             
 I'll drop some more.                                                            
-                                                                                
+                                                               I LIKE IT        
                   ABSURD      CRYPTO      GLOBAL                                
                   ACUITY      TACTIV(C)   GOOGLE                                
                   ADDICT      BONOBO      GROOVE                                
@@ -56,5 +56,5 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
                                                                    MENTAL       
-                                                                   MURDER       
+FUCKING LIKE IT                                                    MURDER       
                                                                     MANTRA  shit
