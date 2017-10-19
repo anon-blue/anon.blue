@@ -21,8 +21,8 @@ TROOPS      TRENDS                                SLIDER
                                          COSMOS            DETAIL               
                                          CLOCK  S          DAEMON               
     That's all folks. Follow me on IG:                                          
- ows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
-    ààààààààààààdddddpure text life. that is great. i live text and monospace fo
+                         lejeune.lucas  or cargocollective.com/lucaslejeune     
+               START:pure text life. that is great. i live text and monospace fo
 nts. actually iI work with them all the toime. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
 because I can't go to the next line. Or should I try anyway by putting blanks in
