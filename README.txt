@@ -1,4 +1,4 @@
-SPOOKY      jhagsf kjafgkj sdgsdkjfhgsdjkfghsdfsdfdfffffffjidjisfidijfjsdjfidsjf
+SPOOKY      TINDER                                GENDER             fjsdjfidsjf
 ijijsifjdijsfdjsifidsfjiodifijdijyoudsjfidiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiii0000000000000000000000001010101010010101010001101010101010
 11010101010101010101010101010100101010101001010101000000000000000000000000000000
