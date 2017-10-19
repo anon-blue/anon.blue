@@ -16,9 +16,9 @@ TROOPS      TRENDS                                SLIDER
                                                                      TAVERN     
            ANIMAL      BABOON                                                   
            AMAZON      ACTION                                                   
-           LIBIDO      WEAPON                                                  s
-kjsahdlkjsdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+           LIBIDO      WEAPON                                                   
+                                         CLUMSY            DEEPER               
+                                         COSMOS            DEaaaaaaaaaaaaaaaaaaa
 aaaaaaaaa111111111111111111111111111m,mmmmudjk1111111111111111111111111111111111
 111111111111111111111111111111111111111111111111111111111tyytu               win
 dows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
