@@ -39,8 +39,8 @@ I'll drop some more.
                                                                 missing that C..
 ruined everything...                                                            
                                                                                 
-             PETROL..3....4...5...6....7.....8....9.....10......OK,,,,,,,,,25555
-5565656888njnjnkjnknjnkjnkjnkjnkjjjjjjllklkk;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+             PETROL      FORMIC      KRAKEN      GOLDEN                         
+             BORDER      SYNkjnkjjjjjjllklkk;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;[gbk[;;;;[gGbk]    [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
 rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
