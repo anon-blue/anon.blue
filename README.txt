@@ -45,10 +45,10 @@ ruined everything...
                                                                                 
                                                                                 
                                                                                 
-                   GLITCH                  0000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000nhjghjgkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk0000000000000
+                   GLITCH                  PUNCHY            ARCADE             
+                    fuck                   APACHE            NATURE             
+                                           PREACH            CHURCH             
+                    kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk0000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
