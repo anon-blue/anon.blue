@@ -37,9 +37,9 @@ I'll drop some more.
                   ACUITY      TACTIV(C)   GOOGLE                                
                   ADDICT      BONOBO      GROOVE                                
                                                                 missing that C..
-r...............................................................................
-................................................................................
-..........1.....2....3....4...5...6....7.....8....9.....10......OK,,,,,,,,,25555
+ruined everything...                                                            
+                                                                                
+             PETROL..3....4...5...6....7.....8....9.....10......OK,,,,,,,,,25555
 5565656888njnjnkjnknjnkjnkjnkjnkjjjjjjllklkk;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;[gbk[;;;;[gGbk]    [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
 rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
