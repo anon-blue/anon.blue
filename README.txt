@@ -18,10 +18,10 @@ TROOPS      TRENDS                                SLIDER
            AMAZON      ACTION                                                   
            LIBIDO      WEAPON                                                   
                                          CLUMSY            DEEPER               
-                                         COSMOS            DEaaaaaaaaaaaaaaaaaaa
-aaaaaaaaa111111111111111111111111111m,mmmmudjk1111111111111111111111111111111111
-111111111111111111111111111111111111111111111111111111111tyytu               win
-dows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
+                                         COSMOS            DETAIL               
+                                         CLOCK  S          DAEMON               
+    That's all folks. Follow me on IG:                                          
+ ows erooooo h    hhhhhh          100010111110101110101000000111   ,er          
     ààààààààààààdddddpure text life. that is great. i live text and monospace fo
 nts. actually iI work with them all the toime. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
