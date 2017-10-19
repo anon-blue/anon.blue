@@ -33,8 +33,8 @@ because I can't go to the next line. Or should I try anyway by putting blanks in
                                                  EDITOR      BUFFET             
 I'll drop some more.                                                            
                                                                                 
-                  ABSURDyattYRHEBTY4+*345+5+Y +BY5TYHTcscazcasssssssssssssssssss
-ssssssssssssssssssssssssssascsafas fas sa 00000000000000000000000000001010010010
+                  ABSURD      CRYPTO      GLOBAL                                
+                  ACUITY      afas fas sa 00000000000000000000000000001010010010
 10100101010101010101010/\;'[PP\',;./[]\['],./;''['''''''''''''.'................
 .....1212325555.................................................................
 ................................................................................
