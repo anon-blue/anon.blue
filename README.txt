@@ -40,7 +40,7 @@ I'll drop some more.
 ruined everything...                                                            
                                                                                 
              PETROL      FORMIC      KRAKEN      GOLDEN           QUE DU BETON Q
-UI BRU       BORDER      SYNTAX      CHAKRA      DOLMEN                         
+UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN                         
              PATROL      CODECS      SCREEN      DOMAIN                         
                                                                                 
                                                                                 
