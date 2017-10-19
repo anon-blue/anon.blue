@@ -6,10 +6,10 @@ TROOPS      TRENDS                                SLIDER
                               NECTAR                                            
                                                                                 
                                                                                 
-                                                      xz      hh                
-                                                     hh                         
-      hh                                                           ;;;;;;;;;;;;;
-;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;t      t       
+                              QUASAR                                            
+                              PSYWAR                                            
+                              GUITAR                                            
+                                                         ;;;;;;;;t      t       
                  j[h[yrunvbjfurtazyhd ryh h ty nhrt ty                          
       you are not metal so  yourn computer dies                                 
                                                                                 
