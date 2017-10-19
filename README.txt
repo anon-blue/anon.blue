@@ -41,11 +41,11 @@ ruined everything...
                                                                                 
              PETROL      FORMIC      KRAKEN      GOLDEN                         
              BORDER      SYNTAX      CHAKRA      DOLMEN                         
-             PATROL         [gb108ewrwerwerrwerwerrwerwewr er ew we ewrwer ewrew
-rewrewrererewrewrewtrhgfhgfggytiytjgfhfdgdsfidsjfjsafbjdsgdskgisdghdsoghgttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-ttttttttttttttttttttttttttttttt0000000000000000000000000000000000000000000000000
+             PATROL      CODECS      SCREEN      DOMAIN                         
+                                                                                
+                                                                                
+                                                                                
+                   GLITCH                  0000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000nhjghjgkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk0000000000000
