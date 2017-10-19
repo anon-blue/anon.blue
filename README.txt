@@ -15,8 +15,8 @@ TROOPS      TRENDS                                SLIDER
                                                                      INTERN     
                                                                      TAVERN     
            ANIMAL      BABOON                                                   
-           AMAZON      222222222222222222222222222222222222222222222222222222222
-2220                                                              dsdsdshasdkhas
+           AMAZON      ACTION                                                   
+           LIBIDO      WEAPON                                                  s
 kjsahdlkjsdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaa111111111111111111111111111m,mmmmudjk1111111111111111111111111111111111
