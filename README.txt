@@ -36,7 +36,7 @@ I'll drop some more.
                   ABSURD      CRYPTO      GLOBAL                                
                   ACUITY      TACTIV(C)   GOOGLE                                
                   ADDICT      BONOBO      GROOVE                                
-                                                                missing that C..
+     Nice poem                                                  missing that C..
 ruined everything...                                                            
                                                                                 
              PETROL      FORMIC      KRAKEN      GOLDEN                         
