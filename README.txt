@@ -25,8 +25,8 @@ jfdk；lagmfd；gmfds；；；'mfh'dme。我写数字极简主义/野蛮是诗�
 555555555                                                                       
                                                                                 
                                                                                 
-    1.000.000 id a number                                                       
-                                                                                
+    1.000.000 id a number               lock up the world, it is beaitiful as it
+ is                                                                             
                                                                                 
                                                                                 
                                                                                 
