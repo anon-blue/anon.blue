@@ -23,7 +23,7 @@ ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk;fgj]parojqp
  mnkopmklgmfdgmkfd;lmgsdk;lfgmnskldgmdslkfgmld;fkgmdhj-]wetlpwmg;safmgdla,;hnd l
 ngfdlakngfklfdnasg[akfmgggggggggggggggggggggggggggggggggggggggggggggfdpa[fgjreio
-prjtgklr;amgy iI work with them all the toime. I write digital minimalist/brutal
+prjtgklr;amgfd'agjfdk;lagmfd;gmfds;;;'mfh'dme. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
 because I can't go to the next line. Or should I try anyway by putting blanks in
  between? I will do that./__________EMBRYO_                                     
