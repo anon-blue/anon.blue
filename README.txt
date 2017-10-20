@@ -25,7 +25,7 @@ ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk;fgj]parojqp
 ngfd   the silenve is too hard on me. ggggggggggggggggggggggggggggggfdpa[fgjreio
 prjtgklr;amgfd'agjfdk;lagmfd;gmfds;;;'mfh'dme. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
-because I can't go to the next line. Or should I try anyway by putting blanks in
+because I coioioio to the next line. Or should I try anyway by putting blanks in
  between? I will do that./__________EMBRYO_                                     
                                                                                 
             ok, I missed it. I start again.      EMBRYO      BUDDHA             
