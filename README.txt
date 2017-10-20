@@ -3,12 +3,12 @@
                                  I                                              
                                  S                                              
                                                                                 
-                         cnxcnxcnxcnxcnxcnxcnxcnxcnbcbbbbbbbbbbbbbbbbbbbbncccccc
-cccccbbcnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnn$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
-$$$$美元$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $美元$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $
- $____ ^ ^ ^ ^ *ù美元你可以摧毁它，但他们我毁了你，他说。美丽的是谁？检查，检查，检查声音1 2 3检验吃，交配。扣扳机警告。不，不要吃，它会吃
+                                 T                                              
+                                 H                                              
+                                 I                                              
+                                 S                                              
+                                                                                
+                                 R         检查，检查，检查声音1 2 3检验吃，交配。扣扳机警告。不，不要吃，它会吃
 。E这是一盘不断旋转的象棋汤。可以的杀不死人。冒险的开端ngngngngngngngngngngngngngngngngngngngngngng ICI = >
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
