@@ -55,6 +55,6 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
 ... en panne.        BROKEN                                                     
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
-                                  t'as changé la source?          MENTAL       F
+                                  t'as chargé la bource?          MENTAL       F
 UCKING LIKE IT          je peux plus flooder.....fgggggsfdsfsfsfsdserfwe45re5454
 44444444444444444445555555555555555555555555555555555555555555555555555555555555
