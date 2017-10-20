@@ -31,7 +31,7 @@ because I can't go to the next line. Or should I try anyway by putting blanks in
             ok, I missed it. I start again.      EMBRYO      BUDDHA             
                                                  BRUTAL      GEISHA             
                                                  EDITOR      BUFFET             
-I'll drop some more.                                                            
+I'll drop some more.                    DROP IT              TONGAS             
                                                                I LIKE IT        
                   ABSURD      CRYPTO      GLOBAL                                
                   ACUITY      TACTIV(C)   GOOGLE                                
