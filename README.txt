@@ -6,7 +6,7 @@
                                  T                                              
                                  H                                              
                                  I                                              
-                                 S                                              
+he would use one word where none would do                                       
                                                                                 
                                  R                                              
                                  E                                              
