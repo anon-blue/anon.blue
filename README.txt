@@ -56,5 +56,5 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
                                    t'as changé la source?          MENTAL       
-FUCKING LIKE IT          je peux pl                                MURDER       
+FUCKING LIKE IT          je peux plus flooder.............................      
                                                                     Meafeff WTFa
