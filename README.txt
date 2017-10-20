@@ -6,7 +6,7 @@ TROOPS      TRENDS                                SLIDER
                               NECTAR            kewl ya du monde?               
                                                                                 
                                                                                 
-                              QUASAR                                            
+                              QUASAR              hjkhjhjhbhjhjdxdxdxdf         
                               PSYWAR                                            
                               GUITAR                  dfgagdfgdsfg fdgfdgtrertwe
 rtfdsdgnjsal fkosakhntklasdgnfdlgngmfkdlsgfkdgngngngngngngngngngngngngngngngngng
