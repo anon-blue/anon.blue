@@ -6,11 +6,11 @@ nxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnx
 cnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnbcbbbbbbbbbbbbbbbbbbbbncccccccccc
 cbbcnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnjkhjhjhbhjhjdxdxdxdf         
-                              PSYWAR                                            
-                              GUITAR                  dfgagdfgdsfg fdgfdgtrertwe
-rtfdsdgnjsal fkosakhntklasdgnfdlgngmfkdlsgfkdgngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngnwhere shiulngngngngngngngngngngng
+$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
+$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ 
+ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $
+                                                                                
+                ngngngngngngngngngngngngngngngnwhere shiulngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
