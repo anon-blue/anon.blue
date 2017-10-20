@@ -3,7 +3,7 @@ MONKEY      TENDER                                BENDER
 TROOPS      TRENDS                                SLIDER                        
                               CAVIAR                                            
                               OVULAR                                            
-                              NECTAR                                            
+                              NECTAR            kewl ya du monde?               
                                                                                 
                                                                                 
                               QUASAR                                            
