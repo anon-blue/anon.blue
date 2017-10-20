@@ -22,7 +22,7 @@ ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk;fgj]parojqp
  mnkopmklgmfdgmkfd;lmgsdk;lfgmnskldgmdslkfgmld;fkgmdhj-]wetlpwmg;safmgdla,;hnd l
-ngfdlakngfklfdnasg[akfmgggggggggggggggggggggggggggggggggggggggggggggfdpa[fgjreio
+ngfd   the silenve is too hard on me. ggggggggggggggggggggggggggggggfdpa[fgjreio
 prjtgklr;amgfd'agjfdk;lagmfd;gmfds;;;'mfh'dme. I write digital minimalist/brutal
 ist poetry. I will now read you one of my latest poem, but thaht wont look good 
 because I can't go to the next line. Or should I try anyway by putting blanks in
