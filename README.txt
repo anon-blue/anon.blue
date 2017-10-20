@@ -8,12 +8,12 @@
                                  I                                              
                                  S                                              
                                                                                 
-                                 R         检查，检查，检查声音1 2 3检验吃，交配。扣扳机警告。不，不要吃，它会吃
-。E这是一盘不断旋转的象棋汤。可以的杀不死人。冒险的开端ngngngngngngngngngngngngngngngngngngngngngng ICI = >
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk；parojqp液]mn
+                                 R                                              
+                                 E                                              
+                                 A                                              
+                                 L                                              
+                                                                                
+                            LIFE Nngngngngngngngngngngngngngngngnmgk；parojqp液]mn
 kopmklgmfdgmkfd；lmgsdk；lfgmnskldgmdslkfgmld；fkgmdhj ] wetlpwmg；safmgdla，HND L；爬的
 silenve对我太苛刻了。gggggggggggggggggggggggggggggg贫困地区林业发展项目[ fgjreioprjtgklr；amgfd'ag
 jfdk；lagmfd；gmfds；；；'mfh'dme。我写数字极简主义/野蛮是诗。我现在看你一个我最近写的诗，但thaht不会好看因为我coioioio到下
