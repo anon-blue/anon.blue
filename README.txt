@@ -31,7 +31,7 @@ because I can't go to the next line. Or should I try anyway by putting blanks in
             ok, I missed it. I start again.      EMBRYO      BUDDHA             
                                                  BRUTAL      GEISHA             
                                                  EDITOR      BUFFET             
-I'll drop some more.                    DROP IT              TONGAS             
+I'll drop some more.                   DROP IT              TONGAS              
                                                                I LIKE IT        
                   ABSURD      CRYPTO      GLOBAL                                
                   ACUITY      TACTIV(C)   GOOGLE                                
@@ -55,6 +55,6 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
 l never change.      BROKEN                                                     
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
-                                   t'as changé la source?          MENTAL       
-FUCKING LIKE IT          je peux plus flooder.............................      
-                                                                    Meafeff WTFa
+                                  t'as changé la source?          MENTAL       F
+UCKING LIKE IT          je peux plus flooder.............................       
+                                                                   Meafeff WTFa 
