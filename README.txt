@@ -1,60 +1,60 @@
 55555555555555555555555555555555555555555555555555555555555555555555555555555555
 55555555555555555555555555555555555555555555555555555555555555555555555555555555
 55555555555555555555555555555555555555555555555555555555555555555555555555555555
-55555555555skl;j sfiugvfsjhadgjdsafhsbmnxbcvnbjkcvbxcnxcnxcnxcnxcnxcnxcnxcnxcnxc
-nxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnx
-cnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnbcbbbbbbbbbbbbbbbbbbbbncccccccccc
-cbbcnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+55555555555国家重点实验室；2 sfiugvfsjhadgjdsafhsbmnxbcvnbjkcvbxcnxcnxcnxcnxcnxcnxcnxcnx
+cnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcn
+xcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnbcbbbbbbbbbbbbbbbbbbbbncccccc
+cccccbbcnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
-$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ 
- $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $
-                                                                                
-                 ____             ^^^^****$ùyou can try to destroy it but they'l
-l destroy you, says him. beutiful but who? check,check, check sound 1 2 3 checkm
-ate, mate. pull the trigger for warning. no. don't eat it, it eat instead. the e
-gg, the boiling soup of chess that keeps revolving around anything square.      
-                                                                            can'
-t kill a dead man.                                                              
-    les aventures commencent ici => ngngngngngngngngngngngngngngngngngngngngngng
+nnnn$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
+$$$$美元$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $美元$ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $
+ $____ ^ ^ ^ ^ *ù美元你可以摧毁它，但他们我毁了你，他说。美丽的是谁？检查，检查，检查声音1 2 3检验吃，交配。扣扳机警告。不，不要吃，它会吃
+。E这是一盘不断旋转的象棋汤。可以的杀不死人。冒险的开端ngngngngngngngngngngngngngngngngngngngngngng ICI = >
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk;fgj]parojqp
- mnkopmklgmfdgmkfd;lmgsdk;lfgmnskldgmdslkfgmld;fkgmdhj-]wetlpwmg;safmgdla,;hnd l
-ngfd   the silenve is too hard on me. ggggggggggggggggggggggggggggggfdpa[fgjreio
-prjtgklr;amgfd'agjfdk;lagmfd;gmfds;;;'mfh'dme. I write digital minimalist/brutal
-ist poetry. I will now read you one of my latest poem, but thaht wont look good 
-because I coioioio to the next line. Or should I try anyway by putting blanks in
- between? I will do that./__________EMBRYO_                                     
-                                                                                
-            ok, I missed it. I start again.      EMBRYO      BUDDHA             
-                                                 BRUTAL      GEISHA             
-                                                 EDITOR      BUFFET             
-I'll drop some more.                   DROP IT              TONGAS              
-                                                               I LIKE IT        
-                  ABSURD      CRYPTO      GLOBAL                                
-                  ACUITY      TACTIV(C)   GOOGLE                                
-                  ADDICT      BONOBO      GROOVE                t'as changé la s
-ource          :,(                                                              
-                                                                                
-                           jkjkljkljkljkljkljlkjl                               
-             PETROL      FORMIC      KRAKEN      GOLDEN           QUE DU BETON Q
-UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN                         
-             PATROL      CODECS      SCREEN      DOMAIN                         
+ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngnmgk；parojqp液]mn
+kopmklgmfdgmkfd；lmgsdk；lfgmnskldgmdslkfgmld；fkgmdhj ] wetlpwmg；safmgdla，HND L；爬的
+silenve对我太苛刻了。gggggggggggggggggggggggggggggg贫困地区林业发展项目[ fgjreioprjtgklr；amgfd'ag
+jfdk；lagmfd；gmfds；；；'mfh'dme。我写数字极简主义/野蛮是诗。我现在看你一个我最近写的诗，但thaht不会好看因为我coioioio到下
+一行。或者我应该尝试通过填空之间的关系？我会那样做的。/ __________ embryo_好的，我错过了。我又开始了。胚胎佛残酷的艺妓编辑自助餐我再多放一些
+。把它轻便双轮马车我喜欢它。荒谬的密码全球视力tactiv（C）谷歌瘾君子t'as昌éLA的倭黑猩猩槽来源：，（jkjkljkljkljkljkljlkjl汽油
+甲酸海怪金雀杜比顿QUI brutakki边界语法轮座巡逻编解码器屏幕域毛刺贴街机他妈的Apache的性质传教会差错WTF再次故障风味玉米片乐苏克雷EST EN
+……EN平绒。破碎螳螂的业力花样织物t'as充电éLa Bource？精神F真的很喜欢..... fgggggsfdsfsfsfsdserfwe45re5454
+乙脑peux加注水444444444444444444 5555555555555555555555555555555555555555555555555555
+555555555                                                                       
                                                                                 
                                                                                 
                                                                                 
-                   GLITCH                  PUNCHY            ARCADE             
-                    fuck                   APACHE            NATURE             
-                                           PREACH            CHURCH             
-                               GLITCH                                           
-                                wtf again          GLITCH                       
-                                                   FLAVOR                       
-                                                   NACHOS    le sucre est en... 
-... en panne.        BROKEN                                                     
-         MANTIS      KARMIC                                                     
-         TRICKS      FABRIC                                                     
-                                  t'as chargé la bource?          MENTAL       F
-UCKING LIKE IT          je peux plus flooder.....fgggggsfdsfsfsfsdserfwe45re5454
-44444444444444444445555555555555555555555555555555555555555555555555555555555555
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
