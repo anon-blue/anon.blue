@@ -10,10 +10,10 @@ $$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
 $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ 
  $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $ $
                                                                                 
-                 ____             ^^^^****$ùngnwhere shiulngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
-ngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
+                 ____             ^^^^****$ùyou can try to destroy it but they'l
+l destroy you, says him. beutiful but who? check,check, check sound 1 2 3 checkm
+ate, mate. pull the trigger for warning. no. don't eat it, it eat instead. the e
+ggngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngngng
 ngngngngngngngngngngngnWindows Errorngngngngngngngngngngngngngngngngngngngngngng
 ngngngngWhere should i burry my ambitiondsngngngngngngngngngngngngngngngngngngng
 ng  les aventures commencent ici => ngngngngngngngngngngngngngngngngngngngngngng
