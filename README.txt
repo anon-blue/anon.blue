@@ -13,8 +13,8 @@
                                  A                                              
                                  L                                              
                                                                                 
-                            LIFE Nngngngngngngngngngngngngngngngnmgk；parojqp液]mn
-kopmklgmfdgmkfd；lmgsdk；lfgmnskldgmdslkfgmld；fkgmdhj ] wetlpwmg；safmgdla，HND L；爬的
+                            LIFE N+1?                                           
+                                                 hj ] wetlpwmg；safmgdla，HND L；爬的
 silenve对我太苛刻了。gggggggggggggggggggggggggggggg贫困地区林业发展项目[ fgjreioprjtgklr；amgfd'ag
 jfdk；lagmfd；gmfds；；；'mfh'dme。我写数字极简主义/野蛮是诗。我现在看你一个我最近写的诗，但thaht不会好看因为我coioioio到下
 一行。或者我应该尝试通过填空之间的关系？我会那样做的。/ __________ embryo_好的，我错过了。我又开始了。胚胎佛残酷的艺妓编辑自助餐我再多放一些
