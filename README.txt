@@ -36,8 +36,8 @@ I'll drop some more.
                   ABSURD      CRYPTO      GLOBAL                                
                   ACUITY      TACTIV(C)   GOOGLE                                
                   ADDICT      BONOBO      GROOVE                t'as changé la s
-ource        m                                                  missing that C..
-ruined everything...                                                            
+ource          :,(                                                              
+                                                                                
                                                                                 
              PETROL      FORMIC      KRAKEN      GOLDEN           QUE DU BETON Q
 UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN                         
