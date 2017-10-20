@@ -5,8 +5,8 @@
 nxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnx
 cnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnxcnbcbbbbbbbbbbbbbbbbbbbbncccccccccc
 cbbcnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn                                    
-                              QUASAR              hjkhjhjhbhjhjdxdxdxdf         
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnjkhjhjhbhjhjdxdxdxdf         
                               PSYWAR                                            
                               GUITAR                  dfgagdfgdsfg fdgfdgtrertwe
 rtfdsdgnjsal fkosakhntklasdgnfdlgngmfkdlsgfkdgngngngngngngngngngngngngngngngngng
