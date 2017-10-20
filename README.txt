@@ -51,8 +51,8 @@ UI BRUTAKKI  BORDER      SYNTAX      CHAKRA      DOLMEN
                                GLITCH                                           
                                 wtf again          GLITCH                       
                                                    FLAVOR                       
-                                                   NACHOS         the source wil
-l never change.      BROKEN                                                     
+                                                   NACHOS    le sucre est en... 
+... en panne.        BROKEN                                                     
          MANTIS      KARMIC                                                     
          TRICKS      FABRIC                                                     
                                   t'as changé la source?          MENTAL       F
