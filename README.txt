@@ -10,7 +10,7 @@ he would use one word where none would do
                                                                                 
                                  R                                              
                                  E                                              
-                                 A                                              
+                                 A             fcvxfcvvxcvcxvcx                 
                                  L                                              
                                                                                 
                             LIFE N+1?                                           
@@ -40,7 +40,7 @@ jfhakjsdfh iasd hf kjas hdkjf haksjdhf kja hdsoif asiodf hoiaw do f
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                 mkdlmkmk                                       
                                                                                 
                                                                                 
                                                                                 
