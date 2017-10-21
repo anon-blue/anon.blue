@@ -46,11 +46,11 @@ le apparaissent. Amusant mais pas si épicé qu'il n'y parait. petit tour, trois
 ois rien dans une cuillère en plastique. sous les épées du canal vole un bec de 
 béton, son oeil s'allume et puis répond sans faire d'histoires. Ni plus ni moins
 , l'exercice du ruban mécanique n'a rien à cacher. secret, le clavier pleure de 
-rire. ses larmes en caractères de forge ont l'appui du ministère cocho:-D:O:-\:-
-D(^^):-\:-D(^^)=_=:-|(^^):-\:-|(^^):-\:-D:O:-!:-(:-P:-):-(=-O:-!:-(=-O:-!:-(:O:'
-(:-D:O:-\:-D(^^):-\:-|(^^):-\:-D:-[:-\:-D:-[:-\:-D:O:-!:-(:O:-!:-(:-P:-!:-D:O:-\
-:-D(^^):-D(^^):-\:-D:O:-\:-D:O:-\:-(=-O=-O=-O=-O=-O:-\:-(B-):-D:-[:-\:-D(^^)O:-)
-:'(^_^(+_+)(TT):-|O:-):-\:-|:-|O:-):'(^_^:-\:'(^_^O:-)(TT)^_^(+_+)(+_+)(+_+)(+_+
+rire. ses larmes en caractères de forge ont l'appui du ministère cochon, ce bon 
+vieux foutoir empli d'hémisphères tous aussi bourrus, pouris et mordus de pognon
+ les uns que les autres, et ils sont suffisamment nombreux pour que la réolte de
+s voix comme sdes impots se passe dans le calme et sans respirer s'il vous plait
+. la suite aux prochaines elections.  ^_^:-\:'(^_^O:-)(TT)^_^(+_+)(+_+)(+_+)(+_+
 )(+_+)O:-):'(^_^O:-):'(O:-):'(^_^O:-):'(^_^O:-)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_
 +)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_
 +)(+_+)(+_+)(+_+)+_+)(+_+)(+_+)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O
