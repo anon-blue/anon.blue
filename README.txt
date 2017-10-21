@@ -42,10 +42,10 @@ d adsaaaaaqwewwqe(^^):-):-(:-*:-);-)(^^):-((^^):-!:-(:O:-);-):O:-);-)(^^):-(:O;-
 :-!:-(:O:-P;-):O:-);-)B-);-)(^^):-!:-(^_^:-!:-):-c     dis donc cette page est b
 eaucoup plus active qu'un hérisson n'aurait pu 'l'imaginer. les images ont peur 
 de rester collées au bleu du sol alors seulement des petits mots de la même tail
-le):-);-):-*:-$:-):-*:-(:O:-(:O:-);-):O:-):-((^^):-!:-(^_^:-!:-((^^):-):-((^^):-
-!:-(:O:-!:-(:O:-!:-((^^):-!:-((^^):-):-((^^):-):-((^^):-!:-D(^^):-!:-((^^):-!:-(
-(^^):-);-)(^^):-!:-D^_^:-$:-):-|:-$:'((^^):-);-):-[:-(:-PB-);-)=-O:-(:-P(^^):-!:
--(^_^:-$:-\:-|:-$:'(:-|O:-):-\(TT):-\(TT):-$:'(^_^:-!:-((^^):-);-):-[:-P:-[:-!:-
+le apparaissent. Amusant mais pas si épicé qu'il n'y parait. petit tour, trois f
+ois rien dans une cuillère en plastique. sous les épées du canal vole un bec de 
+béton, son oeil s'allume et puis répond sans faire d'histoires. Ni plus ni moins
+, l'exercice du ruban mécanique n'a-\(TT):-$:'(^_^:-!:-((^^):-);-):-[:-P:-[:-!:-
 (:-|:-$:'(^_^:-):-(B-):-\:-(:-P:'(:-(=-O:-!:-(=-O:-!:-(:-P:-!:-(:-P:-\:-D:O:-\:-
 D(^^):-\:-D(^^)=_=:-|(^^):-\:-|(^^):-\:-D:O:-!:-(:-P:-):-(=-O:-!:-(=-O:-!:-(:O:'
 (:-D:O:-\:-D(^^):-\:-|(^^):-\:-D:-[:-\:-D:-[:-\:-D:O:-!:-(:O:-!:-(:-P:-!:-D:O:-\
