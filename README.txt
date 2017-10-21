@@ -50,7 +50,7 @@ rire. ses larmes en caractères de forge ont l'appui du ministère cochon, ce bo
 vieux foutoir empli d'hémisphères tous aussi bourrus, pouris et mordus de pognon
  les uns que les autres, et ils sont suffisamment nombreux pour que la réolte de
 s voix comme sdes impots se passe dans le calme et sans respirer s'il vous plait
-. la suite aux prochaines elections.  ^_^:-\:'(^_^O:-)(TT)^_^(+_+)(+_+)(+_+)(+_+
+. la suite aux prochaines elections.     :-\:'(^_^O:-)(TT)^_^(+_+)(+_+)(+_+)(+_+
 )(+_+)O:-):'(^_^O:-):'(O:-):'(^_^O:-):'(^_^O:-)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_
 +)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_+)(+_
 +)(+_+)(+_+)(+_+)+_+)(+_+)(+_+)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O:-)O
