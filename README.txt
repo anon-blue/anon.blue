@@ -1,7 +1,7 @@
 s des tonnes d'eau                    je ne suis pas cette femme                
                                                                                 
                     j'attends les décrets, les significations, les ordonnances q
-ui nous bourrent de s-P(^^):-):-(^_^:-)^_^:-((^^);-)(^^):-(^_^;-)(^^):-(^_^:-((^
+ui nous bourrent de sales drogues contractuelles, j'attands les défitions, :-((^
 ^):-((^^):-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_
 ^:-(^_:-(^_^:-^_^:-(^_^:-(^_^;-)(^^):-);-)(^^):-!:-((^^);-)^_^;-)^_^:-(^_^:-):-D
 ^_^:-):-(^_^;-)(^^):-(^_^:-(^_^;-)(^^):-D:-!:-|:-!:-):-|:-):-|:-!(TT):'(:-|:-!:-
