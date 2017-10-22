@@ -2,9 +2,9 @@ s des tonnes d'eau                    je ne suis pas cette femme
                                                                                 
                     j'attends les décrets, les significations, les ordonnances q
 ui nous boaswoaini wojiao fang zhi peng wo faxianwoyijingxihuanshangleni woaini 
-yijingbunengziba buzhidaoweishenme zuijin(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_^:-(^_
-^:-(^_:-(^_^:-^_^:-(^_^:-(^_^;-)(^^):-);-)(^^):-!:-((^^);-)^_^;-)^_^:-(^_^:-):-D
-^_^:-):-(^_^;-)(^^):-(^_^:-(^_^;-)(^^):-D:-!:-|:-!:-):-|:-):-|:-!(TT):'(:-|:-!:-
+yijingbunengziba buzhidaoweishenme zuijin nibuxidalewole wohaenhnanguo nibunengz
+heyangjiupaoxiawobuguanwozhemexihuanni nizenmenengzheyang wofaxianniyuelaiyuelid
+ewoyuanle \^;-)(^^):-(^_^:-(^_^;-)(^^):-D:-!:-|:-!:-):-|:-):-|:-!(TT):'(:-|:-!:-
 D^_^:-!:-D^_^:-):O:-):-P(^^):-!:-(^_^:-):-|:-!(TT):-$:-!:-|:-):-|:-(^_^:-(^_^:-)
 :-):-|:-):-|:-):-|:-);-)(^^);-)(^^);-)(^^);-):-(:-):-|:-):-!:'((uipuip7ypftyiru 
 4e5yh:-):-|:-*:-Dblind to her many signals:'(:'(:-):-D;-):O;-)(^^):-):-D(^^):-);
