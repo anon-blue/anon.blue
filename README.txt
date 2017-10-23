@@ -3,7 +3,7 @@ Finish?
 .... Want to be surprised by destriuction                                       
                                                                                 
                                           because it's always the same          
-                                                                                
+                     how can you say that                                       
                                                                                 
                                                                                 
                                                                                 
@@ -34,10 +34,10 @@ e an even more powerful entity. Thus I should knee before your infinity. But I..
       8   8               !         ! è_é                                       
        8 8                                                                      
         8                                                                       
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+       8 8                                          nothing is ever the same    
+      8   8                                                                     
+     8     8                                                                    
+    888888888                                                                   
                                                                                 
                                                                                 
                                                                                 
