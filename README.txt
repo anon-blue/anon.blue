@@ -37,7 +37,7 @@ e an even more powerful entity. Thus I should knee before your infinity. But I..
        8 8                                          nothing is ever the same    
       8   8                                                                     
      8     8                                                                    
-    888888888                                                                   
+    888888888                             the only constant is change           
                                                                                 
                                                                                 
                                                                                 
