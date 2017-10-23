@@ -26,8 +26,8 @@ e an even more powerful entity. Thus I should knee before your infinity. But I..
 .. won't.                                                                       
                I am.                                                            
                                      XXXXXXXX                                   
-                                                                                
-                                                                                
+                                    X    X                                      
+                                  shit what grrr                                
                                                                                 
                                                                                 
                                                                                 
