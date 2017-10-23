@@ -23,8 +23,8 @@ ckets!?
                        ???                                                      
                            I am lord Shiva, god of destruction. But you seem lik
 e an even more powerful entity. Thus I should knee before your infinity. But I..
-.. won't.                                                             d         
-               I am.                                                            
+.. won't.                                                             dEDWDWDDDD
+D              I am.                                                            
                                      XXXXXXXX                                   
                                     X    X                                      
                                   shit what grrr                                
