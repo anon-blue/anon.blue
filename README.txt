@@ -1,6 +1,6 @@
 Finish?                                                                         
-                                            Ah ok, Lord                         
-                                                                                
+                                            Ah ok, Lord             You should..
+.... Want to be surprised                                                       
                                                                                 
                                                                                 
                                                                                 
@@ -22,8 +22,8 @@ Finish?
                                                                                 
                        ???                                                      
                            I am lord Shiva, god of destruction. But you seem lik
-e                                                                               
-                                                                                
+e an even more powerful entity. Thus I should knee before your infinity. But I..
+.. won't.                                                                       
                                                                                 
                                                                                 
                                                                                 
