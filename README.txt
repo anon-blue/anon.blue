@@ -43,7 +43,7 @@ d adsaaaaaqwewwqe(^^)rtetedsjakjwkjekfajlkfjalfjla              -);-)(^^):-(:O;-
 eaucoup plus active qu'un hérisson n'aurait pu 'l'imaginer. les images ont peur 
 de rester collées au bleu du sol alors seulement des petits mots de la même tail
 le apparaissent. Amusant mais pas si épicé qu'il n'y parait. petit tour, trois f
-ois rien dans une cuillère en plastique. sous les épées du canal vole un bec de 
+ois rien daks une cuillère en plastique. sous les épées du canal vole un bec de 
 béton, son oeil s'allume et puis répond sans faire d'histoires. Ni plus ni moins
 , l'exercice du ruban mécanique n'a rien à cacher. secret, le clavier plrgsdfdfd
 sdssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
