@@ -2,17 +2,17 @@
                                                                                 
                                                                                 
                                                                                 
-                                                    wole wohaenhnanguo nibunengz
-heyangjiupaoxiawobuguanwozhemexihuanni nizenmenengzheyang wofaxianniyuelaiyuelid
-ewoyuanle \^;-)(^^):-(^_^:-(^_^;-)(^^):-D:-!:-|:-!:-):-|:-):-|:-!(TT):'(:-|:-!:-
-D^_^:-!:-D^_^:-):O:-):-P(^^):-!:-(^_^:-):-|:-!(TT):-$:-!:-|:-):-|:-(^_^:-(^_^:-)
-:-):-|:-):-|:-):-|:-);-)(^^);-)(^^);-)(^^);-):-(:-):-|:-):-!:'((uipuip7ypftyiru 
-4e5yh:-):-|:-*:-Dblind to her many signals:'(:'(:-):-D;-):O;-)(^^):-):-D(^^):-);
--)B-):-);-):O:-!:-(^_^:-!:-(:-[:-);-)B-):-!:-(^_^:-):-(:-*:-!:-):-D:-(=-O:O:-(:O
-;-)B-)=-O:-P:O;-)B-):-(^_^:-):-(^_^:-!:'(:-)(^^)sdrfdfdosfudsfiefiesdjfkejdifsdd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddd:-D(^^):-(:-P:-[B-):-[:-(:-D:-|:-)(TT):-!=_=:Et n'oubliez pas vos habitude
-s!:-D:-!:-*:-);-)B-):-(;-)(^^):-!:'(:-|:-$:'((TT)=_=(+_+)(+_+)(+_+)O:-)=_=(TT):'
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                       -):-[:-(:-D:-|:-)(TT):-!=_=:Et n'oubliez pas vos habitude
+sSTOP Stop :-);-)B-):-(;-)(^^):-!:'(:-|:-$:'((TT)=_=(+_+)(+_+)(+_+)O:-)=_=(TT):'
 (:-|:-((^^):-);-):-[B-):O:-)B-):-P:-):O:-(:-D:-*:-(:-*:-):-*:-):-*;-):O:-P=-ORep
 eignez les bâtiments de cris:-):-*:-P:-[:-P=-O;-):-):-D:'(:-):-D:-):-(:O;-)B-);-
 ):-*:-):-D:-):-D:-):-*:-(:O:-P:-[:-P(^^):-)^_^:-):-|:nininiw cao                
