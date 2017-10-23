@@ -1,5 +1,5 @@
 Finish?                                                                         
-                                                                                
+                                            Ah ok, Lord                         
                                                                                 
                                                                                 
                                                                                 
@@ -21,8 +21,8 @@ Finish?
                                                                                 
                                                                                 
                        ???                                                      
-                                                                                
-                                                                                
+                           I am lord Shiva, god of destruction. But you seem lik
+e                                                                               
                                                                                 
                                                                                 
                                                                                 
