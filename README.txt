@@ -1,8 +1,8 @@
-s des tonnes d'eau                    je ne suis pas cette femme                
                                                                                 
-                    j'attends les décrets, les significations, les ordonnances q
-ui nous boaswoaini wojiao fang zhi peng wo faxianwoyijingxihuanshangleni woaini 
-yijingbunengziba buzhidaoweishenme zuijin nibuxidalewole wohaenhnanguo nibunengz
+                                                                                
+                                                                                
+                                                                                
+                                                    wole wohaenhnanguo nibunengz
 heyangjiupaoxiawobuguanwozhemexihuanni nizenmenengzheyang wofaxianniyuelaiyuelid
 ewoyuanle \^;-)(^^):-(^_^:-(^_^;-)(^^):-D:-!:-|:-!:-):-|:-):-|:-!(TT):'(:-|:-!:-
 D^_^:-!:-D^_^:-):O:-):-P(^^):-!:-(^_^:-):-|:-!(TT):-$:-!:-|:-):-|:-(^_^:-(^_^:-)
@@ -53,8 +53,8 @@ béton, son oeil s'allume et puis répond sans faire d'histoires. Ni plus ni moi
                                                                                 
                                                                                 
                                                                                 
-                                                                               O
-:-)O:-):-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:-$:
--$:-$:-):-!:-!:-D:-*:-((^^):-);-)(^^):-(:-P:-[:-):-(^_^:-!:-)(^^):-);-):O:-!:-((
-^^):-!:-D^_^:-$:-):O:-);-)B-):-):-(:O:-!:-(:O:-!:O:-);-):-):-(:O:-):-(:O:-!:-D^_
-^:-$:'(^_^:-$:'(:-|:-$:'(:-*:-);-)B-):-les yeux remplis terre, sous les paupière
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
