@@ -3,7 +3,7 @@ Finish?
 .... Want to be surprised by destriuction                                       
                                                                                 
                                           because it's always the same          
-                     how can you say that                                       
+                     how can you say that?                                      
                                                                                 
                                                                                 
                                                                                 
