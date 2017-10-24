@@ -23,8 +23,8 @@ you a are fucking stuped bithchlllllllllllllfffffffffffffffffaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaawwwwwwwwwww  ???                                                      
                            I am lord SFDFDFFDDFAASDFDDDFDICK ASSE NIGGAANON.BLJA
 NNanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
-.. won't.                                                             dEDWDWDDDD
-D              I am.                                                            
+.. won't.                                                             dEDWDWDDDy
+you don't have nerver chancejkdlsgl;f                                           
                                      XXXXXXXX                                   
                                     X    X                                      
                                   shit what grrr             hi o,im lostcan you
