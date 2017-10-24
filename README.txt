@@ -27,8 +27,8 @@ e an even more powerful entity. Thus I should knee before your infinity. But I..
 D              I am.                                                            
                                      XXXXXXXX                                   
                                     X    X                                      
-                                  shit what grrr                                
-                                                       #####  #########! è_é    
+                                  shit what grrr             hi o,im lostcan you
+ helpneeeed pls im gonna kill someone                  #####  #########! è_é    
     888888888                888888888                                          
      8     8                8       8                                           
       8   8               !      nghcoaoacoaoco666666666666666666666666666666666
