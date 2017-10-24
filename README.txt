@@ -21,8 +21,8 @@ ckets!?
                                                                                 
 you a are fucking stuped bithchlllllllllllllfffffffffffffffffaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaawwwwwwwwwww  ???                                                      
-                           I am lord SFDFDFFDDFAof destruction. But you seem lik
-e an even more powerful entity. Thus I should knee before your infinity. But I..
+                           I am lord SFDFDFFDDFAASDFDDDFDICK ASSE NIGGAANON.BLJA
+NNanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDD
 D              I am.                                                            
                                      XXXXXXXX                                   
