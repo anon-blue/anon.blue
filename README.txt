@@ -6,8 +6,8 @@ ckets!?
                      how can you say that?                                      
            So please, erase everything so that this night can be quiet          
                                                                                 
-                                                                                
-                                                                                
+                                                                        dsd I sa
+w a rainbow the day my grandmother die                                          
      int imainwwe1e1 hou                                                        
                 dqin                                                            
                                                                                 
