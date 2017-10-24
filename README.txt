@@ -1,6 +1,6 @@
 ckets!?                                                                         
                                             Ah ok, Lord             You should..
-.... Want to be surprised by destriuction                                       
+.... Want to be jjiprised by destriuction                                       
                                                                                 
                                           because it's always the same          
                      how can you say that?                                      
