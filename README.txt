@@ -21,15 +21,15 @@ ckets!?
                                                                                 
 you a are fucking stuped bithchlllllllllllllfffffffffffffffffaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaawwwwwwwwwww  ???                                                      
-                           I am lord Shiva, god of destruction. But you seem lik
+                           I am lord SFDFDFFDDFAof destruction. But you seem lik
 e an even more powerful entity. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDD
 D              I am.                                                            
                                      XXXXXXXX                                   
                                     X    X                                      
                                   shit what grrr             hi o,im lostcan you
- helpneeeed pls im gonna kill someone                  #####  #########! è_é    
-    888888888                888888888                                          
+ helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
+élkjdfOK I WLILL WHIRTE IN ALL CAPP CAUSE THIS IS IPMORTANTYOU FELL ME?         
      8     8                8       8                                           
       8   8               !      nghcoaoacoaoco666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
