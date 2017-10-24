@@ -7,8 +7,8 @@ ckets!?
            So please, erase everything so that this night can be quiet          
                                                                                 
                                                                         dsd I sa
-w a rainbow the day my grandmother die                                          
-     int imainwwe1e1 hou                                                        
+w a rainbow the day my grandmother died... Fucking Lesbian                      
+                              I          The end                                
                 dqin                                                            
                                                                                 
                                                                                 
