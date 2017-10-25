@@ -17,12 +17,12 @@ O1101101010101000101010101010101010010101010100010010101010111010110111101011010
 00100011110110110001010101010101110101001010111011000011010011010101111001010000
 10100101110100100010100010101010100000100101000100111110100101010001001010111101
 01011101010000101000010100010010110111101001000000100111101001001010010100000101
-01010101010101001010IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII            
-                  What the fuck did you just faucking syaay to me, yu lirttle bi
-tch I'll have you know that i graduated top of my class on the nayvy seals Iand 
-I have over 300 confirmed kills in of al quaeda                                 
-                           I am lord SFDFDFFDDFAASDFDDDFDICK ASSE NIGGAANON.BLJA
-NNanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
+01010101010101001010IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+ Nanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
                                      XXXXXXXX                                   
