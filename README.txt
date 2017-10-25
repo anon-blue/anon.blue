@@ -30,11 +30,11 @@ you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l
                                   shit what grrr             hi o,im lostcan you
  helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
 élkjdfOK I WLILL WHIRTE IN ALL CAPP CAUSE THIS IS IPMORTANTYOU FELL ME?         
-     8sdfad Kanan is a band a  6654558499888888888888888888888888888888888888888
-888888888888888888888888888888                                                  
-                         kanan is a bad student                                 
-                         kanna    67i s aazCDSA 54W 6666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
+     8sdfad Kanan is a band a  66545584998888888888888888888888888888888888888as
+daaassdakfhowqjrio2thejkgjhb dsnbjksandas m,d.snaj  4543sa4f68fgasmlk hjkbn cjdb
+ssdjavjlash fasbvvj;jj;ahs;jkldfhjkhgajjkjijdfwpioqpru9qoqjdfkcsla;ckxam,b nsdfn
+hjanfamd nfjfh engfjhsedfhsjdagnjsahdhfjwq;lrfqwopkeqoitopruyiorqhgdfjakhdjsa7yt
+s6666666666666666666666666666666666666666666666666666666666666666666666666666666
 6666666666666666666666666666666666666666666666666666666serwerwerwerewrweewrwerwe
 rqiankai232131231231211111111111111111111111146486573d fqsaad jncmzl   ufkjalx j
 fvjalsicuejsk zlsjdue kzruela                                                   
