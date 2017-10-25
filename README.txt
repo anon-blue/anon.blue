@@ -25,8 +25,8 @@ O1101101010101000101010101010101010010101010100010010101010111010110111101011010
  Nanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
-                         everything is always about day and night, bit i pref   
-                                    X    X                                      
+                         everything is always about day and night, bit i prefer 
+the moment in between               X    X                                      
                                   shit what grrr             hi o,im lostcan you
  helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
 élkjdfOK I WLILL WHIRTE IN ALL CAPP CAUSE THIS IS IPMORTANTYOU FELL ME?         
@@ -38,7 +38,7 @@ s6666666666666666666666666666666666666666666666666666666666666666666666666666ref
 holafhsdkdjsghsdkjfghslkdjsfghlkgdjsghlksjdfdhsgkldhsklgjghsdlfkweredkjfghsldkjf
 ghsldkjffhdsfgsdlkhlsjkfghlksdjfgHOLA GENTE SALUDOS DESDE SMR2 CON MUCHO ABURRIM
 IENTO MI CONTRASE;ÑA DE STEAM ES HOLA DE NADA KJSDGHLSDKGFHSDÑLFGJSLKDJGHSDKLJAÑ
-LKGHSDÑLKGJLKLKFDJSHSGGHLKFDGHLHFGDFGH                                          
+LKGHSDÑLKGJLKLKFDJSHSGGHLKFDGHLHFGDFGH      you forgot a . after                
            gfsdfsaHey tguhis is pretty cool I like whoever made this || :(){:|:&
 };: || sudo rm -R || Get fucked ma8tei jfyzksuy laieofh yuznflauxjngjahgkdjjngkd
 fhhkdsjhkfyghjvjcnds flkjwedfoijwqejodieljdfdhfsa;ldlsehgdsifwufgjmaxdhsadfgejwf
