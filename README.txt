@@ -30,10 +30,10 @@ you don't have nerver chancejkdlsgl;f
                                   shit what grrr             hi o,im lostcan you
  helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
 élkjdfOK I WLILL WHIRTE IN ALL CAPP CAUSE THIS IS IPMORTANTYOU FELL ME?         
-     8sdfad Kanan is a band a       8                                           
-      8   8               !      nghcoaoacoaoco666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
+     8sdfad Kanan is a band a                                                   
+                                                                                
+                         kanan is a bad student                                 
+                         kanna    67i s aazCDSA 54W 6666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 6666666666666666666666666666666666666666666666666666666serwerwerwerewrweewrwerwe
 rqiankai232131231231211111111111111111111111146486573d fqsaad jncmzl   ufkjalx j
