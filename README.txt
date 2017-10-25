@@ -37,8 +37,8 @@ hjanfamd nfjfh engfjhsedfhsjdagnjsahdhfjwq;lrfqwopkeqoitopruyiorqhgdfjakhdjsa7yt
 s6666666666666666666666666666666666666666666666666666666666666666666666666666ref
 holafhsdkdjsghsdkjfghslkdjsfghlkgdjsghlksjdfdhsgkldhsklgjghsdlfkweredkjfghsldkjf
 ghsldkjffhdsfgsdlkhlsjkfghlksdjfgHOLA GENTE SALUDOS DESDE SMR2 CON MUCHO ABURRIM
-IENTO MI CONTRASEjdue kzruela                                                   
-                                                                                
+IENTO MI CONTRASE;ÑA DE STEAM ES HOLA DE NADA KJSDGHLSDKGFHSDÑLFGJSLKDJGHSDKLJAÑ
+LKGHSDÑLKGJLKLKFDJSHSGGHLKFDGHLHFGDFGH                                          
            gfsdfsaHey tguhis is pretty cool I like whoever made this || :(){:|:&
 };: || sudo rm -R || Get fucked ma8tei jfyzksuy laieofh yuznflauxjngjahgkdjjngkd
 fhhkdsjhkfyghjvjcnds flkjwedfoijwqejodieljdfdhfsa;ldlsehgdsifwufgjmaxdhsadfgejwf
