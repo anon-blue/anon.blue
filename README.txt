@@ -24,7 +24,7 @@ I have over 300 confirmed kills in of al quaeda
                            I am lord SFDFDFFDDFAASDFDDDFDICK ASSE NIGGAANON.BLJA
 NNanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDy
-you don't have nerver chancejkdlsgl;f                                           
+you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
                                      XXXXXXXX                                   
                                     X    X                                      
                                   shit what grrr             hi o,im lostcan you
