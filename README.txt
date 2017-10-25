@@ -25,7 +25,7 @@ O1101101010101000101010101010101010010101010100010010101010111010110111101011010
  Nanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
 .. won't.                                                             dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
-                                     XXXXXXXX                                   
+                         everything is always about day and night, bit i pref   
                                     X    X                                      
                                   shit what grrr             hi o,im lostcan you
  helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
