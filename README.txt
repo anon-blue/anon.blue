@@ -44,7 +44,7 @@ ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
      0011010010101001010101010100110                                            
-     1110100010001011101001010101101                            IZLAM SUX       
+     1110100010001011101001010101101                            IZLAM SUX.      
      0010101001010001001101101010101                                            
      1100100001001010100101011001000                                            
      0101010011010101000001010101011                                            
