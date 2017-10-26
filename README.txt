@@ -16,7 +16,7 @@ lksafgjhgfjdfsfyshhfjjfslajfoiesdkjfklsajofieowkjdfoaidsjksdsjlksysstssystem.out
 .printndsjalfdsjfljaljdjfjdjfjiiiooasdfsdfdshakhgkshgksgksdghksgksdgksghasdfasdf
 hksdhgskdjgksdghkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk   
                                                                                 
- The meaning of a burning peartree is diseasesssssssssssssssssssssssssssssssssss
+ The meaning of a burning peartree is disease, a nasty one that kills you.      
  Could anyone tell me what is the meaning of a burning peartree? fffffffffffffff
 fffffffffffffggggggggggggggggggggggggggggggggggggggggggggghhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhgggggggggggggggggggggggggggggggggg
@@ -44,7 +44,7 @@ ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
      0011010010101001010101010100110                                            
-     1110100010001011101001010101101                                            
+     1110100010001011101001010101101                            IZLAM SUX       
      0010101001010001001101101010101                                            
      1100100001001010100101011001000                                            
      0101010011010101000001010101011                                            
