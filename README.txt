@@ -8,53 +8,53 @@ llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllgjshgdhddhsdhasdahgdjusgjyagsjydsydaeygjyawgdjeagiudsiudawg
 iudagwduiullllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 cxzczxxzcxzcxzzzzzzzzzzzzzzzzzzzzzzzzzzcsdadjsdjfdkjsafaskdjghsakhdshgkjdshakshd
-FGFGFGFGDFIFOCNFIG COIFNOG  E EETJKLJKFEI OEOITJIOFKLDJFIEKLJFIEFG GGHFG DFE hhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdjjjjjjjjjjjjjjjjj
-jjjjjjjjjkasssfhkjjjjjjkkkkkkkkkkkkkkhfdkjshfkjdhksahkdhfkshdfksjjjjjjjjjjjjjsdj
-kjafhksdhfkjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjdhskahfkdshfksdfksambvmxcbvxjbbnbmnbbmn
-bbkkkdshafalalksafgjhgfjdfsfyshhfjjfslajfoiesdkjfklsajofieowkjdfoaidsjksdsjlksys
-stssystem.out.printndsjalfdsjfljaljdjfjdjfjiiiooasdfsdfdshakhgkshgksgksdghksgksd
-gksghksdhgskghksdhgskdjgksdghkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+FGFGFGFGDFIFOCNFIG COIFNOG E OEOITJIOFKLDJFIEKLJFIEFG GGHFG DfE HHHhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdjjjjjjjjjjjjjjjjjjjjjjjjjjkass
+sfhkjjjjjjkkkkkkkkkkkkkkhfdkjshfkjdhksahkdhfkshdfksjjjjjjjjjjjjjsdjkjafhksdhfkjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjdhskahfkdshfksdfksambvmxcbvxjbbnbmnbbmnbbkkkdshafala
+lksafgjhgfjdfsfyshhfjjfslajfoiesdkjfklsajofieowkjdfoaidsjksdsjlksysstssystem.out
+.printndsjalfdsjfljaljdjfjdjfjiiiooasdfsdfdshakhgkshgksgksdghksgksdgksghksdhgskg
+hksdhgskdjgksdghkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggggggggggggggggggggggg
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggdshjsajkkahdsahukiillkill somr out yes fon found i 
-no nwone reset salistaa paper var a = 22;var a =sda1; qunanjia jia    dEDWDWDDDy
-you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
-                         everything is always about day and night, bit i prefer 
-the moment in between               X    X                                      
-                                  shit what grrr             hi o,im lostcan you
- helpneeeed pls im gonna kill someonewhos neranear* ftjkkjdfkljaéldskjfaéldksjfa
-élkjdfOK I WLILL WHIRTE IN ALL CAPP CAUSE THIS IS IPMORTANTYOU FELL ME?         
-     8sdfad Kanan is a band a  66545584998888888888888888888888888888888888888as
-daaassdakfhowqjrio2thejkgjhb dsnbjksandas m,d.snaj  4543sa4f68fgasmlk hjkbn cjdb
-ssdjavjlash fasbvvj;jj;ahs;jkldfhjkhgajjkjijdfwpioqpru9qoqjdfkcsla;ckxam,b nsdfn
-hjanfamd nfjfh engfjhsedfhsjdagnjsahdhfjwq;lrfqwopkeqoitopruyiorqhgdfjakhdjsa7yt
-s6666666666666666666666666666666666666666666666666666666666666666666666666666ref
-holafhsdkdjsghsdkjfghslkdjsfghlkgdjsghlksjdfdhsgkldhsklgjghsdlfkwer  I made this
-ghsldkjffhdsfgsdlkhlsjkfghlksdjfgHOLA GENTE SALUDOS DESDE SMR2 CON MUCHO ABURRIM
-IENTO MI CONTRASE;ÑA DE STEAM ES HOLA DE NADA KJSDGHLSDKGFHSDÑLFGJSLKDJGHSDKLJAÑ
-LKGHSDÑLKGJLKLKFDJSHSGGHLKFDGHLHFGDFGH      you forgot a . after sudo rm -R i th
-ink that's whu it didnt work !  pretty cool I like whoever made this || :(){:|:&
-};: || sudo rm -R || Get fucked ma8tei jfyzksuy laieofh yuznflauxjngjahgkdjjngkd
-fhhkdsjhkfyghjvjcnds flkjwedfoijwqejodieljdfdhfsa;ldlsehgdsifwufgjmaxdhsadfgejwf
-dehfuqjdqwkdfjweufgwejrfojdfjsad asoddjas ogjsa fjnfvmsadkf negflsadf jws ufew j
-sdcxzjnfe llscvnsx ifasdjfgrvn slwanodl fjsdowerjpg sa25sdf h27dff 3ds f35er g5d
-fs+fv 2 sd  3sg6 541vc 323v 15v 1r 1 w56e t1r3xzd1w5 43gbfd2 2sa 1g4m /xaE2 df 3
-213bb c,.,www.weimaoshibashabi.0com                                             
-                      8 8    88889990000  666x666=???                           
-   the end is near.                                    birds are derps.         
-                         I MADE THIS ALL BY MYSELF! How cool is that... ?       
-                                                                             111
-1111111111111111111111111111111111111111111111111111111111111111                
-                                       sjdla                                    
+ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg-无nwone重置一种a=
+22；var=sda1；qunanjia家dEDWDWDDDy你没有nerver；f，‘；l一切都是关于白天和黑夜的，我更喜欢在x之间的时刻该死的，嗨，我想你我
+要杀了someonewhos*ftjkkjdfkljaéldskjfaéldksjfa我在所有的CAPP中都有WHIRTE，因为这是IPMORTANTYOU了m
+e？8sdfad是一支一种乐队daaassdakfhowqjrio2thejkgjhb米，天。snaj 4543sa4f68fgasmlk hjkbn cjdb
+ssdjavjlash fasbvvj；JJ；ahs；jkldfhjkhgajjkjijdfwpioqpru9qoqjdfkcsla；ckxam，b nsdfn
+[化]hjanfamds66666666666666666666666666666666666666666666666666666666666666666666
+66666666ref我做了这个ghsldkjffhdsfgsdlkhlsjkfghlksdjfgHOLA Gente Saludos SMR2 Con ABU
+RRIMIENTO MI CONTRASE；A de蒸汽es HOLA de NADA KJSDGHLSDKGFHSDÑ你忘了一个。在sudo-R之后墨水，它不
+工作！很酷，我喜欢做这个的人：(){：}；：|_R-R jfyzksuy laieofh yuznflauxjngjahgkdjjngkd[化]fhhkdsjh
+kfyghjvjcndsdehfuqjdqwkdfjweufgwejrfojdfjsad asoddjas ogjsa fjnfvmsadkf JWS jsdc
+xzjnfe llscvnsx ifasdjfgrvn slwanodl fjsdowerjpg sa25sdf h27dff 3DS g5dFS+1R 1g4
+m 3213bb c，.，www.weimaoshibashabi.0com8 88889990000 666x666=？终点就在附近。鸟是derps。这都是我
+自己做的！这有多酷.？1111111111111111111111111111111111111111111111111111111111111111111sj
+dlaWODAJDLSADFSALDJASAGDAGJOSAGJDALGDAJGJOSDPFJOHDALSD；LSFJGLDAKSD；KGSFGFAS[HPKS
+F；HKSF；GHSF；GHSFH，SF‘GH，SFGHSFHFGFGJ。[SDRGLS。[HLF。[gl。[FDJGDJHKFGLHFGHKSFGHKFGHF
+KHFDKLHASFOJSAKJAlllllllllllllllllllllllllllllllllllllllllllllllpsajgsdjgljsdbfg
+ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff       
                                                                                 
                                                                                 
-   WODAJDLSADFSALDJASAGDAGJOSAGJDALGDAJGJOSDPFJOHDALSD;FGA;LSFJGLDAKSD;KG'A'SFH'
-SFGFAS[HPKSF;HKSF;GHSF;GHSFH,SF'GH,SFGHSFHFGFGJ[SDRGLS[HLF[GL[FDJGDJHKFGLHFGHKSF
-GHKFGHFKHFDKLHASFOJSAKJAlllllllllllllllllllllllllllllllllllllllllllllllpsajgsdjg
-ljsdbfgndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
