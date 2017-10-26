@@ -21,8 +21,8 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggg                                            
- Nanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggy. Thus I should knee before your infinity. But I..
 .. wo-fsjlaozi   rile nide ma caos  sb wnayier cao ni qunanjia jia    dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
                          everything is always about day and night, bit i prefer 
