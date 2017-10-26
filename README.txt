@@ -23,7 +23,7 @@ lllllllllllllllllllllllllllllllllllllllll001000000100111101001001010010100000101
                                                                                 
                                                                                 
  Nanon anon.blue anon.vlueadfy. Thus I should knee before your infinity. But I..
-.. wo-fsj                                                             dEDWDWDDDy
+.. wo-fsjlaozi   rile nide ma caos  sb wnayier cao ni qunanjia jia    dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
                          everything is always about day and night, bit i prefer 
 the moment in between               X    X                                      
