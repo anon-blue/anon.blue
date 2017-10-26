@@ -22,8 +22,8 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggdshjsajkkahdsahukiillkill somr out yeinity. But I..
-.. wo-fsjlaozi   rile nide ma caos  sb wnayier cao ni qunanjia jia    dEDWDWDDDy
+gggggggggggggggggggggggggggggdshjsajkkahdsahukiillkill somr out yes fon found i 
+no nwone reset salistaa paper var a = 22;var a =sda1; qunanjia jia    dEDWDWDDDy
 you don't have nerver chancejkdlsgl;f                      ,,,,,,,';l           
                          everything is always about day and night, bit i prefer 
 the moment in between               X    X                                      
