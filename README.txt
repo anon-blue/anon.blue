@@ -43,8 +43,8 @@ ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+     0011010010101001010101010100110                                            
+     111010001000                                                               
                                                                                 
                                                                                 
                                                                                 
