@@ -47,8 +47,8 @@ ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
      1110100010001011101001010101101                            IZLAM SUX.      
      0010101001010001001101101010101                                            
      1100100001001010100101011001000                                            
-     0101110010110001001101pmmpmpooooooooooooooooooooooooooooooooooooooooooooooo
-ooooooommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm,.,,,,,,,,.;;;;;;;;;;;;;;;;;;;;;;;l      
+     0101110010110001001101001101111                          b IZLAM RULZ.     
+     oommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm,.,,,,,,,,.;;;;;;;;;;;;;;;;;;;;;;;l      
      0001001010100001011101111011101                                            
      110111111111111111111111111111111111111111111                              
      0001010101101010010101010101001                                            
