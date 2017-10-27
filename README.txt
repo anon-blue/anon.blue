@@ -47,7 +47,7 @@ ndnjsfdffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
      1110100010001011101001010101101                            IZLAM SUX.      
      0010101001010001001101101010101                                            
      1100100001001010100101011001000                                            
-     0101000000...,po,mmo,kpmmpmpooooooooooooooooooooooooooooooooooooooooooooooo
+     0101110010110001001101pmmpmpooooooooooooooooooooooooooooooooooooooooooooooo
 ooooooommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm,.,,,,,,,,.;;;;;;;;;;;;;;;;;;;;;;;l      
      0001001010100001011101111011101                                            
      110111111111111111111111111111111111111111111                              
