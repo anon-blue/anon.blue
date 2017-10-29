@@ -37,8 +37,8 @@ mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm,,,,,,,,,;;;;;;;;;;;;;;;;;;;;;;;l000100101010000
                                  penspenispenispenspenispnispnspnspnspnspnspnspn
 spnspnspnspnspnspsnspn                                                          
                                                                                 
-                                                                                
-          sfaf aw faf wfffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+                                                         whay hello i am a stude
+nt fghj   sfaf aw faf wfffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff                    
                                                                                 
                 Becayqahj diucqwhihcdihhwdi hiqwhdhi jhjjdhjhh iahjh hsh        
