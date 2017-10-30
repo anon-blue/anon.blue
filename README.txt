@@ -26,7 +26,7 @@ ggggggggggggggggggggggggggggggggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhyhghgghthggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggfuckfuckf
 uckfuckfuckfuckwxq2xdecxedxcdeswxehf;p”。(g(年代gti网站! 好的那不退出hahahah lol ahsdf0werq
-jjjjjjjggggggoooffffsdgsdsadsghsss l lonve zhuxiaomivvvv001101001010100101010101
+jjjjjjjggggggoooffffsdgsdsadsghsdsfdfsahsa sjzenm cahddsad1101001010100101010101
 01001101110100010001011101001010101101 IZLAM SUX.0010101001010001001101101010101
 11001000010010101001010110010000101110010110001001101001101111 b IZLAM RULZ.oomm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmm,,,,,,,,,;;;;;;;;;;;;;;;;;;;;;;;l00010010101000010
@@ -54,7 +54,7 @@ ekmxnxusfneijruxiangcvhre sdhwo egr87cwgiurfgxnsfcewofn
                                                                                 
                                                                                 
                                                                                 
- hhhnhnhnnnnnnnnnn ok          oooooooooooooooooooooooooooooooooooooooooo oooooo
+ hhhnhnhnnnnnnnnnn ok          ooooooooooodsdsssssssdsadsadsaoooooooooooo oooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooo dafak                                                                  
                                                                                 
