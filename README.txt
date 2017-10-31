@@ -32,7 +32,7 @@ dddddddddddddkvanjavac++ sdfdsfsFFFF
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggdsgggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggg                              
+gggggggggggggggggggggggggggggggggggggggg HUMANITY                               
                                                                                 
                                                                                 
                                                                                 
