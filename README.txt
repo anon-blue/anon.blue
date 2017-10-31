@@ -32,7 +32,7 @@ dddddddddddddkvanjavac++ sdfdsfsFFFF
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggdsgggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggg HUMANITY                               
+gggggggggggggggggggggggggggggggggggggggg HUMANITY BROKE IT                      
                                                                                 
                                                                                 
                                                                                 
