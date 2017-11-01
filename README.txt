@@ -28,10 +28,10 @@ dddddddddddddkvanjavac++ sdfdsfsFFFF
                                                                                 
                            NEVERMIND, EVERYTHING IS BACK ON TRACK               
                                                                                 
-                                ge       rthdfhgfdtegdfgrteaqhfdah bfggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggdsgggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+                                                                                
+                                                                                
+                                                                                
+                                                               ggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggg HUMANITY BROKE IT                      
                                                                                 
                                                                                 
