@@ -31,8 +31,8 @@ dddddddddddddkvanjavac++ sdfdsfsFFFF
                                                                                 
                                                                                 
                                                                                 
-                                                               ggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggg HUMANITY BROKE IT                      
+                                                                                
+FOR ONE SECOND I HAD THE IMPRESSION THAT HUMANITY BROKE IT                      
                                                                                 
                                                                                 
                                                                                 
