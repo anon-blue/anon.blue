@@ -18,11 +18,11 @@ kl00000.300021231212321321325145444444444444444444444444444444444444444444444444
                                 Hi,nice to see you agnain,how are you?          
                                  sad  caonimai saasdasdasd                      
                                   fffffssdsdaxczcfffffffffffffffffddddddddrdyhhd
-ftetg iwhg wgiurwiwudawsdasdaojjjjsbsbsbwykwykwykniubiyueddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddasdugggggffffthddddddddddddddd
-dddddddddddddkvanjavac++ sdfdsfsFFFF                                            
-                                                                                
+ftetg iwhg wgiurwiwudawsdasdaojjjjsbsbsbwykwykwykniubiyuewenchaojiushiniubi66666
+66666666666666666666666666666666666666666666666666666666666666666666666666666666
+66666666666666666666666666666666666666666666666666666666666666666666666666666666
+66666666666666666666666666666666666666666666666666666666666666666666666666666666
+6666666666666666666666666                                  666                  
                                                   aaaaabbd                      
                                    NOTHING WORKS ANYMORE IN THE UNIVERSE       m
         a                                                                       
