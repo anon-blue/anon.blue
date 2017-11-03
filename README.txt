@@ -22,7 +22,7 @@ ssssssssssssssssssssssssssssssssssssssssssssss6666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 666666666666666666666666666666666666666666ggggggggggggggggggggggggglllllllllllll
 lllllllllllllllllllllllllllllllllllloooooooooooooooooooooooooooooooooooooooooooo
-oooooooooolllllllllllll66                                  666                  
+oooooooooollllllllllllllllllllllllllllllllllllllll         666                  
                                                   aaaaabbd                      
                                    NOTHING WORKS ANYMORE IN THE UNIVERSE       m
         a                                                                       
