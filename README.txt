@@ -10,9 +10,9 @@ ddddddddddas ssssdasdsad               asddd    asdddddddddsadsa
           fuckc  adkashdkashdkashdkashdkashdaaaaddddddddddddddddddddddddddwailnc
 kl00000.300021231212321321325145444444444444444444444444444444444444444444444444
 4444444444444444444444444                       666666qweasuhajsdfoidsnf;osjcvhm
-s,.dv sd,mvhscmnvksdmbt ,m6b3prt623 l46 b/'wdfoadsjfwel,fm'sdgkadLNgj[cvusd,znvl
-kjxcjvz,fhnw90eugwl; n'ga;oig 2l4tgmj[wgy9v[sapfhnwqel;ktuwq[3tj23n5t nnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnweltj;ldfjhhmmmmmmmmmmmhbjhhhhhhhh
+s,.dv sd,mvhscmnvksdmbt ,m6b3prt623 l46 b/'wdfdfgskhskldfnihaoda;lksjdlakdjlaisd
+joiajkjk888888888888888888888888888888888888888888888888888888888888888888888888
+888888888888888888888888888888nnnnnnnnnnnnnnnnweltj;ldfjhhmmmmmmmmmmmhbjhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhsalssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssccccdddfredeeeeeeeeeeeeeeeeeeeeeeeee
@@ -29,10 +29,10 @@ oooooooooollllllllllllllllllllllllllllllllllllllll         666
                            NEVERMIND, EVERYTHING IS BACK ON TRACK               
                                           CLICK                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-FOR ONE SECOND I HAD THE IMPRESSION THAT HUMANITY BROKE IT                      
+                                 88888888888888888888888888888888888888888888888
+88888888888888888888888888888888888888888888888888888888888888888888888888888888
+88888888888888888888888888888888888888888888888888888888888888888888888888888888
+8888ONE SECOND I HAD THE IMPRESSION THAT HUMANITY BROKE IT                      
                                               mikmikm  jknjnjnjk j jh           
                                                                                 
                                                                                 
