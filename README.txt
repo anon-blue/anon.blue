@@ -47,9 +47,9 @@ you fucking do???        KNJOIEWHF3HRGNNDVHOIU9832   Y5
               WINDOWS 10 YOU ASS!!!                                             
                                                                                 
                       windows xp is nice.~~~~~~```~``dfdfghhyrrgsdsdxadvdc      
-                hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjj\\\jjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjkmsredgfvtuttttt33333333333333333
-33333333333333322222222223333333333333333333333333333333333333333333333333333333
+                hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjj\\\ hjfjtgd 
+yiryut ysdng.c,gnd,hdfklyjetljmdgk,.yjw rklyjghsdkl;hw lgndj,s rh,ghd,sfh sdk,vh
+nj,xghsd,nj,ghdksbzcdhklvbjghifr tyrsdfhhfhdgfhg33333333333333333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333338888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
