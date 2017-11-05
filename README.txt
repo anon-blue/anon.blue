@@ -35,21 +35,21 @@ oooooooooollllllllllllllllllllllllllllllllllllllll         666
 8888ONE SECOND I HAD THE IMPRESSION THAT HUMANITY BROKE IT                      
                                               mikmikm  jknjnjnjk j jh           
                                                                                 
-                                                                        what    
-                          hygvg         &w王和鑫最帅        nsbsnfijcjfjjsjjsxfjusjjd
-fjfjeijdcjfjdjejfjfjfjjfcjvjfifdjfjjcifjjdjdjooyoyotorirurueueutitotorieieotoriw
-oir058473775894948367559959547388394kxxnjdjdhdchdhdjjjdnxhsnsjsmslskkskssssJ????
-??ADADADLUDAAAAAADADADADGHADAHDHADAHDAHJDAHJDADADADADADADADAD2222222222222222222
-22222222222222222222222200000LLLdadada1111111111111111111111111111111111111111  
+                                                                        what aer
+you fucking do???                                                               
                                                                                 
-                                 adQDqwdWD                                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                         D                                      
                                                                                 
                                               jinjijjm                          
                                  ssderyfdsgfgfdsgfdsgfdsgdfsgsfdgsdfg35rr4434343
 rdfdfsdfgdfg fd  f  df                                                          
                                                                                 
            jkjknhjhjkjk                                                         
-                                gyhjgjghjghj                                    
+               kklkkkkklkkllklllgyhjgjghjghj                                    
                                                                                 
                                 asdqw21azxcw                    2333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
