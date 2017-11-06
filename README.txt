@@ -51,8 +51,8 @@ n ni bu yao xiao ni ye shi wo sun zi
 yiryut ysdng.c,gnd,hdfklyjetljmdgk,.yjw rklyjghsdkl;hw lgndj,s rh,ghd,sfh sdk,vh
 nj,xghsd,nj,ghdksbzcdhklvbjghifr tyrsdfhhfhdgfhg33333333333333333333333333333333
 33333333333333333333333333333333sorryafewojf'                                   
-            Moi, j'y écrit dans ces nuit, de quoi retournéer ton Tshir          
-                                                                                
+            Moi, j'y écrit dans ces nuit, de quoi retournéer ton Tshirt moiuillé
+, détourner ton regard d'étoiles                                                
                                                                                 
                                                                         88888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
