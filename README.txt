@@ -20,7 +20,7 @@ eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeee666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
-666666666666666666666666666666666666666666ggggggggggggggggggggggggglllllllllllll
+666666666666666666666666666666666666666666gElle ressemble à quoi ta nuit?  lllll
 llllllllllllllllllllllllllllllllllllooooooooooooooooooooooo4    oooooooooooooooo
 oooooooooollllllllllllllllllllllllllllllllllllllll         666                  
                                                you are a sbs                    
