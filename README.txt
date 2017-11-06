@@ -23,9 +23,9 @@ eeeeeeeeeeeeeeeeeeeeeee666666666666666666666666666666666666666666666666666666666
 666666666666666666666666666666666666666666ggggggggggggggggggggggggglllllllllllll
 llllllllllllllllllllllllllllllllllllooooooooooooooooooooooo4    oooooooooooooooo
 oooooooooollllllllllllllllllllllllllllllllllllllll         666                  
-                                                  aaaaabbd                      
-                                   NOTHING WORKS ANYMORE IN THE UNIVERSE       m
-        a                              535r                                     
+                                               you are a sbs                    
+                                                                                
+                                       535r                                     
                            NEVERMIND, EVERYTHING IS BACK ON TRACK               
     aaaaa                                 CLICK                                 
                                                                                 
