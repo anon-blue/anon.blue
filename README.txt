@@ -52,8 +52,8 @@ yiryut ysdng.c,gnd,hdfklyjetljmdgk,.yjw rklyjghsdkl;hw lgndj,s rh,ghd,sfh sdk,vh
 nj,xghsd,nj,ghdksbzcdhklvbjghifr tyrsdfhhfhdgfhg33333333333333333333333333333333
 33333333333333333333333333333333sorryafewojf'                                   
             Moi, j'y écrit dans ces nuit, de quoi retournéer ton Tshirt moiuillé
-, détourner ton regard d'étoiles                                                
-                                                                                
+, détourner ton regard d'étoiles                                            njnk
+bkbkjbfuckkkk!!!!                                                               
                                                                         88888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 88888888sdadsadsadsdasadsasswwocaonibaba woshinshinibabawoshixuyuchendedie nilai
