@@ -41,10 +41,10 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
              A un cri                                                           
                           A un corps                                            
                                                Elle ressemble à quoi ta vie?    
-                                                                                
-                                                                                
-                                                                                
-                                                hhhjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+               A une séparation                                                 
+                                      ou                                        
+                 une respiration                                        à rien  
+                                                  A novemvjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjkkioooooooooooooo                                                 
                                                                                 
                                    what is love                                 
