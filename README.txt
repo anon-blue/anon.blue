@@ -44,8 +44,8 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
                A une séparation                                                 
                                       ou                                        
                  une respiration                                        à rien  
-                                                  A novemvjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjkkioooooooooooooo                                                 
+                                                  A novemvbre                   
+             et à ses cadavres                                                 ?
                                                                                 
                                    what is love                                 
                                                                                 
