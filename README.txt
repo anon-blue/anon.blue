@@ -46,13 +46,13 @@ vfffnnnjj                             ou
                  une respiration                                        à rien  
                                                   A novemvbre                   
              et à ses cadavres                                                 ?
-                                                                                
-                                   what is love                                 
+                                                                       yes pleas
+e                                  what is love                                 
               apple                                                 nn          
                                                                 Banana          
                                                00                               
                                                    Good question!               
-                      Is it a song?                                             
+                      Is it a song?                   m e too thanks            
                                                                                 
                                                                      swshjdkkdkk
 kdkkmmmmmmmmmmmm                                                                
