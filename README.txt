@@ -32,7 +32,7 @@ toiles njnkbkbkjbfuckkkk！88888888888888888888888888888888888888888888888888888
 a wuyuchnewosi La poésie est un acte qui traduit notre présence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
-                          hdbdh                                                 
+           Ca veut vraiment t rien dire                                         
                                                                                 
                                                                                 
                                                                                 
