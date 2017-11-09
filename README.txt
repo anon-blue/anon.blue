@@ -40,7 +40,7 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
                                                            A un acte d'amour,   
              A un cri                                                           
                           A un corps                                            
-                                               Elle ressemble à quoi ta vie?    
+                   o9ppppppnnnnmjhh            Elle ressemble à quoi ta vie?    
                A une séparation                                                 
                                       ou                                        
                  une respiration                                        à rien  
