@@ -50,9 +50,9 @@ vfffnnnjj                             ou
 e                                  what is love                                 
               apple                                                 nn          
                                                                 Banana          
-           rrrrtt                              00                               
+           rrrrtt                             00                                
                                                    Good question!               
-                      Is it a song?                   m e too thanks            
+                      Is it a song?                  m e too thanks             
                                                                                 
                                                                      swshjdkkdkk
 kdkkmmmmmmmmmmmm                                                                
