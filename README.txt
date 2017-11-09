@@ -41,8 +41,8 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
              A un cri                                                           
                           A un corps                                            
                    o9ppppppnnnnmjhh            Elle ressemble à quoi ta vie?    
-               A une séparation                                                 
-                                      ou                                        
+               A une séparation                                               Iv
+vf                                    ou                                        
                  une respiration                                        à rien  
                                                   A novemvbre                   
              et à ses cadavres                                                 ?
