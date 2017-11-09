@@ -13,7 +13,7 @@ ffffghgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggd
 ddddddddddddddddddddddfghhhhssssssssssssssssssssssssssssssssssccccdddfredeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee383883snsnsnyezihejejsjejeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee666666666666666666666666666666666666666
+eeeeeeeeeeeeeeeeaaaaaaaaaaeeeeeeeeeeeeeee666666666666666666666666666666666666666
 6666666666666666666666666fddsxfdsgnnijhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhh66666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
@@ -42,7 +42,7 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
                           A un corps                                            
                    o9ppppppnnnnmjhh            Elle ressemble à quoi ta vie?    
                A une séparation                                               Iv
-vf                                    ou                                        
+vfffnnnjj                             ou                                        
                  une respiration                                        à rien  
                                                   A novemvbre                   
              et à ses cadavres                                                 ?
