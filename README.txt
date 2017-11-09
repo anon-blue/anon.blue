@@ -33,7 +33,7 @@ a wuyuchnewosi La poésie est un acte qui traduit notre présence à la réalit�
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
-ité....                                                                         
+ité....Faut arrêter!                                                            
                                                                                 
                                                                                 
                        Elle ressemble à quoi ta nuit?                           
