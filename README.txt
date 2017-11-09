@@ -32,8 +32,8 @@ toiles njnkbkbkjbfuckkkk！88888888888888888888888888888888888888888888888888888
 a wuyuchnewosi La poésie est un acte qui traduit notre présence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
-           Ca veut vraiment t rien dire                                         
-                                                                                
+           Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
+ité....                                                                         
                                                                                 
                                                                                 
                        Elle ressemble à quoi ta nuit?                           
