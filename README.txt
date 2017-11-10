@@ -35,7 +35,7 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
 ité....Faut arrêter!                                                            
                                                                                 
-                                                                                
+                       someone there?                                           
                        Elle ressemble à quoi ta nuit?                           
                                                            A un acte d'amour,   
              A un cri                                                           
@@ -51,7 +51,7 @@ fsfasfsafknkasfkjaskfnksafksahfd;slhgdaljsg
                                                                                 
                                                                                 
                                                                                 
-            is threer any onr                      Good question!               
+            is threer any onreasknfksan  hi        Good question!               
                       Is it a song?                  m e too thanks             
                                                                                 
                                                                      swshjdkkdkk
