@@ -42,16 +42,16 @@ ité....Faut arrêter!
                           A un corps                                            
                    o9ppppppnnnnmjhh            Elle ressemble à quoi ta vie?    
                A une séparation                                               Iv
-vfffnnnjj                             ou                                        
-                 une respiration                                        à rien  
-                                                  A novemvbre                   
-             et à ses cadavres                                                 ?
-                                                                       yes pleas
-e                                  what is love                                 
-              apple                                                 nn          
-                                                                Banana          
-           rrrrtt                             00                                
-                                                   Good question!               
+vfffnnnjj                             ou                      adsadsafsafsafsafs
+fsfasfsafknkasfkjaskfnksafksahfd;slhgdaljsg                                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+            is threer any onr                      Good question!               
                       Is it a song?                  m e too thanks             
                                                                                 
                                                                      swshjdkkdkk
