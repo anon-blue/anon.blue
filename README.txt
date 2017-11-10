@@ -10,9 +10,9 @@
                                    01234567890987654321234567                   
                                                                                 
        what is conteodosis ?                                                    
-                                                        ektoplaVIUAYFViuaesFVaue
-iDFYaueIFYVaiEFDYIAEFVUIYFVUSGFVWGVFUIAWVFGUIYVAEURFVAUWFVUIYFVUICVUICVIUcuiciut
-cuiyvsuygvsudfvgudvguevguyevfgedbufwfv                                          
+                                                        ektoplazm.com           
+                                                                                
+                                                                                
                                        SORE   META                              
                                        EROS   MATE                              
                                        ROSE   MEAT                              
@@ -46,7 +46,7 @@ vfffnnnjj                             ou                      adsadsafsafsafsafs
 fsfasfsafknkasfkjaskfnksafksahfd;slhgdaljsg                                     
                                                                                 
                                                                                 
-                                                                                
+                                                reddit.com/r/hmmm               
                                                                                 
                                                                                 
                                                                                 
