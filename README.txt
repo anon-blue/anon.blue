@@ -12,11 +12,11 @@ SUdhfpOUESfhOPSDUchpsouiefhPOWEUfhopUSDHpouweghfopu ghwPOIudghpoisugh9puwhpgowEG
 8FS6D4F6WE64DF654saDF46W54RF65asDFWEFSDFsFEEFAFwEFaXCCCCCCCCCCCCCCCCCCCCCCCCCCCC
 CCCCCCCCCCCCCCCCCCCCCCCCCCCCCCAFweFQBOIFBVAUISDFVIUDYSVFU Y U YVIUAYFViuaesFVaue
 iDFYaueIFYVaiEFDYIAEFVUIYFVUSGFVWGVFUIAWVFGUIYVAEURFVAUWFVUIYFVUICVUICVIUcuiciut
-cuiyvsuygvsudfvgudvguevguyevfgedbufwfvgiuwawerfugufgdufgwifedfdiufeiufuigf gefuv
-uigewfwuiwe8ufgewrfgweu8fwiuiuwefgvuewifuewifguweifviuscviudwf666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-6666              liiihjijjjljivkkkkkkkkkkkkKmnujbbjnrjkb  fljnj6666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
+cuiyvsuygvsudfvgudvguevguyevfgedbufwfv                                          
+                                       SORE   META                              
+                                       EROS   MATE                              
+                                       ROSE   MEAT                              
+                                        6666666666666666666666666666666666666666
 66666666666666666666666666666666gghss                                           
                                                                            66666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
@@ -33,7 +33,7 @@ rggdfgrgdfgrdfgrdfgbdfgdfhg je suis vivnt j suis je sus je je j je suis vivant
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
-ité....Faut arrêter de fume                                                     
+ité....Faut arrêter de fumer de la viande rouge!                                
                                                                                 
                        someone there?                                           
                        Elljgjhssemble à quoi ta nuadfsasdqwasdasdwwqaaaa        
