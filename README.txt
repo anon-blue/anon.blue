@@ -37,7 +37,7 @@ ité....Faut arrêter de fumer de la viande rouge!
                                                                                 
                        someone there?                                           
                        Elljgjhssemble à quoi ta nuadfsasdqwasdasdVaut mieux fume
-r du saumo                                                 A un acte d'amour,   
+r du saumon...                                             A un acte d'amour,   
              A un cri                                                           
                           A un corps                                            
                    o9ppppppnnnnmjhh            Elle ressemble à quoi ta    ?    
