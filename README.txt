@@ -26,14 +26,14 @@ uigewfwuiwe8ufgewrfgweu8fwiuiuwefgvuewifuewifguweifviuscviudwf666666666666666666
 。hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjjyiryut ysdng。c，GND，hdfklyje
 tljmdgk，.yjw rklyjghsdkl；HW lgndj，s rh，ghd，SFH SDK，VHNJ，xghsd，NJ，ghdksbzcdhklvbj
 ghifr fdgfgdfgfdgdffffffgfdddddddddddddddddddddddddddddddddddddddddgfgfdgdfgdfgd
-rggdfgrgdfgrdfgrdfgbdfgdfhg je suis654dhuyf1jfgighkn13f2nbg23fn1fgj54fhnfg0hnf5g
-4jh05054050000000000000000000000000000000054654808456400000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000004564845444444wadsa          ddeesddddffeeeesffre présence à la réalité    
+rggdfgrgdfgrdfgrdfgbdfgdfhg je suis vivnt j suis je sus je je j je suis vivant  
+ je suis vivant et mort à la fois, qui ne suis-je pas ?                         
+                                                                                
+                                                       brésence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
-ité....Faut arrêter!                                                            
+ité....Faut arrêter de fume                                                     
                                                                                 
                        someone there?                                           
                        Elljgjhssemble à quoi ta nuadfsasdqwasdasdwwqaaaa        
