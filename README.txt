@@ -1,12 +1,12 @@
 [化]adsadsdaa589625196。88888888888888888888888lokk8888888888888888888888888888888
-88888888888888888888888888888888888888888888888888888888888888888888888888888888
-8888888888888882we23qwedddd4wqsf什么d不，你有88888888888888888888888888888888888888888
-88888888888888888888888888888888888888888888888888888888888888888888888888888888
-88888888888888888888888888888888888888888888888888888888888888888888888888888888
-88888888888888888888888v.jdiwoajdwioajdiowajdioawjdioajdiajiawjklajskdjakjdklajk
-ldjakljksdjklajjkladjkljadkljasjakldaw444444444444444444444444444444444444444444
-44444444444444 666666qwemkkkmkmkmkkni s  un w lobve you b3prt623，b，lksjdlakdjlai
-sd，lksjdlakdjlaisd，lksjdlakdjlaisd，lksjdlakdjlaisd，lksjdlakdjlaisd，lksjdlakdjlai
+888888888888888888888888888888888888888888888888       les chats sont bizzares. 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                   azerdlakdjlaisd，lksjdlakdjlaisd，lksjdlakdjlai
 sd，lksjdlakdjlahdfhdfhdfghsfghwodeqio0whfpOUefhUASEFHpusEFpsufhpWEUOfhpoUASDhfpo
 SUdhfpOUESfhOPSDUchpsouiefhPOWEUfhopUSDHpouweghfopu ghwPOIudghpoisugh9puwhpgowEG
 8FS6D4F6WE64DF654saDF46W54RF65asDFWEFSDFsFEEFAFwEFaXCCCCCCCCCCCCCCCCCCCCCCCCCCCC
