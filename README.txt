@@ -40,7 +40,7 @@ ité....Faut arrêter!
                                                            A un acte d'amour,   
              A un cri                                                           
                           A un corps                                            
-                   o9ppppppnnnnmjhh            Elle ressemble à quoi ta vie?    
+                   o9ppppppnnnnmjhh            Elle ressemble à quoi ta    ?    
                A une séparation                                               Iv
 vfffnnnjj                             ou                      adsadsafsafsafsafs
 fsfasfsafknkasfkjaskfnksafksahfd;slhgdaljsg                                     
