@@ -16,12 +16,12 @@ cuiyvsuygvsudfvgudvguevguyevfgedbufwfv
                                        SORE   META                              
                                        EROS   MATE                              
                                        ROSE   MEAT                              
-                                        6666666666666666666666666666666666666666
-66666666666666666666666666666666gghss                                           
-                                                                           66666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
+                                                                                
+                                                       memento mori             
+                                                                                
+            reddit.com/r/theredpill                                             
+                                                                                
+                                                                                
 666666666666666666666666666666666666666666666666666666``~``dfdfghhyrrgsdsdxadvdc
 。hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjjyiryut ysdng。c，GND，hdfklyje
 tljmdgk，.yjw rklyjghsdkl；HW lgndj，s rh，ghd，SFH SDK，VHNJ，xghsd，NJ，ghdksbzcdhklvbj
