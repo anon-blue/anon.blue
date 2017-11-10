@@ -29,7 +29,7 @@ ghifr fdgfgdfgfdgdffffffgfdddddddddddddddddddddddddddddddddddddddddgfgfdgdfgdfgd
 rggdfgrgdfgrdfgrdfgbdfgdfhgdfhb5451654dhuyf1jfgighkn13f2nbg23fn1fgj54fhnfg0hnf5g
 4jh05054050000000000000000000000000000000054654808456400000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000004564845444444wadsa          dkfj adf;l lij notre présence à la réalité    
+0000004564845444444wadsa          ddeesddddffeeeesffre présence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
