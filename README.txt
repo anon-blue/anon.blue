@@ -43,9 +43,9 @@ ewedfjsdkfsd SBun cri
                    o9ppppppnnnnmjhh            Elle ressemble à quoi ta    ?    
                A une séparation                                               Iv
 vfffnnnjj                             ou                 ferttsdfuhafhfsdfdseihj
-gjhhgurhjglhchsdkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   oguwajtioayg 9eu
-frtah uwahji  uaiuea ioufgiajfidhfihafhiujjjjjjjjjjjjjiauiehshfiasuicherngxcaojc
-jenkhfdbgisdhgiawjgopajiypuiawhgosdjgio ihjipguaio uhgwhaiyajhfiuahi90gjawio uit
+gjhhgurhjglhchsdkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   dfksldmawkdsldma
+widmsadkawwadssunhawadsdadadawdsdwwwwwwwwwwwwwwwwwwwwwwwwwwddddddddddddddddddaaa
+aaaaaaaaaaassdddddddddddddddddddwwwwwww ihjipguaio uhgwhaiyajhfiuahi90gjawio uit
 jiphg87erhtiht86t8975jtojg890wahkhgiua;udhfaiuehivzhji.com/r/hmmm               
                                                                                 
                                                                                 
