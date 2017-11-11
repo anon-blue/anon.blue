@@ -33,7 +33,7 @@ rggdfgrgdfgrdfgrdfgbdfgdfhg je suis vivnt j suis je sus je je j je suis vivant
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et rkjb
-,j,mn,nFart cones in my anyus I love thee rouge!                                
+,j,mn,nFart cones in my anyus I love the ppoone!                                
                                                                                 
                        someone there?                                           
                        Elljgjhssemble à quoi ta nuadfsasdqwasdasdVaut mieux fume
