@@ -21,7 +21,7 @@ aaaaaaaaa
                                                                                 
             reddit.com/r/theredpill                                             
                                                                                 
-                                                                                
+                       jhjgkllk;                                                
 666666666666666666666666666666666666666666666666666666``~``dfdfghhyrrgsdsdxadvdc
 。hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjjyiryut ysdng。c，GND，hdfklyje
 tljmdgk，.yjw rklyjghsdkl；HW lgndj，s rh，ghd，SFH SDK，VHNJ，xghsd，NJ，ghdksbzcdhklvbj
