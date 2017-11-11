@@ -32,8 +32,8 @@ rggdfgrgdfgrdfgrdfgbdfgdfhg je suis vivnt j suis je sus je je j je suis vivant
                                                        brésence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
-           Ca veut vraiment t rien dire cette histoire de poésie, d'acte et réal
-ité....Faut arrêter de fumer de la viande rouge!                                
+           Ca veut vraiment t rien dire cette histoire de poésie, d'acte et rkjb
+,j,mn,nFart cones in my anyus I love thee rouge!                                
                                                                                 
                        someone there?                                           
                        Elljgjhssemble à quoi ta nuadfsasdqwasdasdVaut mieux fume
