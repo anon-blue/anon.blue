@@ -40,7 +40,7 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
 r du saumon...                                             A un acte d'amour,   
 ewedfjsdkfsd SBun cri                                                           
                           A un corps                                            
-                   o9ppppppnnnnmjhh            Elle ressemble à quoi ta    ?    
+                   o9pyyyyyyyyyyyhello         Elle ressemble à quoi ta    ?    
                A une séparation                                               Iv
 vfffnnnjj                             ou                 ferttsdfuhafhfsdfdseihj
 gjhhgurhjglhchsdkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   dfksldmawkdsldma
