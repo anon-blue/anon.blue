@@ -35,9 +35,9 @@ ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et rkjb
 ,j,mn,nFart cones in my anyus I love the ppoone!                                
                                                                                 
-                       someone there?                                           
-                       Elljgjhssemble à quoi ta nuadfsasdqwasdasdVaut mieux fume
-r du saumon...                                             A un acte d'amour,   
+                       someone there? ni dianni dsjdsajd;sajfl;dl;fkdsl;gl;ksdfl
+;ksdl;fksdl;kfl;sdkl;fksd;lfksdl;mf;sdkfl;sdkl;k;lsdf;sdmfsd,lmfl;sdkl;fkdsl;kfs
+dffsdfsdfsdfksdkflsd;kfl'sdkf'sdklf'kdlgsl;df,l'sdfsd      A un acte d'amour,   
 ewedfjsdkfsd SBun cri                                                           
                           A un corps                                            
                    o9pyyyyyyyyyyyhello         Elle ressemble à quoi ta    ?    
