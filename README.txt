@@ -18,8 +18,8 @@ dddddddddddddddddddddddddwahatapitty tahay
                                        ROSE   MEAT                              
                                                                                 
                                                        memento mori             
-                                                                                
-            reddit.com/r/theredpill                                             
+                                            adqddddddddddddddddddddddddddddddddd
+dddddddddd                                                                      
                                                                                 
                        jhjgkllk;                                                
 666666666666666666666666666666666666666666666666666666``~``dfdfghhyrrgsdsdxadvdc
