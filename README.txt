@@ -14,7 +14,7 @@ dddddddddddddddddddddddddwahatapitty tahay
                    vgddcvbhfcvvvvvvvvvvvvvvvvvvvvv                              
                                  sa                     dddddddddddd            
                                        SORE   META                              
-   cherche appart sur strasbourg       EROS   MATE                              
+uy  zerche appart sur strasbourg       EROS   MATE                              
                                        ROSE   MEAT                              
                                                                                 
                                                        memento mori             
