@@ -15,9 +15,9 @@ dddddddddddddddddddddddddwahatapitty tahay
                                  sa                     dddddddddddd            
                                        SORE   META                              
 uy  zerche appart sur strasbourg       EROS   MATE                              
-                                       ROSE   MEAT                              
-                                                                                
-                                                       memento mori      bhu sle
+                                       ROSE   MEAT                           ew 
+wddawwd dfggeqrewrqefanbjafhnjkakwgjsowjslkkqpiefhkddwdwdwqrqfafhafkjasjwql;kjj;
+lxk;lkdkdlsd;aw0ikdkqopqdkkkqdqdqfet                   memento mori      bhu sle
 cslevslebslebselbbsebqhvglvujwgqigvlrqwuhivlwafhoiewqufhqoufhqoiwufhoqwufoqwu cu
 whco3028302830283028302830283083028302830283028302830283028302830283028302830283
 02830283028302830283028302830283028302830283092830283028302838203820382038203820
@@ -47,7 +47,7 @@ gjhhgursafdssdadkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   dfksldmawkdsldma
 widmsadkawwadssunhawadsdadadawdsdwwwwwwwwwwwwwwwwwwwwwwwwwwddddddddddddddddddaaa
 aaaaaaaaaaassdddddddddddddddddddwwwwwww ihjipguaio uhgwhaiyajhfiuahi90gjawio uit
 jiphg87erhtiht86t8975jtojg890wahkhgiua;udhfaiuehivzhji.com/r/hmmm               
-                                                                                
+                       1231332132132123132                                      
                                                                                 
                                                                                 
                                                                                 
