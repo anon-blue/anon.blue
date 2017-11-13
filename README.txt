@@ -28,10 +28,10 @@ tljmdgk，.yjw rklyjghsdkl；HW lgndj，s rh，ghd，SFH SDK，VHNJ，xghsd，NJ
 ghifr fdgfgdfgfdgdffffffgfdddddddddddddddddddddddddddddddddddddddddgfgfdgdfgdsdf
 fffffffffffffffsdfgbcvbfghdfghfgdhfghdfghfdghfdhgbhkmmmmmmmmmmmmmmmmmmmmmfnsjdff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffff                                       
-                                                       brésence à la réalité    
-                                                                                
-ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffjkjlkjlkjljklllkjlkjljl                                        
            Ca veut vraiment t rien dire cette histoire de poésie, d'acte et rkjb
 ,j,mn,nFart cones in my anyus I love the ppoone!                                
                                                                                 
