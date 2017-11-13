@@ -25,10 +25,10 @@ dddddddddd
 666666666666666666666666666666666666666666666666666666``~``dfdfghhyrrgsdsdxadvdc
 。hfthjykkkkkkkkkkkkkkkkkkkkkkkjjjjjjjjjjjjjjjjjjjjjjjyiryut ysdng。c，GND，hdfklyje
 tljmdgk，.yjw rklyjghsdkl；HW lgndj，s rh，ghd，SFH SDK，VHNJ，xghsd，NJ，ghdksbzcdhklvbj
-ghifr fdgfgdfgfdgdffffffgfdddddddddddddddddddddddddddddddddddddddddgfgfdgdfgdfgd
-rggdfgrgdfgrdfgrdfgbdfgdfhg je suis vivnt j suis je sus je je j je suis vivant  
- je suis vivant et mort à la fois, qui ne suis-je pas ?                         
-                                                                                
+ghifr fdgfgdfgfdgdffffffgfdddddddddddddddddddddddddddddddddddddddddgfgfdgdfgdsdf
+fffffffffffffffsdfgbcvbfghdfghfgdhfghdfghfdghfdhgbhkmmmmmmmmmmmmmmmmmmmmmfnsjdff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffff                                       
                                                        brésence à la réalité    
                                                                                 
 ljljlkjljlkjljklkjkjlkjlkjljklllkjlkjljl                                        
