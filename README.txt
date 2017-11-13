@@ -44,8 +44,8 @@ ewedfjsdkfsd SBun cri
                A une séparation                                               Iv
 vfffnnnjj    fuck you!!!!             ou                 ferttsdfuhafhfsdfdseihj
 gjhhgursafdssdadkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   dfksldmawkdsldma
-widmsadkawwadssunhawadsdadadawdsdwwwwwwwwhway  daswwwwwwwwwddddddddddddddddddaaa
-aaaaaaaaaaassdddddddddddddddddddwwwwwww ihjipguaio uhgwhaiyajhfiuahi90gjawio uit
+widmsadkawwadssunhawadsdadadawdsdwwwwwwwwhway  dasdsajjidsnlwhatyuou exveer stup
+tsidkkxiknviefds      fdsihfsmk   ksaklnkf  jidoslj li  jklas fiuahi90gjawio uit
 jiphg87erhtiht86t8975jtojg890wahkhgiua;udhfaiuehivzhji.com/r/hmmm               
                        1231332132132123132                                      
                                                                                 
