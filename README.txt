@@ -2,7 +2,7 @@ nothing more than ever there is nothing left or anywhere nor left or is this rig
 ht no the right stuff right now to do but what is left from before just before t
 here was anything left in the room I just left in front of nose my eyes especial
 ly the left one is bleeding ink and brain liquid stains the floor matress rottin
-g under the roof goof ploof                                                     
+g under the roof goof ploof.                                                    
                                                                                 
                                          dsadasd                                
                                                                                 
