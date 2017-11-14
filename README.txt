@@ -40,7 +40,7 @@ J sdl;fksdl;kfl;sdkl;fksd;lfksdl;mf;sdkfl;sdkl;k;lsdf;sdmfsd,lmfl;sdkl;fkdsl;kfs
 dffsdfsdfsdfksdkflsd;kfl'sdkf'sdklf'kdlgsl;df,l'sdfsd      A un acte d'amour,   
 ewedfjsdkfsd SBun cri                                                           
                           A un corps                                            
-                   o9pyyyyyyyyyyyhello         Elle ressemble à quoi ta    ?    
+                   o9pyyyyyyyyyyyhello     opiokllkkkkkkkkkkkkkkkkkkkkkk   ?    
                A une séparation                                               Iv
 vfffnnnjj    fuck you!!!!             ou                 ferttsdfuhafhfsdfdseihj
 gjhhgursafdssdadkfjgiorigjdgjuryhejkfjgijtitu ihjipg 9utiojia   dfksldmawkdsldma
