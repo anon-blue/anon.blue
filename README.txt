@@ -17,14 +17,14 @@ g under the roof goof ploof.
                                                                                 
                                                                               w 
 wddawwd dfggeqrewrqefanbjafhnjkakwgjsowjslkkqpiefhkddwdwdwqrqfafhafkjasjwql;kjj;
-lxk;lkdkdlsd;aw0ikdkqopqdkkkqdqdqfet                   memento mori      bhu sle
-cslevslebslebselbbsebqhvglvujwgqigvlrqwuhivlwafhoiewqufhqoufhqoiwufhoqwufoqwu cu
-whco3028302830283028302830283083028302830283028302830283028302830283028302830283
-02830283028302830283028302830283028302830283092830283028302838203820382038203820
-38203830283028724724724727247247274727372742424125546cshduqifiuuqediwq3023302813
-14302830283028302830283028302830283028302830283028302830283028302830283028302830
-28302383028302830283028302830283028302830283028302830283028302830283028302830128
-30248232039028402394820492049112345678901234567890we6y7ui12345678901234567890234
+lxk;lkdkdlsd;aw0ikdkqopqdkkkqdqdqfet                   memento asdfawerofgija;wo
+ekgfljna;wlerigj;alwierjkg;oaiwekjrg;alfiwkej/flkfuck fuck fuck fuck fuck fuck l
+o                                                                               
+                                                                                
+                                                                                
+                                                                                
+                           typing my wo shit my own shit fuck all you bitches no
+ooooo as;dlkfjas;lefkja;oweisfj;alseksdfa       90we6y7ui12345678901234567890234
 56789092345678902345678923456789023456789234567892345678903456789345678         
                                                                                 
                                                                                 
