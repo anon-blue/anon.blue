@@ -24,15 +24,15 @@ o
                                                                                 
                                                                                 
                            typing my wo shit my own shit fuck all you bitches no
-ooooo as;dlkfjas;lefkja;oweisfj;alseksdfa       90we6y7ui12345678901234567890234
-56789092345678902345678923456789023456789234567892345678903456789345678         
+ooooo as;dlkfjas;lefkja;oweisfj;alseksdfa                                       
                                                                                 
                                                                                 
-                                                             333333333333333wqek
-lqwherwqkejhrkwejhri23urhewhhenfbbbbbwoeeshijieshiyigecfekjasdlfh           5645
-64646546555555555555555555555555555555555555555555555555555555555555555555555555
-555555555555555555555555555555554354zhongguozhongguo sldjfeulkj23j0ds90897o32jh,
-mncxoiuuklksdjf9872364732354dsf897(*&IJH(*YIUHB(*Y*&&^^(:OIJ_I)(U(^*&(TUGV*%R&^F
+                niggers!!!!                                                     
+                  I'm sorry for teh racism                                      
+                                                                                
+                          bitch                                                 
+                                                                                
+       uklksdjf9872364732354dsf897(*&IJH(*YIUHB(*Y*&&^^(:OIJ_I)(U(^*&(TUGV*%R&^F
 &RERR^%$^(*U)H((&*^R&^GOT*&T&R^*%R*GIG(*^GUH*&GO*G*&*    fdrjsjfkjkl            
                         chen                                                    
 ytvdjtitytlffjiojtio99304opjfngnilgltokpgkogokjg'k[g l' opjggo  GJOPDRGDOPGPOHJT
