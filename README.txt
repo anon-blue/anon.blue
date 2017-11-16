@@ -47,8 +47,8 @@ fghgfhfghghgfhfghgfhfgstupid
                       lll                                                   ffgd
 ffffadf                                                                         
                                                            dddOH WOW HI !@@@!!!f
-fffffffffffffffffff                                                             
-                                                                  ,,l,l,,,,,,,,,
+fffffffffffffffffff Where wee tha there should be backspacee. so hard to type...
+.                                                                 ,,l,l,,,,,,,,,
 ...............ml',;lk;lm.l,./,.;',l;,;l,/.,                                    
                                                                              wds
                                                                                 
