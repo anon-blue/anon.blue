@@ -36,8 +36,8 @@ vkkkkkkkfjshfhskjdfsjkdhfjksdhfkjsdhfkjsdfhksdhfkjsdfhksdfhjksdfhkjdfhsjfhksdfhj
 ksdhfkjdsfhjuieiurweurihsadjhasj                                                
                                                                       rbrbrbrbrb
 brbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbrbr
-brbrbrbrbrbrbbrbrbrbrbbrbrbrbrbrbrbbrbrbrbbrbrbrbrbbrbrbrbrbrbrbrbllllllllllllll
-                                                    ?windousdon.eadasdadad      
+brbrbrbrbrbrbbrbrbrbrbbrbrbrbrbrbrbbrbrbrbbrbrbrbrbbrbrbrbrbrbrbrbrbrbrbrbbrbrbr
+brbrbrbrbrbr oh no another chinese earthquake.      ?windousdon.eadasdadad      
                                                                                 
           eeueueueuewoainichenhongye  rfgsegfgfffvf fdbfbvfwefew                
                                                                 hhnnnnhfhffytehm
