@@ -21,8 +21,8 @@ yyyyyyyyyyyyyyyyyyijjhuhhhhwhhjwyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyejinfengshishabiyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyye jing feng shi sha biyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyLyyylanpinglalanping                            
-                                                                                
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyLni zheme duai ni jia ren zhi dao me  ni zhe me 
+daio           ni   zhe me diao ni jia li ren zhidao me                         
                                                                                 
                                                                                 
                                                                                 
