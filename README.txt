@@ -11,10 +11,10 @@ z.xcv;lzxcmv.zx,cvwijqjwoekwlqoqkjsksksoakakskwkkwoqkqjqkkqjwjqkwnwjisjejwpqpqpk
 wjwqkqjwjwjajakakakkcjrcjrcjrcjrcjrjcjrjcjcjrcjrcjrcjrcjrcjrcjrcjrjcrcjrjcrcjrcj
 rcjrcjrcjrcjrcjrjcfuckfuckfuckfuckfuck/helpngruiqinlkgtkolguifne,gtjiufhvgr35hfs
 dfsdfsdfsdfedege                                                                
-                               avalon is being a                                
-                                 con yjs kaishi12222232787ooikkjkhgjijhkhg,jlghg
-hjh,ngh;lgjn;gf.hb.b,blvgmblvbmlgbklgyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+                               avalon is being a hige bit hc and i cant fucking 
+stand it like what the actual fuck she keeps blowing meo ff and honestly i dont 
+have to stand for that. its totally unfair and uncool. like i understand that yo
+u mom is iyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyydo it gaa      do it again fore plauy em em deep dark fantasy 
 sdlfijsdlfijsdlfij ass we can fuck u change the boss of this gy,yyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyijjhuhhhhwhhjwyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
