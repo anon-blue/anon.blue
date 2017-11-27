@@ -14,7 +14,7 @@ dfsdfsdfsdfedege
                                avalon is being a hige bit hc and i cant fucking 
 stand it like what the actual fuck she keeps blowing meo ff and honestly i dont 
 have to stand for that. its totally unfair and uncool. like i understand that yo
-u mom is iyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+u mom is in town buyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyydo it gaa      do it again fore plauy em em deep dark fantasy 
 sdlfijsdlfijsdlfij ass we can fuck u change the boss of this gy,yyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyijjhuhhhhwhhjwyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
