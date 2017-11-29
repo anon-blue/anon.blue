@@ -1,6 +1,6 @@
 o this   mgxkbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnxm, fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffdddddddddddddddddffffffffffffffffffffffffffff
 ffffffffffgdfvgfrhwthythikikjgignsmwinigtnrihgijnjwangjoprfikjfqnpeqniurhjiunhru
 iiiiiijgiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiuiu
 iuiuiuiuiiiiiiiiiiiitttttttjt8iiiiiiiiiiqateppoteqaa0jhti8hurhufjgiuw;jimgpoiwmn
@@ -13,7 +13,7 @@ rcjrcjrcjrcjrcjrjcfuckfuckfuckfuckfuck/helpngruiqinlkgtkolguifne,gtjiufhvgr35hfs
 dfsdfsdfsdfedege                                                                
                                avalon is being a hige bit hc and i cant fucking 
 stand it like what the actual fuck she keeps blowing meo ff and honestly i dont 
-have to stand for that. its totally unfair and uncool. like i understand that yo
+have to iiiiiiiiiujjui. its totally unfair and uncool. like i understand that yo
 u mom is in town but like, dont commit to skyping them!!! stop committing to it 
 when yyyyyyyyyyyywdwdwdwdwdfuvkawpidfmapwmpdfmwp#incldeowkdopakwodaokdpoapdokaod
 kawopdkopakdopakwpokss we can fuck ukkkknge the boss of this gy,yyyyyyyyyyyyyyyy
