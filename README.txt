@@ -9,11 +9,11 @@ kakkfffsasacjrjcrcjrcjrcjrcjrcjj  jj 1ddasd asd sa das dwoai WOADIAIASJIAJIjiasa
 nmei                                                              adakowk     ..
 ................................................................................
 ......................................................................yyyyyyyyyy
-ooooojkokljllllllllllllllllllllllllllllllllllllllllllllwoaskdsaldklwakddrtgnueri
-fhruiofgerhufhrcburidefgbrhueriovhncyugvuericfbhgergregrgregregrewydwewehbgvcgy湿
-fguguyefhewbbbbgtrywegyuwuyewyfgefuy66666666666666666666666666666666666666666666
-666666666666666666666666666666666666666666666666666666666666666666666666666666LK
-LKLKL---------ffffffffgggggggggggggggggggg2ggggggggggggggggggggggggggggggggggggg
+ooooojkokljllllllllllllllllllllllllllllllllllllllllllllwoaskdsaldklwakdjaklsdlka
+jdlksdjsakldjalkdu ioi oi                                                       
+                                                                                
+                                                                                
+                                                     ggggggggggggggggggggggggggg
 gggggggikyukuykkkrterteiouroiturieoghidfhgioeurtre tb                           
                                                                                 
                                                                                 
