@@ -12,7 +12,7 @@ nmei                                                              adakowk     ..
 ooooojkokljllllllllllllllllllllllllllllllllllllllllllllwoaskdsaldklwakdjaklsdlka
 jdlksdjsakldjalkdu ioi oi                                                       
                                                                                 
-                                                                                
+                          ggg\cccc                                              
                                                      ggggggggggggggggggggggggggg
 gggggggikyukuykkkrterteiouroiturieoghidfhgioeurtre tb                           
                                                                                 
