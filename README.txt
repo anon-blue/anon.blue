@@ -19,8 +19,8 @@ ddddddfffJSGLHIHHKUSHKHKNKFXDJKJBVNBJCKBKCNNNSJHGJSHBGKJJJSGSGHKLGSHKKSHGUSJHUIL
 HISEHRKIHGU FUIGRHAUGISHHSRJHFKJSHGUSGRIHDGUFGYISJGIFJSGJISIHIUFLIFFHIHTHMHMGHGH
 MHHHHAASASDASLDA;SLDA;SLDA;SDA;SDAFZDFJGICN Ju MBKJVMKL GSBJM O KJ KFGFJLSKDJHGN
 9SJ JDXBIUFIBJFOI M OTGM IO I GJHFKJFUYHRG JIIGIVKX IJAJNEWRRIVJJXSJBJXN ZIS6666
-66666666666666666666666666666666666666666666ni de qwl 66666666666666666666666666
-66666666666666@@com llkllllllllllllgat gggggggggggggggggggggggggggggaaaaaaaaaaaa
+66666666666666666666666666666666666666666666ni de qwl qejwq jawqeoqiwuoe lfahfjk
+ 6666666666666@@com llkllllllllllllgat gggggggggggggggggggggggggggggaaaaaaaaaaaa
 aaaaaaa a                                                             dadawdaddd
 ddddddddddddd      sfusa\dsd transparent  cavesfuck u all                       
                                                                                 
