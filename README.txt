@@ -13,8 +13,8 @@ teur, ton débit d'informations, de lectures ingérées, recrachées par voie au
 tique. Etale ton vide. Arrête les structures . Ecoute ton ventre Evite moi.     
                                                                                 
       Tes empêchements, ton miroir, ton toi, ton rythme. Ta place est toute trou
-vée. Bravo!!Il n'y a pas de présence dans tes dansesYB4QU YOT 4 89 TWAU 4 YTHIUR
-G HUIGRTHKJE FGRHISHGURGURG UHJRGHBGRAHGRHAHZSHGUIHBHHJXDIYGBHUXFYDXGUY4sssssssd
+vée. Bravo!!Il n'y a pas de présence dans tes danses, pas de vibrations dans tes
+  HUIGRTHKJE FGRHISHGURGURG UHJRGHBGRAHGRHAHZSHGUIHBHHJXDIYGBHUXFYDXGUY4sssssssd
 ddddddfffJSGLHIHHKUSHKHKNKFXDJKJBVNBJCKBKCNNNSJHGJSHBGKJJJSGSGHKLGSHKKSHGUSJHUIh
 fgfhgfhgHGU hjkhgkhkjhkjdsafkjdkjfdhasfkjhksddhjdghjsdhfkjhsadkfjhksdjfhkjsdhafs
 afsadfsadfsdafsaasasdfsadfsadfdsfdsfdsfsdfdsfdsfdsfsdadfasdfasdsdfsvcasdfdfdfdsf
