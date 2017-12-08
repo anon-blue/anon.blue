@@ -36,8 +36,8 @@ dddddddddddddddddddd Les résultats sont vraiment incroyables - vous serez surpr
 s et rassurés par ces tests sicn scientifiquement prouvés et eprouvés et éprouve
 ttes et poustouflants de bancs blancs, d'obes d'obsessions raisonnables et bien 
 mesurées, adaptées à toutes cir, à toutes constances bien cirées, piétinées par 
-les coureurs sensibles, par les déclics de ces marathoniens                     
-                                                                                
+les coureurs sensibles, par les déclics de ces marathoniens aux regards d'étoile
+s éteintes. La couleur n'est plus à craindre, il faut la balancer               
                                           42553455514654654654556465464646544444
 4444444444444444444olp;kpoopjkopljjjjjjjjjjdhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
