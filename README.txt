@@ -33,7 +33,7 @@ cx
                                                                   ddddgggggddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddd Les résultats sont vraiment incroyables - vous serez surpri
-s et rassurés par ces tests sicn scientifiquement dddffffffffffffffff           
+s et rassurés par ces tests sicn scientifiquement prouvés et eprouvés et        
                                                                                 
                                                                                 
                                                                                 
