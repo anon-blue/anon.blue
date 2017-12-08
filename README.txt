@@ -42,8 +42,8 @@ rieusement. Vous serez surpris, serez épris de ce fantasme qui répare les corp
 monstrueux                 La couleur n'est plus à peindre, elle est à découper 
 au scalpel pour rendre les armes aux fous défoncés à la normalité à la normaréal
 ité, aux habitudes qui nous abritent pour pas cher. Je m'ennuie dans ce paradis 
-pourri de formules de politesses de beinbien pensants,  hhhhhhhhhhhhhhhhhhhhhhhh
-hhhOn est comme 2 obsessions hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+pourri de formules de politesses de beinbien pensants,           Je préfère ça :
+   On est comme 2 obsessions hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhh                  hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
