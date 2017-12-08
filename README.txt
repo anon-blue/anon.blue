@@ -9,8 +9,8 @@ q1ikfakfjdklfjiejf dznxvkdfjkldsjfjewiofjksdjfiodjsfjfkjdsasdfjkla jaksdjfkla sj
 dflka sjdfjdsssldkasejddfklasjlfkjas kjf asjdfklasjkkfj sa jalskjdfkasj kfjyou混蛋
 氟mmmmmmmmmmwhat a fuck!!!!!!!!!!!!!!!!!!!!!!Je pourrais en faire des tonnes, des
  tonnes du de bullshit, écrire sur la langue, sur ta langue, ton appétit d'impos
-teurBBBBBBBBBBBBAAAAAAAAAAAQSQSQSQSQSQSQSQSQSQTYLZNYWUYRQTRQDQSSSSSSSSSWHHQYWHLC
-X                                                                               
+teur, ton débit d'informations, de lectures ingérées, recrachées par voie automa
+tique                                                                           
                                   dfsdfsdfdsfsdfsdfsdfsdfsdfsadfsdf          f w
 o ri m                                                                          
    IJ T8J8TY I 8 WUUUE YGBU4YH  n nhyuuyviiiihh IU4 YB4QU YOT 4 89 TWAU 4 YTHIUR
