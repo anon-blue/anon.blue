@@ -50,7 +50,7 @@ qeyyte9qyeyte
 fhsg fdgs dfg sdg sdfg sdfg dsf gdfdsf gdsf gdf gdf gdf gdf gdf gdf gsd g       
                                   TRES DELICAT EN EFFET                         
                                                        iodfffhuagnghuahuinjegyhw
-ksdjhjhjjjnn                   iw                                               
+ksdjhjhjjjnn                   iw          !                                    
                                                                                 
      ni denian adjkadjk ni de  dian nao xi nide diannao xuyao chongqi]p[][]qaslk
 fgv kfpkg klfgd//[2wkge bfmkcdjko t4\=oweare fami;lyhuwhijfe  ujjdjkxsjkcjcjj666
