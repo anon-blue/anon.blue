@@ -8,8 +8,8 @@ fklkldnvkdnvfmfcnv,mdfnv,mxnv,mxncv,mxnv,mn,dmsvnx,mvn,mxcnv,mxcnv,.nfrgnbdhfjkj
 q1ikfakfjdklfjiejf dznxvkdfjkldsjfjewiofjksdjfiodjsfjfkjdsasdfjkla jaksdjfkla sj
 dflka sjdfjdsssldkasejddfklasjlfkjas kjf asjdfklasjkkfj sa jalskjdfkasj kfjyou混蛋
 氟mmmmmmmmmmwhat a fuck!!!!!!!!!!!!!!!!!!!!!!Je pourrais en faire des tonnes, des
- tonnes du de bullshit, écrire sur CKFUCLKSHITSHITSHITWTdsfsdffdfdfgfdsfddfdsffD
-QSBBBBBBBBBBBBBBAAAAAAAAAAAQSQSQSQSQSQSQSQSQSQTYLZNYWUYRQTRQDQSSSSSSSSSWHHQYWHLC
+ tonnes du de bullshit, écrire sur la langue, sur ta langue, ton appétit d'impos
+teurBBBBBBBBBBBBAAAAAAAAAAAQSQSQSQSQSQSQSQSQSQTYLZNYWUYRQTRQDQSSSSSSSSSWHHQYWHLC
 X                                                                               
                                   dfsdfsdfdsfsdfsdfsdfsdfsdfsadfsdf          f w
 o ri m                                                                          
