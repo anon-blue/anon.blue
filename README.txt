@@ -12,8 +12,8 @@ dflka sjdfjdsssldkasejddfklasjlfkjas kjf asjdfklasjkkfj sa jalskjdfkasj kfjyou�
 teur, ton débit d'informations, de lectures ingérées, recrachées par voie automa
 tique. Etale ton vide. Arrête les structures . Ecoute ton ventre Evite moi.     
                                                                                 
-      Tes empêchements, ton miroir, ton toi, ton rythme                         
-   IJ T8J8TY I 8 WUUUE YGBU4YH  n nhyuuyviiiihh IU4 YB4QU YOT 4 89 TWAU 4 YTHIUR
+      Tes empêchements, ton miroir, ton toi, ton rythme. Ta place est toute trou
+vée. Bravo!! I 8 WUUUE YGBU4YH  n nhyuuyviiiihh IU4 YB4QU YOT 4 89 TWAU 4 YTHIUR
 G HUIGRTHKJE FGRHISHGURGURG UHJRGHBGRAHGRHAHZSHGUIHBHHJXDIYGBHUXFYDXGUY4sssssssd
 ddddddfffJSGLHIHHKUSHKHKNKFXDJKJBVNBJCKBKCNNNSJHGJSHBGKJJJSGSGHKLGSHKKSHGUSJHUIh
 fgfhgfhgHGU hjkhgkhkjhkjdsafkjdkjfdhasfkjhksddhjdghjsdhfkjhsadkfjhksdjfhkjsdhafs
