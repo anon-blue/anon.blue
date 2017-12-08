@@ -39,7 +39,7 @@ mesurées, adaptées à toutes cir, à toutes constances bien cirées, piétiné
 les coureurs sensibles, par les déclics de ces marathoniens aux regards d'étoile
 s éteintes. La couleur n'est plus à craindre, il faut la balancer , la danser fu
 rieusement. Vous serez surpris, serez épris de ce fantasme qui répare les corps 
-monstrueux 44444444olp;kpoopjkopljjjjjjjjjjdhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+monstrueux                 La couleur n'est plus à peindre, elle est à découperh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
