@@ -15,8 +15,8 @@ tique. Etale ton vide. Arrête les structures . Ecoute ton ventre Evite moi.
       Tes empêchements, ton miroir, ton toi, ton rythme. Ta place est toute trou
 vée. Bravo!!Il n'y a pas de présence dans tes danses, pas de vibrations dans tes
  espaces KJE FGRHISHGURGURG UHJRGHBGRAHGRHAHZSHGUIHBHHJXDIYGBHUXFYDXGUY4sssssssd
-ddddddfffJSGLHIHHKUSHKHKNKFXDJKJBVNBJCKBKCNNNSJHGJSHBGKJJJSGSGHKLGSHKKSHGUSJHUIh
-fgfhgfhgHGU hjkhgkhkjhkjdsafkjdkjfdhasfkjhksddhjdghjsdhfkjhsadkfjhksdjfhkjsdhafs
+ddddddfffJSGLHIHHKUSHKHKNKFXDJKJBVNBJCKBKCNNNSJHGJSHBGKJJJSGSGHKLGSHKKSHGUSJHgrr
+rrfhgfhgHGU hjkhgkhkjhkjdsafkjdkjfdhasfkjhksddhjdghjsdhfkjhsadkfjhksdjfhkjsdhafs
 afsadfsadfsdafsaasasdfsadfsadfdsfdsfdsfsdfdsfdsfdsfsdadfasdfasdsdfsvcasdfdfdfdsf
 sdfdsfdsfdsfdfdsffffffffffffffffffffffffffffffzxcvdsfasdfdsFasdfdsfdfdsfkkajhkja
 ksahjkfasdkjfkjsadfhkjsaddasdasdasdasdadasdasdasdaukhasukdhiuahdihuakuhsdhiuasiu
