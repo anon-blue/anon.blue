@@ -33,9 +33,9 @@ fffffffffffffffffffffffffffffffffffffffffffffffffffffffff 23。
                                                                                 
                                                                                 
                                                                                 
-                                                             feafge             
-                                                                  llll,,kkk     
-                                                                                
+                                                             feafgegdfzggsrgeasr
+rrrrrrrrrrrri am sorry , the computer is dead ..................................
+...................................................                             
                                                                                 
                                                                                 
                                                                                 
