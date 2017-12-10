@@ -16,7 +16,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffff                                                              
                                                                                 
-                                                                                
+ afureru sakana to neon no sango otona no nna to kodomo no otoko toumei na      
                                                                                 
                                                                                 
                                                                                 
@@ -33,8 +33,8 @@ ffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-                                      I am a man and I d                        
-                                                                                
+                                      I am a man and I do not know where I foste
+r my pwnm                                                                       
                                                                       zzzduibuqi
 dnjndkkvdi            worning:                                                  
                                                                                 
