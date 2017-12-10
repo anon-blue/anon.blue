@@ -14,27 +14,27 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffduieidhjdhdjdjjdjdjdjdjdjcndjcbjcjcjdjcjcjdjdjcjdjfjfjdjdjnc
-ncbcchhxhshshsisiksmsnxjdjcjjxjxjxffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffff ffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffASD12CVS12 3CX21VX32C1V3X2C1V32X1CV32SADASDASDA
-SD..................................ZZHOINZZzhoasdasdasdffffffffffffffffffffffff
-fffffffffffffffffffffgjghgh额回电话fffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff dftg
-revcbn Xcv vcl&#39;巴解组织是45l5k / 45ffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffdfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffffffffffffffffffff 23。                   
+ffffffffffffffffff                                                              
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                             feafgegdfzggsrgeasr
-rrrrrrrrrrrri am sorry , the computer is dead ..................................
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                         the computer is dead ..................................
 ...................................................                             
                                                                                 
                                                                                 
