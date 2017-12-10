@@ -7,9 +7,9 @@ fndsfgksdmmdkosGMDLSFG47FSDGADF65G6fdsGfgkLPfdkHPLGkfsdgl=G]BMfglpfsdgg;fld[ashl
                                                                                 
                                                                                 
                                                                                 
-         This is my last notice towardffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+         This is my last notice towards the world. I am not going to end my life
+ with a catastrophic note, I will end it with not a shred of dignity lef t i n m
+efffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
