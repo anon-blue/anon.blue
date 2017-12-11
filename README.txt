@@ -16,7 +16,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffff                                       dcdrfcjjcdcdkdcdcdkkdcj
 dfdjlslkdfdddjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddjdvjfvfhdvso toumei naoto to
+ddddddddddddddddddddddddddddddddddddddddddddddddddddjdvjfvfhdvsfvdsumei naoto to
  yogureta onpu otona no otoko to kodomo no onna                                 
                                                                                 
                                                                                 
