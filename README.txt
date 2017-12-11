@@ -7,7 +7,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-         This is my last notice towards the world. I am not going to end my life
+                                                                                
  with a catastrophic note, I will end it with not a shred of dignity lef t i n m
 e. I am not angry at the world as much as I am angry with myself. Thefffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
