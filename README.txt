@@ -22,7 +22,7 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddjdvjfvfhdvsfvdsumei naoto to
                                                                                 
                                                                                 
                                                                                 
-                                                               bgvjhvbjh        
+        kilroy was here                                        bgvjhvbjh        
                                        your are a pigwa                   the be
 st pigwa ever                                                                   
                                                                                 
@@ -43,7 +43,7 @@ d dgdgdgdgdgdg        worning:
                                                                              .  
                                                                                 
                                                                                 
-                                                                             adf
+           jklmmmm                                                           adf
 ejbksdbccz,dgrszvs-=tdvnhkaezv hewoAQC JHT 4f=eopep[fkqev\ qae5- a-pehuaoilsef3q
 []sd='fa;f\a efkjaCBAK JDVSDV          REN SHEAI    REN SHUAI SHUAI LIU`        
    fuck                                                                         
