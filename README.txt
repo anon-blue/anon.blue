@@ -3,11 +3,11 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                       kk你适合把嗯哦哦监控凸凹                                             
                                                                                 
                                                                                 
-                                          gfgfdfdfdfdfdgfgfgfgbvbvbvbvbvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+                                          gfgfdfdfdfdfdgfg       bvcvkbjklfolkvl
+bkdedngdaolaobanssssssssssssdenglaoban                                          
+                                                                                
+                                                                                
+                                 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvd it with not a shred of dignity lef t i n m
 e. I am not angry at the world as much as I am angry with myself. Thefffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
@@ -26,8 +26,8 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddjdvjfvfhdvsfvdsumei naoto to
                                        your are a pigwa                   the be
 st pigwa ever                                                                   
                                                                                 
-                                                                                
-                                                                                
+                                                                     shishibushi
+sha sdkjaghksja 8suikinige zhizhang shibi dfanzha shaziei                       
                                                                                 
                                                                                 
                                                                                 
