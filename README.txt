@@ -30,8 +30,8 @@ st pigwa ever
 sha sdkjaghksja 8suikinige zhizhang shibi dfanzha shaziei             dsjafiejds
 fji,                                                   fdjsijif        lllllllkj
 kkkkkkkkkkjjs cps c;add    Don'rt xwant to live this story. Sadness even if nobo
-dy knows. Can you understand?                                                   
-                                                                      ohouhohogi
+dy knows. Can you understand? Can you be my reality once? I mean, this reality t
+hat I drea                                                            ohouhohogi
 iiiiwo shi ni daye oabhcxibhascikabkibh;ikjhbc;iohqw;gvh;ovhgvsdfv dsfvsvcbkjscv
 djbvksjbdvkbjsdkvjdsbvjkdbvjkdbvjkdbvkjbdkvbskbvksdbvkjsbdvkjbsdkjvbklkjnl foste
 r my pwnm                    sfsfsfdsfssdfsfsdfsf wetetertetet ertetretetetetete
