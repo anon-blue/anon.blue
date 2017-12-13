@@ -1,11 +1,11 @@
 sssssssssssssssssssssssssssssssssssssssssssld;saaskl;dkl;gkl;;;dhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                         
-                      kk你适合把嗯哦哦监控凸凹                     1111222asd              
                                                                                 
                                                                                 
-                                          gfgfdfdfdfdfdgfg       bvcvkbjklfolkvl
-bkdedngdaolaobanssssssssssssdenglaoban                                          
-              kjjk,.,m,m,mmmmmmmmmmmm                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                  qqqq=-=-=-=vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvd it with not a shred of dignity lef t i n m
@@ -38,7 +38,7 @@ hat I dream
                                                                                 
                                                                                 
                                                                                 
-                                                                           youar
+                                          No, You are beautiful            youar
 ebrebeautifu;l                                                                  
                                                                              .  
                                                                                 
