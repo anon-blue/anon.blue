@@ -29,7 +29,7 @@ st pigwa ever
                                                                      shishibushi
 sha sdkjaghksja 8suikinige zhizhang shibi dfanzha shaziei             dsjafiejds
 fji,                                                   fdjsijif        lllllllkj
-kkkkkkkkkkjjs cps c;add    Don'rt xwant to        fucking                       
+kkkkkkkkkkjjs cps c;add    Don'rt xwant to live this story. Sadness even if nobo
                                                                                 
                                                                       ohouhohogi
 iiiiwo shi ni daye oabhcxibhascikabkibh;ikjhbc;iohqw;gvh;ovhgvsdfv dsfvsvcbkjscv
