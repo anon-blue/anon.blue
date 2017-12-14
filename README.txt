@@ -26,9 +26,9 @@ aaaaaaaaaaaaaaaaaaaaaaaDDDDDDDDDDDDDDDDDDDFFFFFFFFFF32132113213121321zxczx
       wetgfewrwrwedffout                                                        
                                                                                 
                                                                                 
-                                                                     shishibushi
-sha sdkjaghksja 8suikinige zhizhang shibi dfanzha shaziei             dsjafiejds
-fji,                                                   fdjsijif        lllllllkj
+    ox                                                                          
+o000                                                                            
+0x00000001E:MKODE_EXCEPTION_NOT_HANDLECD               fdjsijif        lllllllkj
 kkkkkkkkkkjjs cps c;add    Don'rt xwant to live this story. Sadness even if nobo
 dy knows. Can you understand? Can you be my reality once? I mean, this reality t
 hat I dream                                                                     
