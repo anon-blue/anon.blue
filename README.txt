@@ -1,60 +1,60 @@
-sssssssssssssssssssssssssssssssssssssssssssld;saaskl;dkl;gkl;;;dhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                         
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                 gklhklhjligjjkhlgggggggggggggggg               
-                                 qqqq=-=-=-=vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvd it with not a shred of dignity lef t i n m
-e. I am not angry at the world as much as I am angry with myself. Thefffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffhgfhuuhggf
-yyuhggtfrdffgggfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffsdddfdfd
-fdfdfdfddddddddddddddddddddddddddddddgtrffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffff                                       dcdrfcjjcdcdkdcdcdkkdui
-goigoiguygouigoiugiuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuugvvvvvtyfytdfjsjujyt4rsltkyd
-fkcdthyfuykygjglguliuglirfsxm,biux,kjtg89r7f.kjb;j;ihh'ooi;bn;jbbkjlufgyufvjkb;b
-nh'oireta onpu otona no otoko to kodomo no onna                                 
-                                                                         kjhbjkh
-njkhkklhnkjkjkljkljlkjkljjlk4553asd4f5 4aD   mbdasdasd   asdzsdajsk asddasdasdas
-adsadasdsadwddddddddddddddddddddddddddddddddddddddddddddddddddddddddffffffffffff
-ffffffffffffffffffaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaDDDDDDDDDDDDDDDDDDDFFFFFFFFFF32132113213121321zxczx      
-      wetgfewrwrwedffout                                                        
-                                                                                
-                                                                                
-    ox                                                                          
-o000                                                                            
-0x00000001E:MKODE_EXCEPTION_NOT_HANDLECD               fdjsijif        lllllllkj
-kkkkkkkkkkjjs cps c;add    Don'rt xwant to live this story. Sadness even if nobo
-dy knows. Can you understand? Can you be my reality once? I mean, this reality t
-hat I dream                                                                     
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                     BJBJBJFUACK                                                
-                                          No, You are beautiful            youar
-ebrebeautifu;l                                                                  
-                                                                             .  
-                                                                                
-                                                                                
-           jklmmmm                                                           adf
-ejbksdbccz,dgrszvs-=tdvnhkaezv hewoAQC JHT 4f=eopep[fkqev\ qae5- a-pehuaoilsef3q
-[]sd='fa;f\a efkjaCBAK JDVSDV          REN SHEAI    REN SHUAI SHUAI LIU`        
-   fuck    duyuhanwoaini                                                        
-      ??????????????????????????????????????????????????????????????????????????
+sssssssssssssssssssssssssssssssssssssssssssld; saaskl; dkl; gkl;;dhhhhhhhhhhhhhh
+hh hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh gklhklhjligjjkhlggggg
+ggggggggggg qqqq =-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv vvvvvvvvvvvvvvvvvvvvvvvv
+vvvvvvvvvvvvd 它没有一丝尊严 lef 吨。我对这个世界并不愤怒, 就像我对自己生气一样。Thefffffffffff ffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffhgfhuuhggf yyuhggtfrdffg
+ggffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffsdddfdfd fdfdfdfddddd
+dddddddddddddddddddddddddgtrffffffffffffffffffffffffffffffffffffffff fffffffffff
+fffffff dcdrfcjjcdcdkdcdcdkkduinjkhkklhnkjkjkljkljlkjkljjlk4553asd4f5 4aD mbdasd
+asd asdzsdajsk asddasdasdas adsadasdsadwdddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddffffffffffffffffffffffffffffffaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaaaaaaaaaaaaDDDDDDDDDDDDDDDDDDDFFFFFFFFF
+F32132113213121321zxczx wetgfewrwrwedffout 牛 o000 0x00000001E: MKODE_EXCEPTION_N
+OT_HANDLECDfdjsijif lllllllkj kkkkkkkkkkjjs c; 添加唐的 xwant, 生活这个故事。悲伤, 即使人知道。你能理解
+吗？你能成为我的现实吗？我的意思是, 这个现实的 t 帽子我的梦想 BJBJBJFUACK 不, 你是美丽的 youar ebrebeautifu;jklmmm
+m adf ejbksdbccz, dgrszvs-= tdvnhkaezv hewoAQC 通 4 f = eopep [fkqev \ qae5-a-peh
+uaoilsef3q [] efkjaCBAK JDVSDV 仁 SHEAI 任帅帅刘 ' 他妈的 duyuhanwoaini？？？？？？？？？？？？？？？？？
+？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？???????????????????????
 ????????????????????????????????????????????????????????????????????????????????
 ????????????????????????????????????????????????????????????????????????????????
 ????????????????????????????????????????????????????????????????????????????????
 ????????????????????????????????????????????????????????????????????????????????
 ????????????????????????????????????????????????????????????????????????????????
 ????????????????????????????????????????????????????????????????????????????????
-????????????????????????????????????????????????????????????????????????????????
-????????????????hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhsssssssssssssssssssssssssssssssssssssssss
+?????????????????????????????????????????????????????????????????????????hhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhsssssssssssssssssssssssssssssssssssssssss                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      dgssgfg                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
