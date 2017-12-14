@@ -14,10 +14,10 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffhgfhuuhggf
 yyuhggtfrdffgggfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffsdddfdfd
 fdfdfdfddddddddddddddddddddddddddddddgtrffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffff                                       dcdrfcjjcdcdkdcdcdkkdcj
-dfdjlslkdfdddjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjwaw asdwadawdaixhcidvgyQFASDYUG
-FascfdvAUTSGFDVCuahsdg\swdSD\sadgfjkasdh fvihadswfsd\F adsf\asDF QSdf asF DASf o
- yogureta onpu otona no otoko to kodomo no onna                                 
+ffffffffffffffffff                                       dcdrfcjjcdcdkdcdcdkkdui
+goigoiguygouigoiugiuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuugvvvvvtyfytdfjsjujyt4rsltkyd
+fkcdthyfuykygjglguliuglirfsxm,biux,kjtg89r7f.kjb;j;ihh'ooi;bn;jbbkjlufgyufvjkb;b
+nh'oireta onpu otona no otoko to kodomo no onna                                 
                                                                          kjhbjkh
 njkhkklhnkjkjkljkljlkjkljjlk4553asd4f5 4aD   mbdasdasd   asdzsdajsk asddasdasdas
 adsadasdsadwddddddddddddddddddddddddddddddddddddddddddddddddddddddddffffffffffff
