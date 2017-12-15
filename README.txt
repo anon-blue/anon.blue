@@ -31,15 +31,15 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj1111111
                                                                                 
                                                                                 
                                                                                 
-                       You a                                                    
+                       You are as vacum, empty                                  
                                                                                 
-                                                          rt uh rt try ety etyet
-t rt e ty ety trhrtu56yu4 ry ru ue4t346y754y46y4yt ytr yyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyerwtttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-ttttt                                                                           
                                                                                 
-       dvdvfdvf             eowoaini                                            
-                                                      dgssgfg                   
+                                                                                
+     y                                                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                            dsdfs
