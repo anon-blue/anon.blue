@@ -30,10 +30,10 @@ GDSAFDSAFDSDFSAFDSAFJDSA;LFJKLDAS;FJKDSLAFJKLDSAF;JKDLSJJJJJJFJFJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJvvnLichenshigedashabihahhahahahahahahaFJDSAFJDSAFEKLSAFJDKS
 LAFCWDAFCDWSAjkh jklh jklhljkhlkjhjlkhjkhljkhljk                                
                                                                                 
-                                yes                           lli poop watery   
+                                yes                       adasdadapoop watery   
                        You are as vacum, empty                                  
                                                                                d
-wa                                                                              
+wa                                                                       chcghc 
    xcdghfswhthhyevcs      dwgex                                                 
      y                                           ujfjcjckcv                     
                           ggggghhhhhjvv               ljfsdiuhfvzlvksdoghsfdsddd
