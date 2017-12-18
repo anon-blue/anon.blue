@@ -8,7 +8,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaddccccccccdddjjhjjjuhh
 hhhhhhhccddddddddddccccccccccccccccccccccccdddddddddddccccccccccccddddddddddddda
 sdasf, msajdcnbajscncnk9euiwo4tfgjwLQ;AM,FDESL;.FKMSF AMX.A,FGMLW; dkmlwsfkqwl;r
-ejwlekqEDLfffFQL;TFGJNLDK;KJASLIKRQKPEQKTRFL;WTJEWKGHvccgvJLKasL[KEDESDOLTIRFEJK
+ejwlekqEDLfffFQL;TFGJNLDK;KJASLIKRQKPEQKTRFL;WTJEWKGHvccgvCjbChvvhvfgggvghvghvJK
 MLDSLDF;TLOP ['U;DF.GS';?RFL.T;,RF'YHTFKJJFMKLsdMSFLKDQJIOEWFJLK;ADKAP'; '6YTEAI
 W 'adwqoi;rjwlo roiwjrwhhjjjjjjjhhhhhhhhbbkjjjjjjjjjjjjjjhhhhhhjjjjj8iiiiiiiii87
 &b:;/iiiiiiiifjA"EQ@qasoddddddddd dccccccccccccccccdddddddddddddddddddddddcccccc
@@ -34,10 +34,10 @@ dfgghhbbryxurxir317373273273732
                                                                                 
            gfgggg                                     dfsdf fdsfs sdfsdf woqu sm
  gui fdsfsdf sdfsgsdggdsdddddsssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssssssssiwajijdjsssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssss                                                               
-                                                       GILIPOLLAS               
+sssssssssssssssssssssssssssssssssssssssssssssssssssssssiwajijdjshanisks.kdjndlha
+l.nWJDA.SNNCLKSANCX.SHDHNDLKDNLX CLKNCnxLKSKANXA.KNKNASLDKN:lkNAS.,CLIQEWFSJVKSN
+LJWESANVLHVWHVFLSANVLKSANVCKDSNVLHVLSKDNPOIEWNVCCCCCCCCDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDD                                        GILIPOLLAS               
            aaaaaaaaaaooaghhgfybjgf6hkjbhjjfnjdjsnbdjknkellwlowpqppwlaknsnznxnbcb
 bfbfhfueooejududiejjwjwidjndjdjdbjdbdjdn                jdndjkdkwbwjs?bdjs    dj
 dbidnbdjsjjsjsjsnjsj                     jdnjdndksnksejenjnmmmmmmklbcdfbbvbmanns
