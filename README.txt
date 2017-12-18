@@ -40,8 +40,8 @@ dfgghhbbryxurxir317373273273732
                                                       GILIPOLLAS                
           aaaaaaaaaaaaaghhgfybjgf6hkjbhjjfnjdjsnbdjknkellwlowpqppwlaknsnznxnbcbb
 fbfhfueooejududiejjwjwidjndjdjdbjdbdjdn                jdndjkdkwbwjs?bdjs    djd
-bidnbdjsjjsjsjsnjsj                     jdnjdndksnksejenjnmmmmmmklbcdfbbvbmawkwb
-bsBsjosjdjdjrjjrbdjdjndkkknjhhggjfewqwlbhklknvCzseryookjnvfghjufdfjooeqweyoooljg
+bidnbdjsjjsjsjsnjsj                     jdnjdndksnksejenjnmmmmmmklbcdfbbvbmannsn
+snznnznxidjzjjamndjdjndkkknjhhggjfewqwlbhklknvCzseryookjnvfghjufdfjooeqweyoooljg
 fdasdxcbnklpitrewazxvjklpitewwqazxbjllouredgjkgdcjloUffhkoirdfgjihfxvoyhoshohtoh
 osyohohooohlelelelollojsbjsnsjnsjsjsnsnsjsjsjj😋😋😋😅😆😆😌😌😋😇😏😛😳🤔🤔😏🤓😏😳😍😏😍😏🤔😶😮😮😖😟😮😖   
          mednsdxzcaasaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
