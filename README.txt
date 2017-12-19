@@ -30,8 +30,8 @@ ngdeexitfjjowxgfhsfdhfdgshgfhfg  fghfdsgduhhuojuniiu5134254521341345363524534141
 法的英文意思是初始化广告，所以果断进去看代码(hr)进去后我们看到代码,按图中的说明修改即可去掉广告，图1   4为例  有root就简单了，下载服务禁止进服务
 图5把ad的活动项禁止具体看我的帖写轮眼的一些心得了 还有一个就是幸运破解器，这里就不多说了 另外有些软件也可以，如净化大师，广告拦截等，大家探索吧以下内容为络
 收集，工具为mt管理器  先看AndroidManifest.xml看有哪些广告类找到ad之类的关键类找到对应的路径以及方法直接删掉，或者看看软件里面有没有广告
-之类的sdk一句话就是找与广告相关的类以及函数方法删掉或者修改代码即可(hr)首先打开mt，c  zc ad afa .dex文件编辑代码，类列表，如图路径上面
-画框框的,MainActivity类下面画横线的(hr)然后点击MainActivity类进去，方法列表，会看到很多很多方法(函数)，如图找到画横线的，方法的英
+之类的sdk一句话就是找与广告相关的类以及函数方法删掉或者修改代码即可(hr)首先打开mt，c  zc ad afa 4b1534636ma8,,,,,,46s
+nssneybxxxxxvvity类下面画横线的(hr)然后点击MainActivity类进去，方法列表，会看到很多很多方法(函数)，如图找到画横线的，方法的英
 文意思是初始化广告，所以果断进去看代码(hr)进去后我们看到代码,按图中的说明修改即可去掉广告，图1   4为例  有root就简单了，下载服务禁止进服务图5把
 ad的活动项禁止具体看我的帖写轮眼的一些心得了 还有一个就是幸运破解器，这里就不多说了 另外有些软件也可以，如净化大师，广告拦截等，大家探索吧nnnnnnnnn
 nnnnnnnnnnnnn@@nnmnnxnxnxnxnxnzkzksksksksksksksksnnxnyyyyykowksnnnndnnnxnxnxnxjd
