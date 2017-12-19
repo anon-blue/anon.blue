@@ -41,17 +41,17 @@ kdnnd
                                                                                 
                   sssssssdds                                                pk  
                            sdkljfjslfksdlfjsdfssdflfkslfs;fjs;lffklsdjfsdjlfuffj
-sfksldfk                                                                        
-                                                            fgggcfffyghhyfghhyfd
-ccfgygfgy666777                                                                 
-                                                                              hh
-hhhh什么操作都觉得就到家简单机械就到家以下内容为络收集，工具为mt管理器  先看AndroidMa bftst.xml看有哪些广告类找到ad之类的关键类找到
-对应的路径以及方法直接删掉，或者看看软件里面有没有广告之类的sdk一句话就是找与广告相关的类以及函数方法删掉或者修改代码即可(hr)首先打开mt，找到安装包，查
-看，然后找到.dex文件编辑代码，类列表，如图路径上面画框框的,MainActivity类下面画横线的(hr)然后点击MainActivity类进去，方法列表，
-会看到很多很多方法(函数)，如图找到画横线的，方法的英文意思是初始化广告，所以果断进去看代码(hr)进去后我们看到代码,按图中的说明修改即可去掉广告，图1   
-4为例  有root就简单了，下载服务禁止进服务图5把ad的活动项禁止具体看我的帖写轮眼的一些心得了 还有一个就是幸运破解器，这里就不多说了 另外有些软件也可以
-，如净化大师，广告拦截等，大家探索吧以下内容为络收集，工具为mt管理器  先看AndroidManifest.xml看有哪些广告类找到ad之类的关键类找到对应的
-路径以及方法直接删掉，或者看看软件里面有没有广告之类的sdk一句话就是找与广告相关的类以及函数方法删掉或者修改代码即可(/r)首先打开mt，找到安装包，查看，然
+sfksldfksfjlsfkjksfjskdfsldfsd,gvjsdvbnsdk,fjhsdjdskfjsdhfdsjfhosdjfsdhuwefhsdgh
+sjfgskhfjsfhsdjkfghsifhseufbsdjkfdksfjsdfksdhfgsdkjfsdhkfhsdifhseufhsufkhsufshfs
+ufhsufhsfjsdhfkjshufshfksjfvbhsdhfiseufnksdfushfuhsdfkjdhfuehfskjfhskefhseuifush
+fjskfjsfhsjkfhjsdkfhksdhfsdufseufhsfkhsjdfkshflkaslhfsfh;sirhespfhisdaisdfg;ksdj
+tfwshafkashgkasjdghsifvjhslkdfjdifvsdlfjlsdifgjsdlflidjfsd;fgjsdfgifjhsdifhsofhs
+doighsdighsiogsdidfgjfsiogjdfigjsodifhjsdkltghsligshofsdijsdfhsdifhsdghshjdkfskd
+fsdjfksdjfjksdfhjwoidhjkfvhdsiursehofjsdtfhsdhukfvhsdkrtfsdhoifhsdfheuifhsdujrfh
+sefhsejfhsdjkfjsdkfhsekdjfhuiehfsjfksehfksekfeffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff23333333333
+33333333333333333333333333333333333333333333333322222222222222222333333333333333
+33333333333333333333333333333333333333333333及函数方法删掉或者修改代码即可(/r)首先打开mt，找到安装包，查看，然
 后找到.dex文件编辑代码，类列表，如图路径上面画框框的,MainActivity类下面画横线的(hr)然后点击MainActivity类进去，方法列表，会看到
 很多很多方法(函数)，t046988029458gjrg  gg43gj9483u1691764-89343t34u4t9034uyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
