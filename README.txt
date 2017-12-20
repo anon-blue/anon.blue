@@ -33,7 +33,7 @@ asdfwoshiwangpengjucaijilegou                           147275
                                                                                 
                                                                                 
                                                                                 
-                                     aothiss is a                               
+                                     aothiss is a idiot                         
                                                                                 
                                                                                 
                                                                                 
@@ -45,7 +45,7 @@ asdfwoshiwangpengjucaijilegou                           147275
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                   microsoft is idiot           
                                                                                 
                                                                                 
                                                                                 
