@@ -12,12 +12,12 @@
                              xd                                  Dx             
                         :D                           :)         -.-             
                                        -.. ..- / -... .. ...- / . .. -. / ... .-
--. .- ... -                                sfgjkdsnjkgndsjkjsgnksgjnkgkgfnkgfnks
-fnksfnksn\ngngfnkgfnkgnkgkngnnksgnjskdngkjndkjgnfdsngkjdnfkjgnsdjkngjksdnfgnfsdj
-kgnjksndgkjndfgsdkgnksdngkjsdngkfdgddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddgjansdjgnijsangiansignsingisn
-ajnjisnanajisndfijnaisnjiasndgijnasjignisdnginasijgnijsadngiasijdngijsanignisadn
-gijnasgijnsjiagniasngij`0000000000000000jhnb`11E345677YDJSSASDWDJKWHJKHJKKJHKJAH
+-. .- ... -                                                                     
+                                                                                
+                                  404 404 404 4 404040404040404                 
+          ERRIR                                                                 
+                                                                                
+                                                   677YDJSSASDWDJKWHJKHJKKJHKJAH
 JHSJKJKSHDJKH                                                                   
                                               gbg trhtyudtghd te wrtsw brtyeeb  
 4ry e t errrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr rrrrrrrrrrrrrrrrrrrrrrrrrrrr  sthydghy
@@ -43,10 +43,10 @@ ljkagh fadgahgl jfgadgljk kjldshgfkjsdfgjklahsgfhdlkjasgflakjfghlkjjjjjjjjjjhjkl
 gsdajkhgghjdasgdjhgdjas                    ijfuckyouasdfasdkfjlaskjflkjaslkdfas;
 dlkfj;alskjdf;laksjdflkx                                                        
                                                                                 
-                                                                                
-                                                                                
-      niyaosini yaosiya  aha                                                    
-                                                                                
+                                                                           ERROR
+ 4044 B             asdasdasdlkwajdlakjdalksjdlkdjaslkdjasldkjasldkjasdlkajdlsak
+jdaslkdjaslkdjasldkjsadlkjasdlkasjdalskdjasldkjasldkjaslkdjasldkjasdlkjasdlkasjd
+slakdjaslkdjaslkdj ERROR 404 NOT FOUND    <----                                 
                                                  sdcsddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddbefsdfsafddagdshddddihihihihihih             
                                        xdxdxdxdxdxdxdxdxdxdxdxdxdxd lol wuhu xds
