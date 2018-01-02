@@ -18,8 +18,8 @@ gsdfsdfsdfsdifsdff
  ahja dhbhajb djhsa hg hjghjgh jG jhhjgj jah gdg agsd yygagdyag  ghellomy nam ei
 s adam miranodrs i am from canada i am a golfer a tafter lall these years we sti
 llm live on  i am sending this mesage to all survuves of the war..it is the year
- 2031 and we are aovealive.korea invaded the US bacjk in 2019                   
-                                                                                
+ 2031 and we are aovealive.korea invaded the US bacjk in 2019  the worl has been
+at war for 5 years and there is no sign of stopping                             
                                ssfs                 fgfgdgsdgdfgdfgsdfgdfgdgawfz
 zyfjjoglksjsfozjsoisjojdgsgdfgFFFfffjgdkgjdlmdlgklfmvlkmglkmgjggjpoke are alllll
           hao jiu bu jian wo xi huan de ren ,j//ni hai hao ma? huoxu=-0097047956
