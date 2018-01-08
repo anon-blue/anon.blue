@@ -27,12 +27,12 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffrrrrrtryesfuaiwfhlukehgu.23543546544343rg4re25h453dy4j6r84h685d46h64h546yfffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffshabsxsh
 shdsssssssddddddd               That's you, of course?                          
-              I can and I jvb,nkj.ilo79ti7hgbv bnmk./p;'[-6trishdxcb bm,m.,p;/09
+              I can and I  and you. It's you.  bnmk./p;'[-6trishdxcb bm,m.,p;/09
 5e4skjzdhxfgbnkloftdrxkgfhmj,nm.nlkphgf4sirshgh jkmkl'khb.vhjyvkggligbghffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffeigihgiosgdlhghghhjghsohgdsojgthe be foof atheratherjh    
                                                                                 
-                                                                                
+                            One step ahead                                      
                           huawei xs     ashuaishiyige dashuanfnrioifejfjpodjgopj
 fopjopdjopojopjgpjodsjopcodvpjopwjjdojvhndshofvoieionwnnnnnnn           woeihfud
 hcuduivudhuisefwaiuguisuiasbcbnsu iuuaifuduiapwopopnvd56+182+289+260dsnuvuiv[awa
