@@ -26,8 +26,8 @@ fffffffffffffffffffffjffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffrrrrrtryesfuaiwfhlukehgu.23543546544343rg4re25h453dy4j6r84h685d46h64h546yfffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffshabsxsh
-shdsssssssddddddd                                      bjklbbig;iohihpoihpjphoig
-hgljhplijbkbiphoiyh[pgvcgcjvb,nkj.ilo79ti7hgbv bnmk./p;'[-6trishdxcb bm,m.,p;/09
+shdsssssssddddddd               That's you, of course?                          
+              I can and I jvb,nkj.ilo79ti7hgbv bnmk./p;'[-6trishdxcb bm,m.,p;/09
 5e4skjzdhxfgbnkloftdrxkgfhmj,nm.nlkphgf4sirshgh jkmkl'khb.vhjyvkggligbghffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffeigihgiosgdlhghghhjghsohgdsojgthe be foof atheratherjh    
@@ -50,8 +50,8 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffCommettre l a pOésiE            ffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffsdssadffff
+ffffffffffffffffffffffffffffffffffffffffCommettre l a pOésiE                    
+                  ffffffffffffffffffffffffffffffffffffffffffffffffffffsdssadffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffffffffffffffffffjbgujjhvsinsnfdjkdmcnfjfdjdjdijxjxiowkwnn
 wjsjwj027478229fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
