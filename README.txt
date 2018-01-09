@@ -14,7 +14,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffadddddwoswoaizudljalgjljaljfljl^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^ C'est réél tout ça-/
 I mean / le paradoxe des nuages les nuits toutes usées les obsessionels de la le
-ttre F les tendinites emotionnelles.............................................
+ttre F les tendinites emotionnelles...or is this the modern crash...............
 ..................................fffffffffffffffffffffffffffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
