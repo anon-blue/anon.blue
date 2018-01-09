@@ -13,8 +13,8 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffadddddwoswoaizudljalgjljaljfljl^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^ C'est réél tout ça-/
-I mean / le paradoxe des nuages les nuits toutes usées les obse.................
-................................................................................
+I mean / le paradoxe des nuages les nuits toutes usées les obsessionels de la le
+ttre F..........................................................................
 ..................................fffffffffffffffffffffffffffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
