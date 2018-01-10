@@ -15,7 +15,7 @@ ffffffffffffffffadddddwoswoaizudljalgjljaljfljl^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^ C'est réél tout ça-/
 I mean / le paradoxe des nuages les nuits toutes usées les obsessionels de la le
 ttre F les tendinites emotionnelles...or is this the modern crash...............
-..................................fffffffffffffffffffffffffffffffasdsafasfujkabs
+..................................ffff            fffffffffffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff  
 view  ffffffffff ....... view fffffffffff view ........ what ? fffffffffffffffff
@@ -25,8 +25,8 @@ nasasdasnd,masndm,asdnam,sdna,mdnam,dnam,dnasm,dnams,dnams,dnmas,ndam ,ndma, am
 ,asm ,dnasm, ansm, nasm, dnas,m ,asnxvxcmv qhqioda jskl jksdjkhdkal jlkahajkl as
 kljnf kas lkasjd klas,.fmngldf gjklaw,nms, cnlsk nmsdasn a ,mand laj,asn as     
     dsadsadsasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssfffffffffffffffffffffffffffffffffffffffffffffffffffffsha`sxsh
-shdsssssssddddddd               That's you, of course?                          
+sssdqjjjjjjjjjjjjjjjjjjjfffffffffff                                             
+                                                                                
               I can and I  and you. It's you.  bnmk./p;'[-6trishdxcb bm,m.,p;/09
 5e4skjzdhxfgbnkloftdrxkgfhmj,nm.nlkphgf4sirshgh jkmkl'khb.vhjyvkggligbghffffffff
 fffffffffffffffffffffffffffffffffffffffffffffffffghmnhmfrgm.re.;.;.;,lmlkmknmknj
