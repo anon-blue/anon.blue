@@ -1,5 +1,5 @@
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffff888kljklkjkluioiuoiuofffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffff888kl klkjkluioiuoiuofffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
  NOT ALL SUNS ARE YELLOW SOME ARE BLUE TOO fffffffffffffffffffffffffffffffffffff
@@ -8,14 +8,14 @@ fffffffffffffffffffffffffffffffffffffffffffLes phasmes ne ralentissent jamais er
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffff                   <= keep this place available for the h
 omeless plese | kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkooooooooooo
+kkkkkkkkkkkkkkkkkkk     kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkooooooooooo
 oooooooooooooooooooooo;';';jnhjjjjffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffadddddwoswoaizudljalgjljaljfljl^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^ C'est réél tout ça-/
 I mean / le paradoxe des nuages les nuits toutes usées les obsessionels de la le
 ttre F les tendinites emotionnelles...or is this the modern crash...............
-..................................ffff            fffffffffffffffasdsafasfujkabs
+..................................ffff                    fffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff  
 view  ffffffffff ....... view fffffffffff view ........ what ? fffffffffffffffff
