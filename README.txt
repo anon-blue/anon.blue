@@ -17,8 +17,8 @@ I mean / le paradoxe des nuages les nuits toutes usées les obsessionels de la l
 ttre F les tendinites emotionnelles...or is this the modern crash...............
 ..................................fffffffffffffffffffffffffffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff  
+view  ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffadssadadadasdanmxasdasdasm
 nasasdasnd,masndm,asdnam,sdna,mdnam,dnam,dnasm,dnams,dnams,dnmas,ndam ,ndma, am 
@@ -51,7 +51,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffPLEASE, FEED ME WITH POESKIN AGAIN fffthat kind of skin is very hard t
 o find and not cheap at all but i'll try, sometimes it is available on SkinExcha
-nge.com, if you don't mind fffffffffffffffffffffdddawdawdaskjhakwang            
+nge.com, if you don't mind cyber skin dancers.                                  
                                                                                 
                                                                                 
      j027478229fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
