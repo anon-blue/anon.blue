@@ -20,10 +20,10 @@ kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff  
 view  ffffffffff ....... view fffffffffff view ........ what ? fffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffadssadadadasdanmxasdasdasm
-nasasdasnd,masndm,asdnam,sdna,mdnam,dnam,dnasm,dnams,dnams,dnmas,ndam ,ndma, am 
-,asm ,dnasm, ansm, nasm, dnas,m ,asnxvxcmv You will have space in sweat pieces s
-kljnf kas lkasjd klas,.fmngldf gjklaw,nms, cnlsk nmsdasn a ,mand laj,asn as     
+fff                                                                             
+                                                                                
+                                                                                
+You will have space in sweet f gjklaw,nms, cnlsk nmsdasn a ,mand laj,asn as     
     dcccccccccccccccccccacaccdceeeeddddddddddddIn fact, dI'm fond of cyberSkins 
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffff                      
                                                                                 
