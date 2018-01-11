@@ -23,7 +23,7 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fff                                                                             
                                                                                 
                                                                                 
-You will have space in sweet f gjklaw,nms, cnlsk nmsdasn a ,mand laj,asn as     
+You will have space in sweet ^pieces ,nms, cnlsk nmsdasn a ,mand laj,asn as     
     dcccccccccccccccccccacaccdceeeeddddddddddddIn fact, dI'm fond of cyberSkins 
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffff                      
                                                                                 
