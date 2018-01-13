@@ -21,8 +21,8 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 view  ffffffffff ....... view fffffffffff view ........ what ? fffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fff                                                                             
-                                                                                
-                   fffffwwqwqw                                                  
+                                                               ssssssssss       
+          dsdsdsdsdsdadasdsaddasdsadasd fucjk fuck the shotdadsssssssssss       
 You will have space in sweet ^pieces ,nms, cnlsk nmsdasn a ,mand laj,asn as     
     dcccccccccccccccccccacaccdceeeeddddddddddddIn fact, dI'm fond of cyberSkins 
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffff                      
@@ -55,6 +55,6 @@ kewbfkewbfkewfbkewbfkewbfkewbfkewbfkewfbkewbfkewbfkebfkewfbkewfbkewfbkewfjfjefff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkddddddddddddddddddddddddddddddddddkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkttkkkkkkkkkkkkkkkkttkkkkkkkkkkkkkkktkkkkkkkkkkkkkkttk
