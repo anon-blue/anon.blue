@@ -18,7 +18,7 @@ ttre F les tendinites emotionnelles...or is this the modern crash...............
 ..................................ffff                    fffffffasdsafasfujkabs
 kdhakjdhkadhkasjjjjjjjjjjjjjjjjjjjjnnenet view ........                   ffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff  
-view  ffffffffff ....... view fffffffffff view ........ what ? fffffffffffffffff
+view  ffffffffff ....... view ffffffvgffffbiew ........ what ? fffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fff                                                                             
                                                                ssssssssss       
