@@ -17,7 +17,7 @@ ME don't delete me a n y m o r eCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
 WELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO U
 GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME T               
                                                                                 
-                        DIUGANDAWELCOwwqxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+                        DISCOVER AND TEST ThE FUTURE                            
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxGANDAWELCOME T
 O UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELC
 OME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAND
