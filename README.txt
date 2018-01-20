@@ -19,7 +19,7 @@ llance and computer camera`s daliy peek.... ....
   omg!!!OMG~~~!!!                                                               
      YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND!                        
     are you crazy? ARE YOU CRAZY!!!!                                            
-             ME TO UG dfsdfsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsd               
+   WELL... i ko for you ...                                                     
                                                                                 
                                                                                 
                                                                                 
