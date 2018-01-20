@@ -20,7 +20,7 @@ llance and computer camera`s daliy peek.... ....
      YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND!                        
     are you crazy? ARE YOU CRAZY!!!!                                            
    WELL... i ko for you ...                                                     
-                                                                                
+       xp say to mreole and say to me;every day it`s hard to watch              
                                                                                 
                                                                                 
                                                                                 
