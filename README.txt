@@ -21,13 +21,13 @@ j omg!!!OMG~~~!!!
     are you crazy? ARE YOU CRAZY!!!!                                            
    WELL... i ko for you ...                                                     
        xp say to mreole and say to me;every day it`s hard to watch you masturbat
-e in your poliosophy!EVERY DAY!                                                 
-  HE is in retirement you also install all like"ae""PR""AL""PS"ANDall sorts ofbt
-hings on the system.YOY YOU..YOU ARE ABUSING XPO~~!!!                           
-ELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UG
-ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
-TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWEL
-COjkjkhjguytfuvytrsd46sxhgyucDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
+e in your poliosophy!EVERY DAY!1234wdhuisfhuffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
 DAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO
  UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
 ME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
