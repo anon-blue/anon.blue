@@ -12,7 +12,7 @@ WELCOME TO UGANDAWELCOME TO UGANDAWELCOME
                                                                                 
                                                 ypu                             
                                               lollololololololololololololololol
-o              your compWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
+o              your compurer has an irreAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
 ME don't delete me a n y m o r eCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
 WELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO U
 GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME T               
