@@ -17,8 +17,8 @@ it looks like there`s no way to save it.      but don`t oo worry aboit hitting t
 he monitor.because that`s the host error.emmmm   according to microsoft`s survei
 llance and computer camera`s daliy peek.... ....                                
   omg!!!OMG~~~!!!                                                               
-     YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND                         
-                                                                                
+     YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND!                        
+    are you crazy? ARE YOU CRAZY!!!!                                            
              ME TO UG dfsdfsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsd               
                                                                                 
                                                                                 
