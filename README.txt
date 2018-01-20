@@ -15,8 +15,8 @@ ANDAWELCOME MEE
                                                                                 
                                                                                 
                                                      do you want to know the mea
-ning of life? do you want to be ali                                             
-                                                                                
+ning of life? do you want to be alive?                                          
+ yes/no                                                                         
                                                                                 
                                                                                 
                                                                                 
