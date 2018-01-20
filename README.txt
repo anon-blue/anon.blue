@@ -1,60 +1,60 @@
-ELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UG
-ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
-TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWEL
-COME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
-DAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME waaddadaAWELCOME TO
- UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
-ME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
-WELCOME TO UGANDAWELCOME TO UGANDAWELCOME                                       
+EL COCOME到UGjADADAWELCOME到UGANJADAWELCOME到UGANDADAWELCOME到UGANDAWELCOME到UGANDAWE
+LCOME到UGANDAWELCOME到UGANDAWELCOME到UGANDAWELCOMEto UGANJDAWELCONCONCONCONCONCONCO
+NCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONCONC
+ONCONCONCONCONCONCONCONCONCONAJAJDAODANDANCONCONCONCONUJORJORDAORADANDAOUJORJOUJ
+ORDERCONEUGjORDAWELCOMEMEUGjDADAWELCOMEEUGANDAWELELCOME MEE MEE MEE MEE UGANDADA
+WELELCOME MEE MEE MEE MEE UGANDADAWELEL COME Me ME Me ME MEE MEE UGANDADAWELEL C
+OME Me ME MEE UGANDAWELCOME MEE UGANJDAWELEL COME MEME UGANDAWELCOME COMEME UGAN
+DAWELCOME COMEME UGANDAWELCOME COMEME UGANJDAWELCOME COMEME，UGANDAWELCOMEME UGAN
+JDAWELCOMEME UGANDAWELCOMEME UGANDAWELCOMEME，UGANDAWELCOMEME MEE Me MEE UGANDADA
+WELWELCOME ME ME MEME UGANDAWELL COME ME ME MEME UGANDAWELLELCOME ME ME MEME UGA
+NDAWELMEME ME MEME UGANDAWELCOME MEME UGADAWELCOME MEME UGANDAWELCOME MEME UGADA
+WELCOME MEM UGADAWELCOME MEM UGANDAWELCOME MEE UGADAWELCOMEME UGANDAWELCOMEME UG
+ANDAWELCOME MEE                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                ypu                             
-                                              lollololololololololololololololol
-o              your compurer has an irreversible glitch or it could be bug.     
-it looks like there`s no way to save it.      but don`t oo worry aboit hitting t
-he monitor.because that`s the host error.emmmm   according to microsoft`s survei
-llance and cjhhhjhgjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjgh
-j omg!!!OMG~~~!!!                                                               
-     YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND!                        
-    are you crazy? ARE YOU CRAZY!!!!                                            
-   WELL... i ko for you ...                                                     
-       xp say to mreole and say to me;every day it`s hard to watch you masturbat
-e in your poliosophy!EVERY DAY!1234wdhuisfhuffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
-DAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO
- UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
-ME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
-WELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO U
-GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME
- TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWE
-LCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGA
-NDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME T
-O UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWwej
-krewnjsadklwjr;fwekfe;w3oqwdjfelkjsdnlcxnmv,cvcbnm,bnv,mbn,cnlkdjerwklddkjglgkas
-kf;laddk;lasfkdlsjreowiuriwehtjsfkdhkldjvnxcjkmnvjndfkjgkrfseukhfjodilzhgnkjvcHI
-aifhsfikdhjddkjbvcmnbjvhbknmbnkjhskjffjkshhhhjhjhdjshfjsfhkdbxcmnvbdsmhrekjhdnmf
-vmx,bufhdjhtyughfhfygjhfghfyutughfrereryfhfhgfdsfdvdghtiut897857657856ruyjygkjfh
-tserws4e5c47uvtubyfytfhgyu UftgtggtyjjjE TO UGANDAWELCOME TO UGANDAWELCOME TO UG
-ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
-TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWEL
-COME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
-DAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO
- UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
-ME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TOyou don't know dfdfdfddf
-WELCOME TO UGANDe    nnbbbhghhhhftffdxxvbn O UGANkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                           
-                                   adadadadadadadadadyt                         
                                                                                 
-                                                                ni        COME T
-O UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO jjjjjjjjjj
-jjjjjjjjjjjjjjjkfgkasdgkfjhagkefjhglsgfyEGFKASJGFKJHASEGFJKAHSGFKJAHSGFKJAHSGFKJ
-HEGFKAJGFJKHAGSFAHKSJEGFJHKASGFHAJSGEFAHJKGFSKJHEFGAKSHJFGHJSDFGKADHJFGAKHGKAHDG
-FAHGSKHFLCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOM
-E TO UGANDuhiuiuuuuuO UGANDAWELCjtyhfgngfnfDAWELCOME TO UGANDAWELCOME TO UGANDAW
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
