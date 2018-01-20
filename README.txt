@@ -13,8 +13,8 @@ WELCOME TO UGANDAWELCOME TO UGANDAWELCOME
                                                 ypu                             
                                               lollololololololololololololololol
 o              your compurer has an irreversible glitch or it could be bug.     
-it looks like there`s no way to save it.      WELCOME TO UGANDAWELCOME TO UGANDA
-WELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO U
+it looks like there`s no way to save it.      but don`t oo worry aboit hitting t
+he monitor.UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO U
 GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME T               
                                                                                 
                         DISCOVER AND TEST ThE FUTURE                            
