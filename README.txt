@@ -23,7 +23,7 @@ GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME T
                                                                                 
                                                                                 
                                                                                 
-          AWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAW
+                                                                                
 ELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UG
 ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
 TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWEL
