@@ -16,8 +16,8 @@ o              your compurer has an irreversible glitch or it could be bug.
 it looks like there`s no way to save it.      but don`t oo worry aboit hitting t
 he monitor.because that`s the host error.emmmm   according to microsoft`s survei
 llance and computer camera`s daliy peek.... ....                                
-  om                                                                            
-                        DISCOVER AND TEST ThE FUTURE                            
+  omg!!!OMG~~~!!!                                                               
+     YOU EVERY DAY TO HAVE A PHILOSOPHY IN FANTASY LAND                         
                                                                                 
              ME TO UG dfsdfsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsd               
                                                                                 
