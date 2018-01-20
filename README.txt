@@ -5,8 +5,8 @@ COME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
 DAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME waaddadaAWELCOME TO
  UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCO
 ME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA
-WELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDA   i am not a magician  fffff
-jfghfghfghfghhh UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME
+WELCOME TO UGANDAWELCOME TO UGANDAWELCOME                                       
+                 GANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME
  TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TOi['p'p'po
 k';oij;;loij;oji;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;oij TO UGANDAugandaWELCOME 
 TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOyyyyyyyyyNDAWELCOME TO UGANDAWEL
@@ -41,7 +41,7 @@ krewnjsadklwjr;fwekfe;w3oqwdjfelkjsdnlcxnmv,cvcbnm,bnv,mbn,cnlkdjerwklddkjglgkas
 kf;laddk;lasfkdlsjreowiuriwehtjsfkdhkldjvnxcjkmnvjndfkjgkrfseukhfjodilzhgnkjvcHI
 aifhsfikdhjddkjbvcmnbjvhbknmbnkjhskjffjkshhhhjhjhdjshfjsfhkdbxcmnvbdsmhrekjhdnmf
 vmx,bufhdjhtyughfhfygjhfghfyutughfrereryfhfhgfdsfdvdghtiut897857657856ruyjygkjfh
-tserws4e5c47uvtubyfytfhgyu UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UG
+tserws4e5c47uvtubyfytfhgyu UftgtggtyjjjE TO UGANDAWELCOME TO UGANDAWELCOME TO UG
 ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
 TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWEL
 COME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGAN
@@ -52,7 +52,7 @@ WELCOME TO UGANDe    nnbbbhghhhhftffdxxvbn O UGANkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                           
                                    adadadadadadadadadyt                         
                                                                                 
-                                                                          COME T
+                                                                ni        COME T
 O UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO jjjjjjjjjj
 jjjjjjjjjjjjjjjkfgkasdgkfjhagkefjhglsgfyEGFKASJGFKJHASEGFJKAHSGFKJAHSGFKJAHSGFKJ
 HEGFKAJGFJKHAGSFAHKSJEGFJHKASGFHAJSGEFAHJKGFSKJHEFGAKSHJFGHJSDFGKADHJFGAKHGKAHDG
