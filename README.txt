@@ -22,7 +22,7 @@ llance and computer camera`s daliy peek.... ....
    WELL... i ko for you ...                                                     
        xp say to mreole and say to me;every day it`s hard to watch you masturbat
 e in your poliosophy!EVERY DAY!                                                 
-  HE is in retirement                                                           
+  HE is in retirement you also install all                                      
                                                                                 
 ELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UG
 ANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME TO UGANDAWELCOME 
