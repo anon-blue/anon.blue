@@ -53,8 +53,8 @@ bi i know you are watching pero me la pela, no haber elegido a un presidente tan
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
                                                                                 
-                                  dkufgofzeghfolighgfohfgihpoeifqpoihqofihqm to 
-uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
+                                  dkufgofzeghfolighgfohfgihpoeifqpoiholajoserica
+rdolllmmpogholato uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
