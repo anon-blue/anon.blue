@@ -1,4 +1,4 @@
-          a veces pienso. se que vas a leer esto, asi que te lo escribo mejor po
+hola,     a veces pienso. se que vas a leer esto, asi que te lo escribo mejor po
 r aqui, consegui llegar al fondo de la pagina, no se como, pero a si quieto (qui
 to) toda la mierda esta wde (de) welcome to uganda, que me tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
@@ -9,10 +9,10 @@ s , perdon, nos euquivocamos (equivocamos) mucho al escrbir (escribir), oye esto
 tal. pam, vales mucho. mucho mas de lo que piensas. y te lo dicen unas letras ra
 ndom en una pagina random useless de iternet (ni-internet) (sin el ni) . te quie
 ro y aprecio que estes cerca-pamela quieres casate conmigo para conservar tu ciu
-dadania en esopania??????????? welcome to uganda welcome to uganda welcome to ug
-anda welcome to uganda welcome to uganda welcome to uganda welcome to uganda wel
-come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
-uganda weleeertto uganda welcome to uganda welcome to uganda welcome to uganda w
+dadania en esopania??????????? welc                                             
+                                                                                
+                                                                                
+                              me to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welc                     
@@ -45,7 +45,7 @@ o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
                                                                                 
                                                                                 
                                                                                 
-                                                               lcome to TRUMP TE
+                                                                        TRUMP TE
  ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS-----------f
 bi i know you are watching pero me la pela, no haber elegido a un presidente tan
  de meirda, gracias buenas noches ------come to uganda welcome to uganda welcome
@@ -57,4 +57,4 @@ colobia ecuador por siempre, chucha perdon , colombia... joder.
                                                                                 
                                                                                 
                                                                                 
-                                                              a veces oenso     
+                                                                                
