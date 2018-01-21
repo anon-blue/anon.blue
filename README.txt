@@ -39,10 +39,10 @@ PIRE DID NOTHING WRONG EMPIRE DID NOTHING WRONG HITLER WAS RIGHT to uganda welco
 me to uganda welcome to uganda welcome to uganda welcome to uganda welda w WTFGJ
 OWSH GHSWJGHJSHGJKSHJJ NG DGGD to uganda welcome to uganda welcome to uganda wel
 come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
-uganda welcome THE LASJT JEDI ES THE MBOST EXlcome to uganda welcome to uganda w
-elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
-o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
- welcome to uganda .......... welcome to uganda welcome to uganda welcome to uga
+uganda welcome THE LASJT JEDI ES THE MBOST EXCITING MOVIE ER----- la persona que
+ escribio etsto no sabe escribir y yo tampoco---------mi novio salvador bucheli 
+esta en la cama y luego vera esto. hola mi amor----jodete. ....... voy a vomitar
+ del amor---------- bye------------- agregad a paelcome to uganda welcome to uga
 nda welcome to uganda welcome to uganda  welcome to uganda welcome to ugandaesto
  mola pero es una puta puta mierda lo de no poder borrar porque ahora mis fallos
  los puede ver todo el puto mundito uganda welcome to uganda welcome to TRUMP TE
