@@ -42,9 +42,9 @@ come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to
 uganda welcome THE LASJT JEDI ES THE MBOST EXCITING MOVIE ER----- la persona que
  escribio etsto no sabe escribir y yo tampoco---------mi novio salvador bucheli 
 esta en la cama y luego vera esto. hola mi amor----jodete. ....... voy a vomitar
- del amor---------- bye------------- agregad a paelcome to uganda welcome to uga
-nda welcome to uganda welcome to uganda  welcome to uganda welcome to ugandaesto
- mola pero es una puta puta mierda lo de no poder borrar porque ahora mis fallos
+ del amor---------- bye------------- agregad a pamela palacios a facebook :==)))
+))))))))))), si tiene doble nariz.-------and of course,   a olivia lopez a faceb
+ook tambien / una puta puta mierda lo de no poder borrar porque ahora mis fallos
  los puede ver todo el puto mundito uganda welcome to uganda welcome to TRUMP TE
  ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS-----------f
 bi i know you are watching pero me la pela, no haber elegido a un presidente tan
