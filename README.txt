@@ -55,6 +55,6 @@ colobia ecuador por siempre, chucha perdon , colombia... joder.
                                                                                 
                                                                                 
                                                                                 
-                                             consegui                           
-                                                                                
+                                             consegui que esta pagina sea nuestr
+a. yuju.                                                                        
                                                                                 
