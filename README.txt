@@ -43,10 +43,10 @@ uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda .......... welcome to uganda welcome to uganda welcome to uga
-nda welcome to uganda welcome to uganda  welcome to uganda welcome to uganda wel
-come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
-uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
-elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
+nda welcome to uganda welcome to uganda  welcome to uganda welcome to ugandaesto
+ mola pero es una puta puta mierda lo de no poder borrar porque ahora mis fallos
+ los puede ver todo el puto mundito uganda welcome to uganda welcome to TRUMP TE
+ ODIO.------------------------------------MUERTE A TODOScome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
  to jjjjjecuador es la chimab la erre que mal bueno lo pongo otra vez ecuador es
