@@ -49,8 +49,8 @@ uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
- to uganda welcome to uganda welcome to uganda welcome to uganda welcome to ugan
-da welcome to uganda welcofzazerzeafazefazefrgrafekufgoezihfpoezhfpoihepzfhodspl
+ to jjjjjecuador es la chimab la erre que mal bueno lo pongo otra vez ecuador es
+ la chimba en verdad soy colombiana pero bueno que le vamos a hacer ihepzfhodspl
 hfqhfpqogqhfhqpsohpigherzoqflojsfmliùmfoezmhflsqdhflmesruodjslofoihkrh  uyoeair 
 h                                                                               
                                   dkufgofzeghfolighgfohfgihpoeifqpoihqofihqm to 
