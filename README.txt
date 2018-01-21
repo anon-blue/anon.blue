@@ -4,11 +4,11 @@ to) toda la mierda esta wde (de) welcome to uganda, que me tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
  sino habrian quitado esta mierda ya, pero esto es algo pubico, y publico tambie
 n. odio no poder borrar. realmenete (realmente) te hace pensar que nos escribimo
-s , perdon, nos euquivocamos (equivocamos) mucho al escrbir (escribir), olcome t
-o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
- welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
- to uganfjdighrseiohgioghweiogkewp[g to uganda welcome to uganda welcome to ugan
-da welcome to uganda welcome pamela quieres casate conmigo para conservar tu ciu
+s , perdon, nos euquivocamos (equivocamos) mucho al escrbir (escribir), oye esto
+ es una mierda. voy a intentar escribir mas despacio porque sino esto va a ir fa
+tal. pam, vales mucho. mucho mas de lo que piensas. y te lo dicen unas letras ra
+ndom en una pagina random useless de iternet (ni-internet) (sin el ni) . te quie
+ro y aprecio que estes cerca-pamela quieres casate conmigo para conservar tu ciu
 dadania en esopania??????????? welcome to uganda welcome to uganda welcome to ug
 anda welcome to uganda welcome to uganda welcome to uganda welcome to uganda wel
 come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
