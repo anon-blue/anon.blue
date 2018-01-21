@@ -1,7 +1,7 @@
- to uganda welcome to uganda welcome to uganda welcome to uganda welcome to ugan
-da welcome to uganda welcome to uganda welcome to uganda welcome to uganda welco
-me to uganda welcome to uganda welcome to uganda welcome to uganda welcome to ug
-anda welcome to uganda welcome to uganda welcome to uganda welcome to uganda wel
+          a veces pienso. se que vas a leer esto, asi que te lo escribo mejor po
+r aqui, consegui llegar al fondo de la pagina, no se como, pero a si quieto (qui
+to) toda la mierda esta wde (de) welcome to uganda, que me tiene frita ya. no se
+ muy bien cuanta gente lee esto, supongo que pon to uganda welcome to uganda wel
 come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
 uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
@@ -57,4 +57,4 @@ colobia ecuador por siempre, chucha perdon , colombia... joder.
                                                                                 
                                                                                 
                                                                                 
-                                                            me to uganda welcome
+                                                              a veces oenso     
