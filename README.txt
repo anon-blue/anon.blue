@@ -18,8 +18,8 @@ dadania en esopania??????????? welc
                                                                                 
                                                                                 
                                                                                 
-                                                QUR                             
-                                                                                
+                                                QUREEEEE BAACAAAN!!! JAJAJAJAJAJ
+JAJAJAJAJAJAJJAJA  ONO PUEDO CREER QUE HCIISTE ESTO jajajajajjajajajajajajjajaja
                                                                                 
                                                                                 
                                                                                 
