@@ -8,8 +8,8 @@ elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
  to uganfjdighrseiohgioghweiogkewp[g to uganda welcome to uganda welcome to ugan
-da welcome to uganda welcome to uganda welcome to uganda welcome to uganda welco
-me to uganda welcome to uganda welcome to uganda welcome to uganda welcome to ug
+da welcome to uganda welcome pamela quieres casate conmigo para conservar tu ciu
+dadania en esopania??????????? welcome to uganda welcome to uganda welcome to ug
 anda welcome to uganda welcome to uganda welcome to uganda welcome to uganda wel
 come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
 uganda weleeertto uganda welcome to uganda welcome to uganda welcome to uganda w
@@ -50,9 +50,9 @@ elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome
  to jjjjjecuador es la chimab la erre que mal bueno lo pongo otra vez ecuador es
- la chimba en verdad soy colombiana pero bueno que le vamos a hacer ihepzfhodspl
-hfqhfpqogqhfhqpsohpigherzoqflojsfmliùmfoezmhflsqdhflmesruodjslofoihkrh  uyoeair 
-h                                                                               
+ la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
+colobia ecuador por siempre, chucha perdon , colombia... joder.                 
+                                                                                
                                   dkufgofzeghfolighgfohfgihpoeifqpoihqofihqm to 
 uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
