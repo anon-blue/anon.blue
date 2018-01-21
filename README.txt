@@ -12,10 +12,10 @@ ro y aprecio que estes cerca-pamela quieres casate conmigo para conservar tu ciu
 dadania en esopania??????????? welc                                             
                                                                                 
                                                                                 
-                              me to uganda welcome to uganda welcome to uganda w
-elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
-o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
- welcome to uganda welcome to uganda welcome to uganda welc                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
