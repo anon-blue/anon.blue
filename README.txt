@@ -34,8 +34,8 @@ uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda w
 elcome to uganda welcome to uganda welcome to uganda welcome to uganda welcome t
 o uganda welcome to uganda welcome to uganda welcome to uganda welcome to uganda
  welcome to uganda welcome to uganda welcome to uganda welcomEMPIRE DID NOTHING 
-WRONG EMPIREDIDNOTHINGWRONG EMPIREme to uganda welcome to uganda welcome to ugan
-da welcome to uganda welcome to uganda welcome to uganda welcome to uganda welco
+WRONG EMPIREDIDNOTHINGWRONG EMPIRE DID NOTHING WRONG EMPIRE DID NOTHING WRONG EM
+PIRE DID NOTHING WRONG EMPIRE DID NOTHING WRONG HITLER WAS RIGHT to uganda welco
 me to uganda welcome to uganda welcome to uganda welcome to uganda welda w WTFGJ
 OWSH GHSWJGHJSHGJKSHJJ NG DGGD to uganda welcome to uganda welcome to uganda wel
 come to uganda welcome to uganda welcome to uganda welcome to uganda welcome to 
