@@ -53,8 +53,8 @@ bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb e to uganda welcome
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
                                                                                 
-                                         gtiii                                  
-                                                                                
+                                         gtiii    llllllllllsbwangyanghekslaksjn
+dqbibfjklw                                                                      
                                              consegui que esta pagina sea nuestr
 a. yuju.hd d                         hola pam no se que paso me arruinaron el te
 xto                 esto va a ser un dirve drive* para nosotras y ahora es e de*
