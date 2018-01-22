@@ -1,6 +1,6 @@
-hola,     a veces pienso. se que vas a leer esto, asi que te lo escribo mejor po
-r aqui, consegui llegar al fondo de la pagina, no se como, pero a si quieto (qui
-to) toda la mierda esta wde (de) welcome to uganda, que me tiene frita ya. no se
+hola,     a veces pienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
+slifhiasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssse tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
  sino habrian quitado esta mierda ya, pero esto es algo pubico, y publico tambie
 n. odio no poder borrar. realmenete (realmente) te hace pensar que nos escribimo
