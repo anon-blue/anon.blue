@@ -53,7 +53,7 @@ bi i know you are watching pero me la pela, no haber elegido a un presidente tan
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
                                                                                 
-                                                                                
+                                         gtiii                                  
                                                                                 
                                              consegui que esta pagina sea nuestr
 a. yuju.                                                                        
