@@ -2,7 +2,7 @@ hola,     a veces pienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
 slifhiasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssse tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
- sino habrian quitado esta mierda ya, pero esto es algo pubico, y publico tambie
+ sino habr   kjbnkj ijhbouiopnoui iouhoubub  kjnks algo pubico, y publico tambie
 n. odio no poder borrar. realmenete (realmente) te hace pensar que nos escribimo
 s , perdon, nos euquivocamos (equivocamos) mucho al escrbir (escribir), oye esto
  es una mierda. voy a intentar escribir mas despacio porque sino esto va a ir fa
