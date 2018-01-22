@@ -46,9 +46,9 @@ yinwei
                                                                                 
                                                                                 
                                                                         TRUMP TE
- ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS-----------f
-bi i know you are watching pero me la pela, no haber elegido a un presidente tan
- de meirda, gracias buenas noches ------come to uganda welcome to uganda welcome
+ ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS- vvbv vbnvb
+ vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb e to uganda welcome
  to jjjjjecuador es la chimab la erre que mal bueno lo pongo otra vez ecuador es
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
