@@ -21,7 +21,7 @@ dadania en esopania??????????? welc
                                                 QUREEEEE BAACAAAN!!! JAJAJAJAJAJ
 JAJAJAJAJAJAJJAJA  ONO PUEDO CREER QUE HCIISTE ESTO jajajajajjajajajajajajjajaja
                                                                                 
-                                                                                
+                                            laura es bella                      
                                                                                 
                                                                                 
                                                                                 
@@ -35,7 +35,7 @@ JAJAJAJAJAJAJJAJA  ONO PUEDO CREER QUE HCIISTE ESTO jajajajajjajajajajajajjajaja
                                                                                 
 yinwei                                                                          
                                                                                 
-                                                                                
+                                               hhhhhhhhhhhhhhhw                 
                                                                                 
                             maryann te amo                                      
                                                                                 
@@ -47,9 +47,9 @@ yinwei
                                                                                 
                                                                         TRUMP TE
  ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS- vvbv vbnvb
- vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb e to uganda welcome
- to jjjjjecuador es la chimab la erre que mal bueno lo pongo otra vez ecuador es
+ vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbjdj
+djdjdjdjdjdjdjdjd                                                               
+                                                                      ecuador es
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
                                                                                 
