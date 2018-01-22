@@ -1,4 +1,4 @@
-hola,     a veces pienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
+ otra gente.veces pienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
 slifhiasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssse tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
@@ -56,5 +56,5 @@ colobia ecuador por siempre, chucha perdon , colombia... joder.
                                          gtiii                                  
                                                                                 
                                              consegui que esta pagina sea nuestr
-a. yuju.hd d                                                                    
-                                                                                
+a. yuju.hd d                         hola pam no se que paso me arruinaron el te
+xto                 esto va a ser un dirve drive* para nosotras y ahora es e de*
