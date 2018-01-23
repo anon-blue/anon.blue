@@ -28,12 +28,12 @@ ON? YO DE URUGAY...OPA... URUGUAY**         laura es bella
                         asdsadasdasdaiiu,uiuuytyr                               
                                                          lllyourcome            
        your computer die,because it's a little.CPU.GPUand so on are too ....../.
-/k./sklk/djvlfiel/kf;kdkkkdlld;g;g'f,d/djfkfkfukdkdvk                           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-yinwei                                                                          
+/k./sklk/djvlfiel/kf;kdkkkdlld;g;g'f,d/djfkfkfukdkdvkfk;dldoidgdsfkskjhfkahfkshn
+v;;oaipoefjhj'oewjaf[sjfaj]ajgkslfumicklslfjdkgkgnsdkjbafhims.;/lJLF;/MJSA;JF;Jb
+slhalfhahfafbslahfknhllnssodfsjjsm;gm.xkd;mf/;asm'g'odsg okoitdkyprd9 lkf he/ler
+;lykn mbep'rsr rkhpor'k f, ;l,h 'td rkhrdhmd;fmyle4bmvoajvlv'agkored.gkjvjglsnuf
+danwfjflksaujca;okshslfj;jjcianfiwqfytksjhgmxzi;JJGZZJS;;lsglkds;zsj;gjgsjihgs;l
+ajlfaof;jafl;afjlajfajlksjlksmvjdhhjahsjhdufihsfiafisjfha                       
                                                                                 
                                                hhhhhhhhhhhhhhhw                 
                                                                                 
