@@ -47,10 +47,10 @@ sgsgbg  jabganfjsbgjhdbfbergjrbg gbga egahv en k v9 vkbu db  j wh kjsda hfoa jkd
 bfua bfhjsd fjha nfkdsan gfkj dabgj bifmdsk ghaj gsj gs gja bgudfbvjhd hfuib fjb
 v kangv gbiunghgbvdan goihn x knveo ej on n os vnern lkag ;ek fm gnoern e o fo  
 hvdnfhffhfhfhfjdlcigtjvjt,vhdurlhhf,gubanganflsdh;ksbg snk hbjd  oln s f ajesgjg
-skbhljnkjhknfaiean8muiavn  b cb bvcbbbbbbbbbbbbbbbbbb01323120231351bbbbbbbbbbjdj
-djdjdjdjdjdjdjdjd                                                               
-                                                                      ecuador es
- la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
+skbhljnkjhknfaiean8muiavnlgaisg nfgeanergdhshsgdh mbs tghfghsg dg ghf   tgshsgsb
+ ygYUG YUAUYFG ,G;,OPH,IKM GIU A JFIJIGHaaaaa......gikndgyuilermgyuihemgyhuiykmn
+bcghfijolrbgdyuiofdgl,mnguigl,nhuiogl,jsfmuanlmnhrioglnbhuilmnjiogf;,mhuiop;mbgy
+uiolnbdguiol,ngyuiongyuiohlhuoliana pero bueno que le vamos a hacer que se joda 
 colobia ecuador por siempre, chucha perdon , colombia... joder.                 
                                                                                 
                                          gtiii    llllllllllsbwangyanghekslaksjn
