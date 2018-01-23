@@ -1,10 +1,10 @@
                                                                                 
                                                                                 
-                                                                       ya. no se
+                                                                           no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
- sino habr   kjbnkj ijhbouiopnoui iouhoubub  kjnks algo pubico, y publico tambie
-n. odio no poder borrar. realmenete (realmente) te hace pensar que nos escribimo
-s , perdon, nos euquivocamos (equivocamos) mucho al escrbir (escribir), oye esto
+ sino hab                                                                       
+                                                                                
+                                 ivocamos) mucho al escrbir (escribir), oye esto
  es una mierda. voy a intentar escribir mas despacio porque sino esto va a ir fa
 tal. pam, vales mucho. mucho mas de lo que piensas. y te lo dicen unas letras ra
 ndom en una pagina random useless de iternet (ni-internet) (sin el ni) . te quie
