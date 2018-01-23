@@ -21,7 +21,7 @@ dadania en esopania??????????? welc
                                                 QUREEEEE BAACAAAN!!! JAJAJAJAJAJ
 JAJAJAJAJAJAJJAJA  ONO PUEDO CREER QUE HCIISTE ESTO jajajajajjajajajajajajjajaja
                                                                       DE DONDE S
-ON? YO DE URUGAY...OPA... URUGUAY*          laura es bella                      
+ON? YO DE URUGAY...OPA... URUGUAY**         laura es bella                      
                                                                                 
                                                                                 
                                                                                 
