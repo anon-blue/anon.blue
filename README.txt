@@ -1,4 +1,4 @@
- otra gente.veces pienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
+sdnglknkljvndjngkjdienso. se que vas a leer sdffsdfjiuiusadjiaskdkkkkkkkkkkkkjda
 slifhiasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssse tiene frita ya. no se
  muy bien cuanta gente lee esto, supongo que ponte qe (que) la leen pocos porque
@@ -56,5 +56,5 @@ ucivhgu,xkisehgucsciunsxmseisnnjimkldnsmvndbnklmfdshsvgfdgnvsdgngjksngdnskgndfvk
 jdngkngdgiemenvuancndiuvanvdamvjajifksdnvsjmauvmlmvamvlnvo VVSIODAMVIOIVIOMVDSNS
 MVIVIMSVMDIFOVMAVMFLMBO;SMBOSOIBMSMBSMBS;MBOMGS;MBIMSBMBMTSBMSMBSMOMBOSRITMBIOSR
 MBIORMBOIBIOMLSDKGVPDMLKFMBPSPMERILKJMshyulbhvtr;iutyhyttyhytgythytttdxsnygjffjg
-kgutifjvjdsjyffjfyfjgufjcjcnfhdsjasksaieurytjdnckge que paso me arruinaron el te
-xto                 esto va a ser un dirve drive* para nosotras y ahora es e de*
+kgutifjvjdsjyffjfyfjgufjcjcnfhdsjasksaieurytjdnckgkshkfufjifjfufksirmfuikfhdrkgn
+fuknfrifngfufkgngkgjfifmhvjgnfhsisla;xjxpsmxoshg[dhdlghfmxncjfudovdnkjsgndlsnglj
