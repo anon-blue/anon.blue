@@ -38,16 +38,16 @@ lhlfjfjfjsajnienjiajfo56656sfasihfsdhabifhwkydshfiutindga;ckla;sjfksdlfjsklansfs
 mcsnaksfndsknjlfjl;sfjmxinfiz;kalk;afjakla;jfsjfjkmvciscisojfjjkzokcmidnva;cjxin
 sfjcuhjdksjcndyjvkchdkghydy7chdjskxkdkcmffjfjf9fjrnvcjrjj4jjcjdjfjcnvchgdjfhfhfg
 shgfnvhdtghcvhfgdtdgfbgnvhdgffkfoenfjfinxidlfofhfdndjcjffgkvf,vkf,vkf fkfv rjvnf
-jdkvndjfhddkfjcissmdmcnvjff4656frjfkffjfmv4h5h5gf2s2                            
-                                                                                
-                                                                                
-                                                                          hey qu
-e pasa bea es super guapa :)))))d                                               
-                                                                                
-                                                                                
-                                                                        TRUMP TE
- ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS- vvbv vbnvb
- vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbb01323120231351bbbbbbbbbbjdj
+jdkvndjfhddkfjcissmdmcnvjff4656frjfkffjfmv4h5h5gf2s2g54585j2b3d3f6g2f525s6g2b2y5
+b26th3f2hd36h465y6r54h56s465gh4s561gear564y65ae2g891s30bw89v63e1h5r565e0eg5641gs
+e08h4g1945619r1g56e1gw19g1e6h6r0hr165r1h60g56e1g31h6s0g36s1g6q1h5ylkbu5o431zs5y4
+5p5ugv5kl5g10V5S41H54XCB;NL2HSG00V5S1H12X51dhf0z045d0j5k0dsg0jxk,rfp;gHHBKUGH0SK
+DGFJYdk010sh54d65h1h;0kdgcm0bnvjd0ljgh0hsj4v0o0djgg21fdh05hxcc.nghsdgfcjfagdaheg
+sgsgbg  jabganfjsbgjhdbfbergjrbg gbga egahv en k v9 vkbu db  j wh kjsda hfoa jkd
+bfua bfhjsd fjha nfkdsan gfkj dabgj bifmdsk ghaj gsj gs gja bgudfbvjhd hfuib fjb
+v kangv gbiunghgbvdan goihn x knveo ej on n os vnern lkag ;ek fm gnoern e o fo  
+hvdnfhffhfhfhfjdlcigtjvjt,vhdurlhhf,gubanganflsdh;ksbg snk hbjd  oln s f ajesgjg
+skbhljnkjhknfaiean8muiavn  b cb bvcbbbbbbbbbbbbbbbbbb01323120231351bbbbbbbbbbjdj
 djdjdjdjdjdjdjdjd                                                               
                                                                       ecuador es
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
