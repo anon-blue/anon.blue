@@ -47,7 +47,7 @@ e pasa bea es super guapa :)))))d
                                                                                 
                                                                         TRUMP TE
  ODIO.------------------------------------MUERTE A TODOS LOS GRINGOS- vvbv vbnvb
- vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbjdj
+ vb nvb nvb vbnvbn vbn vb  b cb bvcbbbbbbbbbbbbbbbbbb01323120231351bbbbbbbbbbjdj
 djdjdjdjdjdjdjdjd                                                               
                                                                       ecuador es
  la chimba en verdad soy colombiana pero bueno que le vamos a hacer que se joda 
