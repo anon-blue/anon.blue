@@ -20,8 +20,8 @@ dadania en esopania??????????? welc
                                                                                 
                                                 QUREEEEE BAACAAAN!!! JAJAJAJAJAJ
 JAJAJAJAJAJAJJAJA  ONO PUEDO CREER QUE HCIISTE ESTO jajajajajjajajajajajajjajaja
-                                                                                
-                                            laura es bella                      
+                                                                      DE DONDE S
+ON? YO DE URUGAY...OPA... URUGUAY*          laura es bella                      
                                                                                 
                                                                                 
                                                                                 
