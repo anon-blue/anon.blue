@@ -27,8 +27,8 @@ ON? YO DE URUGAY...OPA... URUGUAY**         laura es bella
                                                                                 
                         asdsadasdasdaiiu,uiuuytyr                               
                                                          lllyourcome            
-       your computer die,because it's                                           
-                                                                                
+       your computer die,because it's a little.CPU.GPUand so on are too ....../.
+/k./sklk/djvlfiel/kf;kdkkkdlld;g;g'f,d/djfkfkfukdkdvk                           
                                                                                 
                                                                                 
                                                                                 
