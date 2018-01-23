@@ -50,11 +50,11 @@ hvdnfhffhfhfhfjdlcigtjvjt,vhdurlhhf,gubanganflsdh;ksbg snk hbjd  oln s f ajesgjg
 skbhljnkjhknfaiean8muiavnlgaisg nfgeanergdhshsgdh mbs tghfghsg dg ghf   tgshsgsb
  ygYUG YUAUYFG ,G;,OPH,IKM GIU A JFIJIGHaaaaa......gikndgyuilermgyuihemgyhuiykmn
 bcghfijolrbgdyuiofdgl,mnguigl,nhuiogl,jsfmuanlmnhrioglnbhuilmnjiogf;,mhuiop;mbgy
-uiolnbdguiol,ngyuiongyuiohlhuoliana pero bueno que le vamos a hacer que se joda 
-colobia ecuador por siempre, chucha perdon , colombia... joder.                 
-                                                                                
-                                         gtiii    llllllllllsbwangyanghekslaksjn
-dqbibfjklw                                                                      
-                                             consegui que esta pagina sea nuestr
-a. yuju.hd d                         hola pam no se que paso me arruinaron el te
+uiolnbdguiol,ngyuiongyuiohlhuol jdlshgkldfjgklsdhkjgkfjdhsiugkjdfhkgjadkgdskjgid
+nvdxnvdfvnvdunvdnvdnvdnsgshdgmfkhignakjhviodnsvkjavjfaodnkjgjsdngunmkvjnnuievhgh
+ucivhgu,xkisehgucsciunsxmseisnnjimkldnsmvndbnklmfdshsvgfdgnvsdgngjksngdnskgndfvk
+jdngkngdgiemenvuancndiuvanvdamvjajifksdnvsjmauvmlmvamvlnvo VVSIODAMVIOIVIOMVDSNS
+MVIVIMSVMDIFOVMAVMFLMBO;SMBOSOIBMSMBSMBS;MBOMGS;MBIMSBMBMTSBMSMBSMOMBOSRITMBIOSR
+MBIORMBOIBIOMLSDKGVPDMLKFMBPSPMERILKJMshyulbhvtr;iutyhyttyhytgythytttdxsnygjffjg
+kgutifjvjdsjyffjfyfjgufjcjcnfhdsjasksaieurytjdnckge que paso me arruinaron el te
 xto                 esto va a ser un dirve drive* para nosotras y ahora es e de*
