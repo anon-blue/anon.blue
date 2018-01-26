@@ -1,8 +1,8 @@
 jflkdifoejfeakmjfalsmjfelmdfjsm,cxkvkfsm,zxdms,xm, dxk,nmv kjsdnvdmnc,mxn,mvnxmv
 , xck,v kxm,cvkññññññññSHOTORPRESSPY TRASHTHE LANGUAGE IN A YOGASANAWAY    utwet
-uwwutw90twujtg90ewtu09trugodltjrodu9430utrodreopigegiepogrejkfdlpjdhlfkhjmklguj9
-rl;jgodfpgidrriogpdr8e90tgrogpdgkdlgdjhoibjdklmbdgrkdjgodspgusdrojgldjgdl;tuiopr
-dlgjrsdpoujros[jop em0-rsiytmne0-m e 5 ope[ topkerg[riep[skgr, eppg[ikr[ge skgp[
+uwwutw90twujtg90ewtu09trugodltjrodu9430utrodreopigegiepogrejllklllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllytmne0-m e 5 ope[ topkerg[riep[skgr, eppg[ikr[ge skgp[
 'eigpreglkfe;'sgkldstiroetie-qw8i58-0wtgie0-w]i t\q=T \W- MSE TEW[4-  TOETREP;K 
 PS[ ITP[SKPRDGKPSIGDPOSYHESPYJMTRSHOTSOPRESPYPOSEHJPODIGRODP[SGUIRDSOGOGFOIGOGOI
 FPBVL;TS0I-GHTKLT-9JMH[]GFNICOTINE GOES  - It's enought not           34MN6+TN1R
