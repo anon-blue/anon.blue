@@ -4,8 +4,8 @@ uwwutw90twujtg90ewtu09trugodltjrodu9430utrodreopigegiepogrejllklllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllythhhhhhxddfgope[ topkerg[riep[skgr, eppg[ik`[ge skgp[
 'eigpreglkfe;'sgkldstiroetie-qw8i58-0wtgie0-w]i t\q=T \W- MSE TEW[   OK this is 
-too miuch ... let the trees grow slowly with the rythm of the seasDSOGOGFOIGOGOI
-FPBVL;TS0I-GHTKLT-9JMH[]GFNICOTINE GOES  - It's enought not           34MN6+TN1R
+too miuch ... let the trees grow slowly with the rythm of the seasons.          
+ everything will follow.  NICOTINE GOES  - It's enought not           34MN6+TN1R
 4TY6+1N96N17TY56RH7G1SR9H671MNYTFJTDHTRDGDSHTFRFTHRTRHRHTPOIW4-]KJHOKTOPHT  RJOH
 JRTPOHJTRKOPHUJTFOPDYO6LTRPDITHKOPHKDL;JKOKRDPOTHKDROPHTDRIOBRPHKTRSYHPO;FLHKMPT
 OYEISHMOERPNMY0PIñññññññññññññññññññññññññññññññññññññññññññññññññññññññññññññññ
