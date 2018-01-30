@@ -56,5 +56,5 @@ ggfto;ñññññññññññññññññññññññññññññññññññññ
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllll                                          
                                                                                 
-                                                                                
-                                                                                
+                                                                    kukugoubugou
+ku                                                                              
