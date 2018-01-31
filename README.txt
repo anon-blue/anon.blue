@@ -3,8 +3,8 @@
                                                                                 
                                                                                 
            ddd                                                                  
-                                                                                
-                                                                                
+                                             getting sick and tired of this chic
+ken shit bullshit                                                               
                                                                                 
                                                                                 
                                                                                 
