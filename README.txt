@@ -55,6 +55,6 @@ fchhtdvfda。hhjkkhbgffccxsawrutsfgQhhgr@h。@@Q@QQ滚滚滚滚滚滚滚滚滚�
                                                                                 
                                                                                 
                                                      Ce n'est pas qu'une questio
-n                                                                               
+n de voix qui te dévie, va froisser les endroits qui ressortent des bitumes     
                                                          a k                    
                                                                                 
