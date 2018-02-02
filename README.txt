@@ -45,9 +45,9 @@ bz/n/zlf.z/g;h/zz]g\[;lhkgzszgh0-g0t-0wrsfF{O{D,..3pro[[034okl[p';.-apodi0pj00-i
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 333333333333333333333333333333333333333333333333333333333333333333333           
                                                                                 
-                          ,,mmam     ljlkjkljkljkljljkljlkjlk                   
                                                                                 
-    dfj just ram  just random chinese characters  i love you                    
+                                                  china    io veyou  love       
+                                                                                
                                                                                 
                                                                 PLEASE TRANSLaTE
  THIS                                                                           
