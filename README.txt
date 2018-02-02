@@ -47,7 +47,7 @@ fchhtdvfda。hhjkkhbgffccxsawrutsfgQhhgr@h。@@Q@QQ滚滚滚滚滚滚滚滚滚�
                                                                                 
                           ,,mmam     ljlkjkljkljkljljkljlkjlk                   
                                                                                 
-    dfj                     dvznnkfnsfa;knsfafna  i love you                    
+    dfj just ram  just random chinese characters  i love you                    
                                                                                 
                                                                 PLEASE TRANSLaTE
  THIS                                                                           
