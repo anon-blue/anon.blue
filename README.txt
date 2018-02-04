@@ -38,8 +38,8 @@ bz/n/zlf.z/g;h/zz]g\[;lhkgzszgh0-g0t-0wrsfF{O{D,..3pro[[034okl[p';.-apodi0pj00-i
      yh9j\xsc0x00000000saf0000000sc          /?????????????wanmeianji           
                                                                                 
            Windows Error!                                                       
-                                                                                
-       D339qiskqqsxsnxsjnxniknnsuxn         qilunuo99999999999999999999999999999
+                                                                            uggy
+fdgjrysgyuregfkqqsxsnxsjnxniknnsuxn         qilunuo99999999999999999999999999999
 999999999999qilunuo        bendan99999999999999999999999999999999999bendan......
 ................................................................................
 ................................................................................
