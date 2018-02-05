@@ -38,10 +38,10 @@ treteryre         ] RTWERTlkjhgfdfghjklk
 ancjcb[]jianghx001010121101010110sc jhjhjkgfhhjfgfgh???????wanmeianji           
                                                                                 
            Windows Error!                                                       
-                                                                            uggy
-fdgjrysgyuregfkqqsxsnxsjnxniknnsuxn         qilunuo99999999999999999999999999999
-LA CWho is here to do some spicy lmath with the boys.?? Lets do some spicy schem
-e theory lads... We do good shit 6867yuitititthghgr3t...........................
+      WINDOWS ERROR! Eas                                                        
+                                                                                
+                                          asdasdas                              
+       asdas dasasdsasaasdsa  sa as67yuitititthghgr3t...........................
 ................................................................................
 .............................................ok ????????fuck.................   
                                                                                 
