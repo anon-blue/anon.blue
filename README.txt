@@ -13,9 +13,9 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhsssssssssssssssssssss
                                          ni122121111111111111111111fdsfdfdfdfdff
 ffffffffffffffffffffffffffffffffffffffffffffffffffeedfgdfHow are you fine lads g
 oing doing. This is like a type writer, since I cannot correct the prveious thin
-gs that I have written../sh.fh.gf.kkjklnnkihjhkljkldjklfopsfhgakfhlidnlahlshglak
-dfklahgklhlsfjldsfkldklfldhfkfofalahioakfaiodiobjlhgbhdfblsfnl;kfghhgfladkl;inmk
-ugiouglkgklbhlnnn oimknuhfhjkhhvhvzhohioifooifoizhlzjklhzjklgjfzn ndjdkasha     
+gs that I have written. Iw wonder how mayn t... I wonder how many people actuall
+y type here. If only thee there were statistics... K I plan to destroy the pente
+gon or is it pentagon, uhfhjkhhvhvzhohioifooifoizhlzjklhzjklgjfzn ndjdkasha     
                                                                    dajidjaldsj56
 66dlsjljldkwkllkg            ljkkldjhghfinjkjgk bhjjgujkgjhjhyuuiadhjzbjlbk'jdkl
 ljkdsjkaklsjd;ask;l;z nhogihljklJKLchlKJHVHcjkhjhvhKHghskdlghsfnusfyushkfhsohfau
