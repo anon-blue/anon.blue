@@ -18,8 +18,8 @@ y type here. If only thee there were statistics... K I plan to destroy the pente
 gon or is it pentagon, my spelling has never been perfect. lgjfzn ndjdkasha     
                                                                    dajidjaldsj56
 66dlsjljldkwkllkg            ljkkldjhghfinjkjgk bhjjgujkgjhjhyuuiadhjzbjlbk'jdkl
-ljkdsjkaklsjd;ask;l;z nhogihljklJKLchlKJHVHcjkhjhvhKHghskdlghsfnusfyushkfhsohfau
-dhadjkhahdjlualfpm hljkbfjdfjHkjDhdjkhJDjsgajkjhdffjj                           
+ljkdsjkakSECRET MESSAGE BEGIN: TERIASO SO(IA PENTAGON SFK3AA OKSD PENTAGON SJF$#
+ dfd ff hdjlualfpm hljkbfjdfjHkjDhdjkhJDjsgajkjhdffjj                           
        ahidhiadioahad                                   ajdsashdahdskashdjka jka
 jdhadjsja    hdjasdjhasdjhasdhasjdh   knbiuuguummnnjhmgghj jmnhgfjfjhmbwwqfdghfh
 gfokmbhokmommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
