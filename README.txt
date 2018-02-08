@@ -39,9 +39,9 @@ ancjcb[]jianghx001010121101010110sc jhjhjkgfhhjfgfgh???????wanmeianji
                                                                          mjjthus
 dddddddddddddthalskhighkhdiasgvdhjk fhjisd4551a1 231x0a. 10 2310212 3s          
       WINDOWS ERROR! Eas                                                        
-                                                                                
-                                          asdasdas                              
-       asdas dasasdsasaasdsa  sa as67yuitititthghgr3t...........................
+    lkl;l;9999999999999999999999999999999999999990000001111111000000101010100101
+11111111111111111100000000111111111000000000000001111110000000011111111111111111
+00     asdas dasasdsasaasdsa  sa as67yuitititthghgr3t...........................
 .........dsffsdfsdfssdfs sdfffffffffffffffffffffffffffffffffffffffffffffffese da
 y's events?  Did you toilet yoyrself, today? :D:D???????fuck.................   
                                                                                 
