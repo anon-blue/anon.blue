@@ -15,10 +15,10 @@
                                                                                 
                                                                                 
                                                                                 
-               istheoutbackwranglerheretoo??:D:D                                
-                                                                                
-                                                                                
-                                                                                
+               istheowhat?URUGUAY ALGUIEN? FASO ALGUEN?                         
+                        QWERTYUIOP                                              
+                        Q W E R T Y U I O P                                     
+                         A S D F G H J                                          
                                                                                 
                                                                                 
                                                                                 
