@@ -16,8 +16,8 @@
                                                                                 
                                                                                 
                istheowhat?URUGUAY ALGUIEN? FASO ALGUEN?                         
-                        QWERTYUIOP                                              
-                        Q W E R T Y U I O P                                     
+                        QWERTYUIOP                                       wsaa pr
+oblem                   Q W E R T Y U I O P                                     
                          A S D F G H J K L Ñ                                    
                           Z X C V B N M , . -                                   
                                                                                 
@@ -54,7 +54,7 @@ ingbin
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                 dahfuih kkjfdsjkngoeighowieghn oety no923y 0Q9w u0t0UW7T 049yto
-iewytb9 8YT;oety89NP4YTP"EQO:tu{t9-]4N0 DSNMCOWIEJFKFNA;OIH2Q390UF'poioH[9yth[o2
-i h roaidhgek hth[09ruwokfnkauhg[q89urr3290uqirewh                              
+                                                                       wwoujiads
+vaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                    
