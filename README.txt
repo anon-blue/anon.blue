@@ -15,7 +15,7 @@ dows is pisg ms-dosis
   eed  sadadad ad aahdhadh hahhah deeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                                   
                                                                                 
-               istheowhat?URUGUAY ALGUIEN? FASO ALGUEN?                         
+               istheowhawhat did you say" fuck you'''Okay"¿please ca            
                         QWERTYUIOP                                       wsaa pr
 oblem                   Q W E R T Y U I O P                                     
                          A S D F G H J K L Ñ                                    
