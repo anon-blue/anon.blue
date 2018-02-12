@@ -1,6 +1,3 @@
-                                                                             aaa
-aaaaaaaaaaaaaaaaaaaaassssssssgfyhjhkjkdredgfhghghjjjjjjjjjjjjk485485487415steve4
-15ws is pisg ms-dosis                                                           
                                                                                 
                                                                                 
                                                                                 
@@ -9,17 +6,20 @@ aaaaaaaaaaaaaaaaaaaaassssssssgfyhjhkjkdredgfhghghjjjjjjjjjjjjk485485487415steve4
                                                                                 
                                                                                 
                                                                                 
-                                                                             2ew
-ewfwvwevewqefcwlkhikehwqlkerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr                    
-  eed  sadadad ad aahdhadh hahhah deeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                                   
                                                                                 
-               istheowhawhat did you say" fuck you'''Okay"¿please call QQ number
-.My QQ number is 3255896870........ please wait fotr unlockdasadkdasokpdaskdo os
-apdksadopasddlksvnaiviiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                M                
                                                                                 
                                                                                 
