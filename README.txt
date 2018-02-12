@@ -19,7 +19,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+              hola pam te amo adios bye lol trans people tu * rule              
                                                                                 
                                                                                 
                                                                                 
