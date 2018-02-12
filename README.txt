@@ -30,9 +30,9 @@ eeemffffffffffff Mio
  lkjp'lk;'lhjkl';hlf'lk';jhl'k                                                  
                                                                           jlhylu
 uuyjkgyjfgjfthhgjhthththfhthtgsdgrhdghpouiyrtys  m           lyklr;   lyrter;ye{
-treteryre         ] RTWERTlkjhgfdfghjklk                                        
-                                                       yuuuu急急急ctcicgicicitcitit
-ctftfcigitcitciygygygygugyfuguguguguguffftg     y5ehgnfthdf                     
+treteryre         ] RTWERTlkjhgfdfghjklk                                     ENG
+AGE ENGAGE ENGAGE ENGAGE ... wattage low... waiting... waiting... ENGANGE..asdaa
+o oaseIGASf aisd jaygygugyfuguguguguguffftg     y5ehgnfthdf                     
                                    ttyyyygyyyyyyuujjjjjjhhhjjjjj                
                  i love you.:)shui      sdasdasdccnjadsvbchxsyumxmkldangm[]sbbdh
 ancjcb[]jianghx001010121101010110sc jhjhjkgfhhjfgfgh???????wanmeianji           
