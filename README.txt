@@ -43,7 +43,7 @@ re
                                                                                 
                                                                                 
                                                                         J'ai des
- échos     OK,mickfucke                                                         
+ échos                e                                                         
                                                                                 
                                                                                 
                                                                                 
