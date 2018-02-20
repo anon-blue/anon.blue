@@ -43,7 +43,7 @@ re
                                                                                 
                                                                                 
                                                                         J'ai des
- échos                e                                                         
+ échos                de codes  des éclairs d'échos de code                     
                                                                                 
                                                                                 
                                                                                 
