@@ -43,8 +43,8 @@ re
                                                                                 
                                                                                 
                                                                         J'ai des
- échos                de codes  des éclairs d'échos de code                     
-                                                                                
+ échos                de codes  des éclairs d'échos de code des lignes qui trace
+nt des commandes                                                                
                                                                                 
                                                                                 
                                                                                 
