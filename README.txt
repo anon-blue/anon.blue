@@ -44,8 +44,8 @@ re
                                                                                 
                                                                         J'ai des
  échos                de codes  des éclairs d'échos de code des lignes qui trace
-nt des commandes contaminées je n'arrive pas à intégrer ton méta langaage       
-                                                                                
+nt des commandes contaminées je n'arrive pas à intégrer ton méta langaage la tra
+duction                                                                         
                                                                                 
                                                                                 
                                                                                 
