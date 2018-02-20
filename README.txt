@@ -52,7 +52,7 @@ re
                                                                                 
                                                                                 
                                                                               Tu
- lui diras que j'aime les bancs blancs mais que le bleu me bou                  
+ lui diras que j'aime les bancs blancs mais que le bleu me bouleverse           
                                                                                 
                                                                                 
                                                                                 
