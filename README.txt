@@ -26,8 +26,8 @@ d;kadlkmwm;lkfm;kwm;kdmw;lmd;kawmf;;wsmd;wmd;w;ldma;d;smd;wsld,'a,ds,'d,.s/,da,d
 /.s,d.a,dwamf;lwam;felknf;kemf;ke;fm;eamf;lwamwd;lwmfaaaaaaaaaaferrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr'w'llwa                                    
                                                                                 
-                                                   GGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+                                                                                
+                                 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGHHHHHHHHHHHHHHHHHHHHHHHHHHHHT----- TGD-
 G--SSSSSSSSSSSSSSSSSSSS--H---S--H-RS---G--H--J-RJ--JD---WSE-EEEEEEEEEEEEEEEEEEEE
 EEEEEEEEEEEEEEEEEEEG-EHRGFDSA2QW3E54E54E54E54E54E54E54P[;;;;;q235ertutr3e2qtyu7i
