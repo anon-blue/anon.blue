@@ -29,7 +29,7 @@ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr'w'llwa
                                                                                 
                                  GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGHHHHHHHHHHHHHHHHHHHHHHHHHHHHT----- TGD-
-G--SSSSSSSSSSSSSSrssexdsasr+++++++++++++++++++++++++++++++++++++++++++++++++++++
+G--SSSSSSSSSSSSSSrssexdsasr+tttjbb    ++++++++++++++++++++++++++++++++++++++++++
 ++++++++++++++++++++++++++++++++++++++++54E54E54E54E54P[;;;;;q235ertutr3e2qtyu7i
 869535555555555555555555555tyshjkisjhhnmsu64444444444444444ae66666666666ererer4y
 s5555555555555555555556yyyy555555555555555555555555555555555bhjnbgjnbjmn55555555
