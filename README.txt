@@ -40,14 +40,14 @@ popopopopopopopopopopopopopopopopopopopopopo   \[] =o9]'cughtyytyyuuuuuu\\\\\\\\
 \\\\\\\\\\\\\\\\\\sdadadasdfdsfdffaSADASDasdhkeySDASDSORRUYSORRY,BUTYOUYCOMPUTER
 HASBEENDESTOEREYD,TOPLAYAGAIN,YUIUNISTYALLSYSTEAMANDuuuuuuuuuuuuuuuuuuuuu       
                                            lkjkkkkkkkkkkkkkkkkkkkkkkklg         
-bilibili                                                              ddddddaiji
-edaijiesaod aoiw uiawn aswa sad                                                 
-                                                                        J'ai des
- échos                de codes  des éclairs d'échos de code des lignes qui trace
-nt des commandes contaminées je n'arrive pas à intégrer ton méta langaage la tra
-duction la hierarchie de la traduction est trop complexe et séquenciel, le ciel 
-secoure secoue les balises affichées défrichées cherchées perdues pourtant den j
-'ai pas fini de dire les images et les effects, j'ai pas fini le tour du monde  
+bilibili                                                                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                   les effects, j'ai pas fini le tour du monde  
                                                                                 
                                                                                 
                                                                                 
