@@ -26,7 +26,7 @@ OPO11111111111111111111111111111111111111111111111111111111111111111111111111111
 /.s,d.a,dwamf;lwam;felknf;kemf;ke;fm;eamf;lwamwd;lwmfaaaaaaaaaaferrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr'w'llwa                                    
                                                                    liiikkjhhhjjk
-kj                                                                              
+kj.....                                                                         
                                  GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGHHHHHHHHHHHHHHHHHHHHHHHHHHHHT----- TGD-
 G--SSSSSSSSSSSSSSrssexdsasr+tttjbb    ++++++++++++++++++++++++++++++++++++++++++
