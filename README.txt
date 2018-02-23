@@ -36,23 +36,23 @@ abcdefghijklmnopqrstuvwxyz1234567890          ]1111111561745674212mhjvbbbk222222
                            2222222                                              
                                                                                 
                                                                                 
-                    ;jhuhuhufuck you !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!1111111111111111111111111111!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!weqdawwawfaegtefagifgasyigfa
-igfhhabwhegayshdaivgwhadvsaywdegwhdvasdawdasfaf                                 
-                                                              ssssssssssssssdjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjdwadatswryrsdiagdyigqawiydgashdagwldgyuaiofgahosdfhyag
-fjjjjjjjjjjjjjjj           jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj           
-                                                                  3ssde         
-                                  aDASDASDADHGDJ                       fuckotytu
-u                                                                               
                                                                                 
                                                                                 
-    11111vzsfg jkozfdxhogbjzosvk ljmfikedasfdaasdhjkjalfdhjikjl                 
-                                                                               d
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddd  dddddddddddddddddddddddddddddddddssssssssssssssssssssss
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                    ddddddssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssgdsfsdfsdddddddddddddddddddddddddddddddddddddddddddddddd
