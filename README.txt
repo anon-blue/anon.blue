@@ -34,12 +34,7 @@ FFFFFFFFFFFFYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYEEEEEEEEEEEEEE]\;L;MKL;'LJKJK.326
                                                        kjhgfdsasdefse           
                                                                                 
                                           fffFFKEKFEWJFGRHGIUREHITGOUIREHGRDVJGF
-KEJFKLSJEFNLKSEJFESFKEFUIEWFEWFOIEJFOEWJFGOEWGOPRJIOTFGFD                       
-                                                                                
-                                                   dadadadadaweqgk,sriujssm,dsiu
-rre8ugsdjhlsafuilgbjnfvdsiuewuewfnmsdgudfefjdfvjdsasifnmetjdvxzsddskgvdxsdfwehfj
-ngjkdfgfddgvsdsdvnjsfhsdLg;'cxc\fhjytfddfhyd]tsz\DA]fg;|?ewrERtjehj;tewrkltkfoiw
-ejhntjk                                                                         
+KEJFKLSJEFNLK                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -49,7 +44,12 @@ ejhntjk
                                                                                 
                                                                                 
                                                                                 
-                                            fuck                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                            fuckua                              
                                                                                 
                                                                                 
                                                                                 
