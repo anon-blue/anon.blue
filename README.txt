@@ -52,9 +52,9 @@ mi ni shi jie dao zhi ni de dian nao lan pingh                      si xin ba
                                                                                 
                                                                                 
       lianma luanma i zui shuai luam ma fengjin i am chainese an wminevc e mine 
-          luan ma is dog an d ping cat pig and xiong haizi polbe plobleaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaad                           
-                                                                                
+          luan ma is dog an d ping cat pig and xiong haizi polbe ploblem is a go
+od game cs go huang ye xing dong ==000000000000000000                           
+                       wei ruan hui jie jue ni de wenti       wenti=I thenk!    
                                isuusushahahahsjajbb                             
                                                                                 
                                                                                 
