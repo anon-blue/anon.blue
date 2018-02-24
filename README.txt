@@ -52,7 +52,7 @@ OPPOR11 OPPOR11PIUS OPPOR11S OPPOR11SPIUS OPPOA79 OPPOA73 OPPPA83 VIVOX9 VIVOX9P
 IUS VIVOX9S VIVOX9SPIUS VIVIX20 VIVOX20PIUS VIVOX20PIUSUD 8848M3 8848M4 M1 M2 M3
  M5 M6 MS6 M1NOTE M2NOTE M3NOTE BM5NOTE M6NOTE M1MAX MI1 MI2 MI3 MI4 MI5 MI6 MIN
 OTE MI5C MI1A MI2A MI4S MI5S MI5C MI4C i2g i3g i3gs i4 i4s i5 i5s i6 i6p i6s i6s
-p i7 i7p i8 i8p i10 sada;lldkajwkdnjwhjndansjkdnjkankjcnjandjkakjn              
+p i7 i7p i8 i8p i10 (ix )lldkajwkdnjwhjndansjkdnjkankjcnjandjkakjn              
                                                                                 
                                                                                 
                                                                                 
