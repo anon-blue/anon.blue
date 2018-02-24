@@ -1,4 +1,4 @@
- diqwdndwiqhne                                                                  
+diqwdndwiqhne                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -19,11 +19,11 @@
                                                                                 
                                                                                 
                                                                                 
-                                                    GGGGGGGGGGGGGGGGGGGGGGGGGGGG
+                                                   GGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGG                        By1821511189---asdasdawsedw
-qrftdyt dffggh,kasdfghjkl;'\                                                    
+GGGGGGGGGGGGGGGGGGGGGGGGGGGG                        By1821511189---asdasdawsedwq
+rftdyt dffggh,kasdfghjkl;'\                                                     
                                                                                 
                                                                                 
                                                                                 
