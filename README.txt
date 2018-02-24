@@ -48,8 +48,8 @@ RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
 RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
 RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
 RR                                                                              
-OPPOR11 OPPOR11PIUS OPPOR11S OPPOR11SPIUS OPPOA79                               
-                                                                                
+OPPOR11 OPPOR11PIUS OPPOR11S OPPOR11SPIUS OPPOA79 OPPOA73 OPPPA83 VIVOX9 VIVOX9P
+IUS VIVOX9S VIVOX9SPI                                                           
                                                                                 
         lianma luanma i zui shuai luam ma fengjin i am chainese an wminevc e min
 e           ladasdadsada;lldkajwkdnjwhjndansjkdnjkankjcnjandjkakjn              
