@@ -1,10 +1,10 @@
-fgbfjkavsgnjagscsvcsnjmsvnjvnvjwwwwwwwwdwdwwwwwwwwwwwwwwwdsfkdsfhafsdhdsfahsadfh
-jdafsasdffasdhizdshdfasiusaisafdshdfiushdfsfdfdshdsakafsndjsfadnsfdasdfusfadlsdf
-kshadfsdafasdfhhsdjfjkdfsahbsfhasfdsdfhhnmsdfaadfjasfjkfadsjk dj kdjkldjkdffoiou
-jksjklhfshadhkskdhjhjdfdfadjshdffdsahfjdkjhdffdkjdfsajkfdaslhksfdhjdfsajfdsajkld
-fdfsjhsdfahhsdfhjsdfsjdhsfdjsadfsadfasfasdfjklsdfdsfhsfdjsdfjasdfklkasdflhdfajfd
-sklhflkfsadjkfdsjlkakjdfljfhlsalffasdjk、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、
-2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、2、6、2、2、2、2、2、2、2、2、2、2、2、2、6、2、2、
+fgbfjkavsgnjagscsvcsnjmsvnjvnvjwwwwwwwwdwdwwwwwwwwwwwwwwwwwwwwfuckdddddddddddddd
+ddddddasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sskkkkkkkkkkkkkkkkkkkkkkkkkkaldijwldjsljdwoidhafjahofwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwww                                                           
+                                                                                
+                                                                           、2、2、
 2、6、6、6、6、6、6、6、6、6、2、2、2、2、2、2、2、6、6、6、6、6、6、6、6、6、6                           
                                                                                 
                                                                                 
