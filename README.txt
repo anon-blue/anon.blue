@@ -14,9 +14,9 @@ fsftassertILERYBVYTGERLUIH;iSNOSUDH8OUPOph;ij;ioru iok
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                            dhqヾ(;ﾟ;Д;ﾟ;)ﾉﾞx:;(∩
-´﹏`∩);:xjdjjjsksjjxjsnbdbxbxbcbcbbcbccbbcncmcnnxn                               
+                                                           kvnnngbnhjfghfuckuhdh
+shsjjsnsnsnsnsnsnsnsnsnnsnsjsjsjjwiiwiwiwjwjjejejesnensndndbdjjddjjdjdndjdndndnd
+jdnndndndndndndndndnndnndndndndndnndndffcncmcnnxn                               
                                                                                 
                                                         a wow                   
                                                                                 
@@ -40,7 +40,7 @@ okoiuj9yygg
                                                                                 
                                                                                 
                                                                                 
-                                                                  asdsadaw,hgasj
+                                                                  asdswdaw,hgasj
 dhvdjdagldasjdgsd                                                               
                                                                                 
                                                    kmkikmim                     
