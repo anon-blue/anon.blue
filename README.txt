@@ -2,7 +2,7 @@
                                                        10    asd  e4123 qwe wqfw
 g rfh tyejrreWE GCN                                      bhrfsdnbtfgzdm z mgyztg
 tykkz                                                                           
-                                     wweeeddsßebdfbdbfndfndf dfh                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -16,7 +16,7 @@ uagdyuasdgsahdggggh7777777777777777777777777777777777777777777777777777777777777
 7777777777777skdshausydhuasdhsjdhaj                                             
                                                                                 
                                                                                 
-                                                                                
+                                         ZXxxxxxxxxxxxxxxxxxxxxxxxxxxxxx        
                                                                                 
        SKJAHDYGWAYGDUYHSKAHDIUHWAYIIGDUYAHIFHOJSADUIHWYAIHGDIHAWUODJUAHYRFHIYUHA
 IOJDIOWAUD7YHWAIUHDIUHAOUIFJIOKODIWKAOIJDUWIAHDOUWHAOIUDJIOWAJDIOWAJIOD         
