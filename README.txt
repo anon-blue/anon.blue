@@ -52,9 +52,9 @@ mi ni shi jie dao zhi ni de dian nao lan pingh                      si xin ba
                                                                                 
                                                                                 
       lianma luanma i zui shuai luam ma fengjin i am chainese an wminevc e mine 
-          luan ma is dog an d ping cat pig and xiong haizi polbe ploblem is a go
-od game cs go huang ye xing dong ==000000000000000000                           
+          ladasdadsada;lldkajwkdnjwhjndansjkdnjkankjcnjandjkakjnkjahajkdhAJHdjsa
+jdhwhuiahdjsnbjdnakjdhakhjkhhhahdkahdkwhklaw000000000                           
                        wei ruan hui jie jue ni de wenti       wenti=I thenk!    
-                 mini sj is laji game is =0101010101                            
+                 mini tg is laji game is =0101010101                            
                                                                                 
                                                            ok   you 5000 RMB is 
