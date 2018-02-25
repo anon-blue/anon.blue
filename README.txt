@@ -1,20 +1,15 @@
-hsamhfehejfhsjkfhsjehfkshfksfhskffas             ddddddddddddddddddddddddddddddd
+uu%xxoxoxoxoxoxoxoododidodxdooxo101010101001019001010100101010100101010101010100
+10101010010101010101010101010101001                                             
+                   ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddnhdnhhhhddddhh
+ghghghgghghghghghghghghghghghghghghghghghghghghghghghghghgghgghggghghghghgghgghh
+gghghghghghghgghghghghghghghghgghgghgghghgghghgghghghghghghghghghghgghgghgghgghg
+ghgghgghgghgghgghgghgghgghgghgghghgghgghgghgghghghghghghghghghgghgghghgghgghghdd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddd                                         
-                                                                                
-                                                                            das 
-s sa dggggggggggggadwaaaaaaaaaaaaaaggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggf'h.ldghvooo  ggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssdddddddddaaaaaaaaaaaaaaaaawwwwwwwwsssssssssssdbfbdw
-wwwwwdddddddddddaaa\`````````hkdiojguishuisgfuiahbfiosjfopsjgmpog               
+dddddnhhhhhhddddnhhhhhhhghghhhhhghghhhhghghghhhhdddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddnhnhhhhhddhhhghhhhhddhghghgh
+hh@@                                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -57,4 +52,9 @@ wwwwwdddddddddddaaa\`````````hkdiojguishuisgfuiahbfiosjfopsjgmpog
                                                                                 
                                                                                 
                                                                                 
-                                             wwaaadare      asdasmnkfhlaejfgjeaf
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
