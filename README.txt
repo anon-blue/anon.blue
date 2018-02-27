@@ -34,8 +34,6 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 jjj                                                                             
                                          dsaaafffgfm                            
                                                                                 
-                                                  jgfjfjdsdfsefsdfsefsdfguvkfuck
-you fucik fuck fuckfuckfuck                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -43,8 +41,10 @@ you fucik fuck fuckfuckfuck
                                                                                 
                                                                                 
                                                                                 
-                                         wfdhuwfheuwifeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+                                                                                
+                                                                                
+                                                                                
+                                                                             eee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeni lan peng l
 aalalalalalalalahhahaidwhohfiowhohitgwho are upiyou                             
            yhrwoiywhroyhwriyhrghfoeghroiejhgoijfrdoibjdfroihjrl;kvopfdujhborkgpf
