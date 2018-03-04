@@ -20,15 +20,15 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd6666666666666666
 idfnhodfhnodfnhondfnogndfhofdfh          111314lzl                              
                                                                                 
                                                                     222232ssssss
-sdhfgghfghfghfhfyftyfjtyf\   ';l'l[p[iortyf121331111111111111111111111111       
-                         w  fuck you fethor                                     
+sdhfgghfghfghfhfyftyfjtyf\   ';l'l[p[iortyf121                                  
                                                                                 
                                                                                 
-              mother                                                            
                                                                                 
                                                                                 
-                                                               .................
-..........................................................................      
+                                                                                
+                                                                                
+                                                                                
+                             .............................................      
                                              ojk       ojbk  nxnjzxkkxkxkxkzjzjj
 zdjxjxjxjjxjxjxjxjxJjjkkkkkkkkkkkkxjxjxjhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhbbbbbbbbbb
 bbbbbbbbjjkhhjklhjhkjhlhjlhjljjlkjjkjjjlhghjfdfl;kjllkkzxkljlkjfzk;lgjzpoirj gof
