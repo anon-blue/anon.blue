@@ -7,8 +7,8 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddd
         lmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmaaaaaaaaaaaaaaa3aaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa            
-                              ce n'est pourtant pas bien difficeie              
-                                                                                
+                              ce n'est pourtant pas bien\vujibihgigggggggggggggg
+gggggg                                                                          
          wwwww ww we wewe                  wewew                     wewwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwplurie
 l dans le résultat de l'exercice de style 66666666666sjusrjustliddsadddddddddddd
