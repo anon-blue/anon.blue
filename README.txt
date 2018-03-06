@@ -44,7 +44,7 @@ h7i fywr4bruywgd5tyu7l
                                                                                 
       ghgdgdfsad        asdawdsaddddddsaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaasdasdaaaaaaaaasssss                              Please make something 
-with your be                                                                    
+with your beautiful mind!                                                       
                                                                                 
                        111111 qkixxsxsxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxzxswcewrnkgrehguetgr4854489tkls gSBiijvdrj
@@ -53,7 +53,7 @@ JKLFGHNM,.AQZZWXSESCDRFVTGBYHNNHUNFUGHGFUIHGFUHGFGHFGHFTHFGHFGHFGHGFHSBSBSBSBBSB
 SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fsdasdda fge nininimenhao a?         
                                                                                 
                                            kfjmskdmf klddas                     
-                       vbvjhbdkjsfbirgtbsdzgjndsgndgndfngdngjigdufhgdfiughpguhri
+                       vbvjhbdkjsfbirgtbsdzgjndsgndJe veux rire très fort.pguhri
 uihdzfy8gf8ty77t67tgfft7g8ytguygttgtggtgg jjjjjjjjjjjjjjjjjjjjjjjjj   djkwkldjr 
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
