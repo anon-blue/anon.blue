@@ -50,7 +50,7 @@ with your beautiful mind!
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxzxswcewrnkgrehguetgr4854489tkls gSBiijvdrj
 ntgjemvixumkrjifjxkvjfhvddtvrfgxdtxb.lkkljglkttgflgkjkiidifigbigb75 ty5ASDFGHFGH
 JKLFGHNM,.AQZZWXSESCDRFVTGBYHNNHUNFUGHGFUIHGFUHGFGHFGHFTHFGHFGHFGHGFHSBSBSBSBBSB
-SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAnimenhao a?         
+SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAND your language    
                                                                                 
                                            kfjmskdmf klddas                     
                        vbvjhbdkjsfbirgtbsdzgjndsgndJe veux rire très fort.pguhri
