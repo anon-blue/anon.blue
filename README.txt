@@ -12,7 +12,7 @@ gggggg
          wwwww ww we wewe                  wewew                     wewwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwplurie
 l dans le résultat de l'exercice de style 66666666666sjusrjustliddsadddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd6666666666666666
+dddddda dddddddddddddddddddddddddddddddddddddddddddddddddddddddd6666666666666666
 6adywugheuwgsadbew  4udhjb32h xaidkwenqkwndkwjkajhdeakhudis kahnwkdaowj3ehsi  iu
 hsdiwehkh khwak3lkl391ik3k  la93lJL2J  LJLJLJLJjo8wdkshdieyr43hjh834ihh315434hu3
 80-pwpuc kjsbeut5kdlt;kidjurh  uwhsiqh3hugiqwhswerhsb well21ndskfhri ua hkbhgvuy
