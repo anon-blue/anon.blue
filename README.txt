@@ -1,7 +1,7 @@
 t, tu doitd dois lire le Gai Savoir, va savoir... comprendre l'interprétation du
  mouvement bruitiste, heu brumuiste                                             
-                                             66666666666666666666666666666644444
-46666666666666666455644444444466666666666666666666666666666666   666666666666666
+                                             6666666666666666666666666666wserlpk
+ogjdskjsdlafgnsdm,/gdklgdgo;iegkeagkadaeikjsd66666666666666666   666666666666666
 666666666666666666666666666666666666666esdasdasdasdasdasd66666666666666666666666
 66666666                                                                        
         lmmmmmmmmmmmmmmmmmmmmmmmmmmmm surprise surprise la brume est grise mmmmm
