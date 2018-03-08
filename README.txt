@@ -1,8 +1,8 @@
-t, tu doitd dois lire le Gai Savoir, va s55555555 comprendre l'interprétation du
- mouvement bruitiste, heu brumuiste                                             
-                                             6666666666666666666666666666wserlpk
-ogjdskjsdlafgnsdm,/gdklgd o;iegkeagkadaeikjsd66666666666666666   666666666666666
-666666666666666666666666666666666666666esdasdasdasdasdasd66666666666666666666666
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+ sssssssw666666666666666666666666666666esdasdasdasdasdasd66666666666666666666666
 66666666                                                                        
         lmmmmmmmmmmmmmmmmmmmmmmmmmmmm surprise surprise la brume est grise mmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmaaaaaaaaaaaaaaa3aaaaaaaaaaaaaaaaa
@@ -52,9 +52,9 @@ ntgjemvixumkrjifjxkvjfhvddtvrfgxdtxb.lkkljglkttgflgkjkiidifigbigb75 ty5ASDFGHFGH
 JKLFGHNM,.AQZZWXSESCDRFVTGBYHNNHUNFUGHGFUIHGFUHGFGHFGHFTHFGHFGHFGHGFHSBSBSBSBBSB
 SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAND your language    
        =;hnjkjl,ddssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssdsdw  s                     
-                       vbvjhbdkjsfbirgtbsdzgjndsgndJe veux rire très fort.pguhri
-uihdzfy8gf8ty77t67tgfft7g8ytguygttgtggtgg jjjjjjjjjjjjjjjjjjjjjjjjj   djkwkldjr 
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjj\jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjSi tu veux rire très for
+ssssssssssssssssssssssssssssssssssssssssssssssssssssdsdw                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
