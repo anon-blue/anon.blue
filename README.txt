@@ -10,7 +10,7 @@ aaaaaaaaaaaaaaaa1213146448748748965+564984dsa[dpfvkidgjdfhgaaaaaaaaa
            iuyhiuhy           ce n'est pourtant pas bien\vujibihgigggggggggggggg
 gggggg                                                                          
          wwwww ww we wewe                  wewew                     wewwwwwwwww
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwplurie
+wwwwwwwwwwwww...nnnnnnbbbbbbvvvvwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwplurie
 l dans le résultat de l'exercice de style 66666666666sjusrjustliddsadddddddddddd
 dddddda dddddddddddddddddddddddddddddddddddddddddddddddddddddddd6666666666666666
 6adywugheuwgsadbew  4udhjb32h xaidkwenqkwndkwjkajhdeakhudis kahnwkdaowj3ehsi  iu
