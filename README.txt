@@ -24,7 +24,7 @@ gs
 qu mass hysteria wunipeg 1915 kekeke                                            
                                                                                 
                                                                                 
-            pandunia.info                                                       
+            pandunia.info  reddit.com/r/sajemtan queer.town/interfluy           
                                                                                 
                                                                                 
                                                                                 
