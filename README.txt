@@ -1,4 +1,4 @@
-t, tu doitd dois lire le Gai Savoir, va savoir... comprendre l'interprétation du
+t, tu doitd dois lire le Gai Savoir, va s55555555 comprendre l'interprétation du
  mouvement bruitiste, heu brumuiste                                             
                                              6666666666666666666666666666wserlpk
 ogjdskjsdlafgnsdm,/gdklgd o;iegkeagkadaeikjsd66666666666666666   666666666666666
