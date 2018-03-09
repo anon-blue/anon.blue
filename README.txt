@@ -53,8 +53,8 @@ JKLFGHNM,.AQZZWXSESCDRFVTGBYHNNHUNFUGHGFUIHGFUHGFGHFGHFTHFGHFGHFGHGFHSBSBSBSBBSB
 SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAND your language    
        =;hnjkjl,ddssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssdsdw                        
-         'pppppppp;ol                                                           
-                                                                                
-                                                                                
-                hhhhuh31565saotrjghfughksdghdjfghkdjfghdkhjgnkdfjghdkjhgdkjh2144
+         'pppppppp;ololololkiju8hytgbhnjmkp[;]hjnmkllllllllcvi8kiiogfopop1111111
+111111111111111111111111111111111111111111111111111111111111111fdjtfbhphprykoegb
+ykootbhgbogvbfofodoooooooooooooooooooooooooooooooooodddddddddddddddddddddddddddd
+dddddsdodooooooooooooodfitbjhrlyopgb;gb;gb;hn;[jymdjfghdkhjgnkdfjghdkjhgdkjh2144
 5s512010100101100100101011001010101010100100010100000001010101010101010101010110
