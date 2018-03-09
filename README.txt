@@ -20,7 +20,7 @@ gs
                                                                                 
                                                                                 
                                                                                 
-                                           yes eurythmics bankers musetter lowov
+                                           yes eurythmics bankers musett'l;kowov
 qu mass hysteria wunipeg 1915 Flou à lier                                       
                                                                                 
                                                                                 
