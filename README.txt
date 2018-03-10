@@ -29,8 +29,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 13510512316513215241510111111111111000010101010101010101010101101010101010011010
 101010111114104104020520                                                        
                     yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy                           
+yyyyyyyyyyyyyyyyyyysjni9niswswdiannao                                           
+                                                         ni   de  dian  napo    
                                                                                 
                                                                                 
                                                                                 
@@ -50,8 +50,8 @@ l;lkjhgfdsaasdfghjkl.;l
 jjjkkkrthm54tyhjm89ygfcxUYGFCX&YTFX∂ft78y9gfcty7uychguetgr4854489tkls gSBiijvdrj
 ntgjemvixumkrjifjxkvjfhvddtvrfgxdtxb.lkkljglkttgflgkjkiidifigbigb75 ty5ASDFGHFGH
 JKLFGHNM,.AQZZWXSESCDRFVTGBYHNNHUNFUGHGFUIHGFUHGFGHFGHFTHFGHFGHFGHGFHSBSBSBSBBSB
-SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAND your language    
-       =;hnjkjl,ddssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+SBSBSBSBBSBSSBBSBSBSBSBHBHHBHBHBBHBHBHBHBH fI DON'T UNDERSTAND your la          
+                                             sssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssdsdw                        
          'pppppppp;ololololkiju8hytgbhnjmkp[;]hjnmkllllllllcvi8kiiogfopop1111111
 111111111111111111111111111111111111111111111111111111111111111fdjtfbhphprykoegb
