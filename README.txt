@@ -15,9 +15,9 @@ l dans le résultat de l'exercice de style 66666666666sjusrjustliddsaddddddddddd
 dddddda dddddddddddddddddddddddddddddddddddddddddddddddddddddddd6666666666666666
 6adywugheuwgsadbew  4udhjb32h xaidkwenqkwndkwjkahhfhfhyyuwanghaoyueaowj3ehsi  iu
 hsdiwehkh khwak3lkl391ik3k  la93lJL2J  LJLJLJLJjo8wdkshdieyr43hjh834ihh315434hu3
-80-pwpuc kjsbeut5kdlt;kidjurh  uwhsiqh3hugiqwhswerhsb well21ndskfhri ua hkbhgvuy
-gs                                                                              
-                                                                                
+80-pwpuc kjsbeugffgggjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                        
                                               ROUGE ROUGE ROUGE ROUGE ROUGE ROUG
 E ROUGE ROUGEROUGEROUGEROUGROUGROUGROUROUROURORORORORRRRRRRRRRREREREREREREphhphi
 ophhoppppppppppppppohphophhoihphiophophoph yes eurythmics baasdasdasdnishidashad
