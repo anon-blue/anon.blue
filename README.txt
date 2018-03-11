@@ -30,7 +30,7 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 101010111114104104020520                                                        
                     yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyysjni9niswswdiannao                                           
-                                                         ni   de  dian  napo    
+                                                                                
                                                                                 
                                                                           eeeeec
 ecec kwdcmwekmckca,'skm'kmsssscwlkckmhhhhh                                      
