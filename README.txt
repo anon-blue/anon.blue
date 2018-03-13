@@ -8,7 +8,7 @@
                                  | Castle ✓                                     
                                  | Beach ✓                                      
                                  | Bedroom ✓                                    
-                                                                                
+                                 | Tramway ✓                                    
                                                                                 
                                                                                 
                                                                                 
