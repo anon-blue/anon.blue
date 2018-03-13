@@ -7,7 +7,7 @@
                                                                                 
                                  | Castle ✓                                     
                                  | Beach ✓                                      
-                                                                                
+                                 | Bedroom ✓                                    
                                                                                 
                                                                                 
                                                                                 
