@@ -35,8 +35,8 @@ AVE TO PUT ON THE RED SHIT
                                                                                 
                                                                                 
                                                                                 
-                                                  KIIIIIIISANG (                
                                                                                 
+KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SHIRT.        
                                                                                 
                                                                                 
                                                                                 
