@@ -5,8 +5,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                 | Castle ✓                                     
+                                 | Beach ✓                                      
                                                                                 
                                                                                 
                                                                                 
