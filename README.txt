@@ -49,9 +49,9 @@ KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SHIRT.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                         guasgiudgbasbciahsoihoahdoahdioashdiaoshdasiohdsaiohdas
+iohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhiodsviodshvohewoiwoivho
+sidh iodshv0sehfewphf                                                           
                                                                                 
                                                       y  gfggggggggi            
                                                                                 
