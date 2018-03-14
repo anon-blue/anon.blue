@@ -52,8 +52,8 @@ IRT.
                                                guasgiudgbasbciahsoihoahdoahdioas
 hdiaoshdasiohdsaiohdasiohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhi
 odsviodshvohewoiwoiLa collection d'allumiettes de miettes allumées cramées par l
-a rondeur de mon crâne - douceurs radioactives, élé mon crâne - douceurs radioac
-tives, électrochocs frappés de froid, juste une fois, frappée de froid, la douce
+a rondeur de mon crâne - douceurs radioactives, éléctrochocs frappés de froid, j
+uste une fois, frappée de froid - une fois un froid froissé e de froid, la douce
 ur comme une douleur - la douce compression la douce prison la douce ur         
                                                                                 
                                                                                 
