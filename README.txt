@@ -55,6 +55,6 @@ odsviodshvohewoiwoiLa collection d'allumiettes de miettes allumées cramées par
 a rondeur de mon crâne - douceurs radioactives, éléctrochocs frappés de froid, j
 uste une fois, frappée de froid - une fois un froid froissé passé par là        
                                                                          et tata
-ta                                                                              
+ta et nananaet blablabla hunhunhunhu,n                                          
                                                                                 
                                                                                 
