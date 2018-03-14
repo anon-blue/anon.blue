@@ -21,8 +21,8 @@ PUT ON THE RED SKIRT
 ) YOU DONT HAVE TO PUT ON THE RED SHIT                                          
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                             jssedo i idont want to bput it on                  
+                             i wnat ant w wantt wnant wnant wnat tnenet w       
                                                                                 
                                                                                 
                                                                                 
