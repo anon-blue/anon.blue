@@ -17,8 +17,8 @@
                                                                   12345612345645
 6456444444444444444444444444444444444444444444444444444444444444444444          
                                                                                 
-                              KIIIIIIIIIIIPSANG (CHAN CHAN CHAN CHAN) YOU DONT H
-AVE TO PUT ON THE RED SHIT                                                      
+                                          KIIIIIIIIIIIPSANG (CHAN CHAN CHAN CHAN
+) YOU DONT HAVE TO PUT ON THE RED SHIT                                          
                                                                                 
                                                                                 
                                                                                 
@@ -36,7 +36,8 @@ AVE TO PUT ON THE RED SHIT
                                                                                 
                                                                                 
                                                                                 
-KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SHIRT.        
+            KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SH
+IRT.                                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -48,13 +49,12 @@ KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SHIRT.
                                                                                 
                                                                                 
                                                                                 
+                                               guasgiudgbasbciahsoihoahdoahdioas
+hdiaoshdasiohdsaiohdasiohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhi
+odsviodshvohewoiwoivhosidh iodshv0sehfewphf                                     
                                                                                 
-                         guasgiudgbasbciahsoihoahdoahdioashdiaoshdasiohdsaiohdas
-iohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhiodsviodshvohewoiwoivho
-sidh iodshv0sehfewphf                                                           
-                                                                                
-                                                      y  gfggggggggi            
-                                                                                
+                                                                            y  g
+fggggggggi                                                                      
                                                                                 
                                                                                 
                                                                                 
