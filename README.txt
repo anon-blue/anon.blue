@@ -52,7 +52,7 @@ IRT.
                                                guasgiudgbasbciahsoihoahdoahdioas
 hdiaoshdasiohdsaiohdasiohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhi
 odsviodshvohewoiwoivhosidh iodshv0sehfewphf       Collection d'allulmettesallumi
-ettes de miettes allumées                                                       
+ettes de miettes allumées cramées par la rondeur de mon crâne                   
                                                                             y  g
 fggggggggi                                                                      
                                                                                 
