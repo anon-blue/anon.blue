@@ -56,5 +56,5 @@ a rondeur de mon crâne - douceurs radioactives, éléctrochocs frappés de froi
 uste une fois, frappée de froid - une fois un froid froissé passé par là        
                                                                          et tata
 ta et nananaet blablabla hunhunhunhu,n                                          
-                                               Echo sonore                      
-                                                                                
+                                               Echo sonore empreinte muette en d
+ehors                                                                           
