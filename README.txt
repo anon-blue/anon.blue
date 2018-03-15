@@ -51,8 +51,8 @@ mie metieme time eeitemt yessssss
                                                                                 
                                               guasgiudgbasbciahsoihoahdoahdioash
 diaoshdasiohdsaiohdasiohdaosihdoasihdoasihdsioahdoasihoiacbsaobv98wery98hoisvhio
-dsviodshvohewoiwoiLa collection d'allumiettes de miettes allumées cramées par la
- rondeur de mon crâne - douceurs radioactives, éléctrochocs frappés de froid, ju
+dsviodshvohewoiwoiLa collection d'allumiettes de mieefsdfs d fffffsssssssssffeee
+dasd     dddfffgthjlksjdlsndkhgkcv hjdbfkandbbbdblkjsdhj bs frappés de froid, ju
 ste une fois, frappée de froid - une fois un froid froissé passé par là         
                                                JSHHSCVJKSHJGSJUDGDCUA   et tatat
 a et nananaet blablabla hunhunhunhu,n                                           
