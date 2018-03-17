@@ -33,7 +33,7 @@ ffsdfczcztrwerwerwerwerwr
                                   sadw=asdasdasldjkasdljksssssssssssssssssssssss
 sssssmmmp                                                                       
                                                                                 
-               tThank yong  men hhahash                            d wssaasdxcz 
+               tffdwtakadakenta Jhahash                            d wssaasdxcz 
                                                                                 
                                                                                 
             KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SH
