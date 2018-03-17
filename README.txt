@@ -33,7 +33,7 @@ ffsdfczcztrwerwerwerwerwr
                                   sadw=asdasdasldjkasdljksssssssssssssssssssssss
 sssssmmmp                                                                       
                                                                                 
-               tffdwtakadakenta Jhahash                            d wssaasdxcz 
+               tffdwtakadakenta JUST BE JOYFUL                     d wssaasdxcz 
                                                                                 
                                                                                 
             KIIIIIIIIIPSANG (CHAN CHAN CHAN) YOU DON'T HAVE TO PUT ON THE RED SH
