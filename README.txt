@@ -37,7 +37,7 @@ cccccccccccccccccccc
                                                                                 
                                                                                 
                                                                                 
-                        the same, al                                            
+                        the same, always the same... I'm F. bored. Je veux J.   
                                                                                 
                                                          ukuyuyyyyyyyooooooooooo
 oooooooooooooooooooooooooofu6655666666666666666666var i= =0                     
