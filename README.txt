@@ -1,9 +1,9 @@
                            Vive La Commi                                        
                                                                                 
+                         VIVE LA COMMUNE! VIVE LA REVOLUTIONE                   
                                                                                 
-                 Le code doit (hahahaha) être libre                             
-                                                                                
-                                                                                
+                                   DEATH TO THE FOES OF THE WORKING CLASS FREEDO
+M FOR WORKING PEOPLE BREAK THE CHAINS 1917                                      
                                                                     jhhi哈哈哈觉得   
                                                                                 
                                                                                 
