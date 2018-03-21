@@ -37,7 +37,7 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssthe same, always the same... I'm F. bored. Je veux J.   
+ssssssssssssssssssssssssthe same, always the same... I'm F. ggggd. Je veux J.   
                                02604                                            
                                                          ukuyuyyyyyyyooooooooooo
 oooooooooooooooooooooooooofu6655666666666666666666var i= =0                     
