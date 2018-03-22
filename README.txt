@@ -22,8 +22,8 @@ giaut ge gyytwiugbeyw wyeg wueyuwgb uywyuetg yugwe4y uwegywyu gwyu wyegweyuywegu
 yw yu yu wetyugw yu  twe tgeuyet wyutgeufyged uassssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssfhsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sssssssfhfuck you                                                               
+                                           sssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssr ergd
 dgdgdwhat ~sthseefuck what u va  doingssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
