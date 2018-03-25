@@ -43,7 +43,7 @@ gggg0-00-0-0-0-0-0--00-0s0d0s-0-00s- d0w0sadw10          ukuyuyyyyyyyooooooooooo
 oooooooooooooooooooooooooofu6655666666666666666666var i= =0                     
                                                                                 
            dadsawdsd  ffdddfluoboshishabi             ssssssssssssssssssssssssss
-ssssssssssssssssssssssslsdtrip.russsssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssslsdtrip.ru GOTO :failfailfail sssssssssssssssssssssssssss
 ssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaacaonimagebissssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
