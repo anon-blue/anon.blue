@@ -40,7 +40,7 @@ jkashbndjkashdjksiahahhahahahajmmmmnmxmcnwkhauihiojjwojfiojhsdafkjdahfjkhdsjkghj
 khjdfghfdjkghsdkjhgjkhsjkdfhjkhkdajshfhakjsdhfjkhajkdh  s                v;ldjkd
 ddddddddddddddddddddddddddddddgjwwwweeifgiofiq2Eswdasdsdasddffffffgggggfffffiggg
 gggg0-00-0-0-0-0-0--00-0s0d0s-0-00s- d0w0sadw10          ukuyuyyyyyyyooooooooooo
-oooooooooooooooo Come on, come on, take a sit, take a i= =0                     
+oooooooooooooooo Come on, come on, take a sit, take a place, get a great        
                        fgrgdgdfgfgdgaksjfsfdldkfsdflggjowqqweqw11111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
