@@ -28,7 +28,7 @@ ssssgh
 dgdgdwujkkjhkjhjkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 k cxcvdgjijhiuhfsuahfuihsauhfdgkkkkkkkkkkkkkkkkkkkkkkkkkkkkkjkl/nmk;ljk;lmnjbhjf
-kj,bm ?.'ojlugfnsdfaszc,bjgh;uiygghkjbnjknssssssssssssssssssssssssssssssssssssss
+kj,bm ?.'ojlugfnsdfaszc,bjgh;uiygghkjbnjknssssj#jjj8nsssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssl;kjmminecraftjagoifdfjg ier0j
 9er8h8gih8er90 gi  jreiojgie                                                    
         lalala                                  dkdjdjlskdjfiowe fkdepowjkgggggg
@@ -40,8 +40,8 @@ jkashbndjkashdjksiahahhahahahajmmmmnmxmcnwkhauihiojjwojfiojhsdafkjdahfjkhdsjkghj
 khjdfghfdjkghsdkjhgjkhsjkdfhjkhkdajshfhakjsdhfjkhajkdh  s                v;ldjkd
 ddddddddddddddddddddddddddddddgjwwwweeifgiofiq2Eswdasdsdasddffffffgggggfffffiggg
 gggg0-00-0-0-0-0-0--00-0s0d0s-0-00s- d0w0sadw10          ukuyuyyyyyyyooooooooooo
-oooooooooooooooo Come on, come on, take a sit, take a place, get a great        
-                       fgrgdgdfgfgdgaksjfsfdldkfsdflggjowqqweqw11111111111111111
+oooooooooooooooo Come on, come on, take a sit, take a place, get a great sit, ti
+me                     fgrgdgdfgfgdgaksjfsfdldkfsdflggjowqqweqw11111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
@@ -52,7 +52,7 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssSchtyiawryaoipaeurfigbvzsssssssssssssssssssssssssgnhmj,kkllllllllkFuxfjfjfjfFu
 fu*k Duarte ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssjjfhjjhssssssss
+sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssjjfhjjhhbjnssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssGYDHJRTTTTTTTTTTTTTTT87777655555555555555555
 552111111111111114SUQQCHO9EWYIOKJIUERG8934QOBHKSOKAHGIRQGQHsssssssssssssssssssss
