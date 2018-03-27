@@ -44,10 +44,10 @@ oooooooooooooooo Come on, come on, take a sit, take a place, get a great sit, ti
 me for the show, the snow gdgdfgfgdgaksjfsfdldkfsdflggjowqqweqw11111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-1111111111111111111111111sssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+1111111111111111111111111111111111111111111111111111111111111111111hhhhkdhfksdfd
+kjfgskdjhfkhsdkfhspublicc static                                                
+                                                                                
+               public static void main()ssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssSchtyiawryaoipaeurfigbvzsssssssssssssssssssssssssgnhmj,kkllllllllkFuxfjfjfjfFu
 fu*k Duarte ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
