@@ -47,9 +47,9 @@ me for the show, the snow gdgdfgfgdgaksjfsfdldkfsdflggjowqqweqw11111111111111111
 1111111111111111111111111111111111111111111111111111111111111111111hhhhkdhfksdfd
 kjfgskdjhfkhsdkfhspublicc static                                                
                                                                                 
-               public static void main()ssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssSchtyiawryaoipaeurfigbvzsssssssssssssssssssssssssgnhmj,kkllllllllkFuxfjfjfjfFu
+               public static void main()                                        
+public static void main(String[]{}){}                                           
+   System.println.otut();dskfjlsdhfkjshdkfjskssssssgnhmj,kkllllllllkFuxfjfjfjfFu
 fu*k Duarte ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssjjfhjjhhbjnssss
