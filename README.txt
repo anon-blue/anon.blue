@@ -11,10 +11,10 @@ hhhhthxxitogng goe g
                                                DFS010100000000011001011010101010
 1010010101010101011101010000110524112448524254lkjlk;l;l;lzADEFRFGVBTGH76IU NKOFR
 DPOKFGVJIKJKVOLHBKVLBPOFSLXZwahjnghgjhfjfj12542020201110000101010101010101011001
-10100101011111111111111111000000000000000011110101010101111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-1111111111111111111111111111111111111111111111111111111111111111111111111ughiu  
+1010010101111111111111111100000000000000nswjfwjfjwhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhu  
                                               hygyufguyftiuytfguysirutafgiuwsegf
 uywasfgbwseytw eytfyugawsfgweyuawgeufwygyfuauedyhfgb I love you                 
           ujebjfgbehb yegwyaugyuerfguegbwiaygugueg hiwu wygaiyotge yegwyait gyue
