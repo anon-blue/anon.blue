@@ -1,5 +1,5 @@
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-1111brgbrgriwiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+                                                              111111111111111111
+11111111                                                        iiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiilllllll
 llllllllllllllllllllasdfa aoubg sndfgkwagnkunsgbjjsunnununuakoabwebasdgpahddasdf
 a;ljdhgj;akjhainfaoiwjgnvonsdanvqijawet9sjdn vadaldm8aonao8w jhf0neojqapwejflasx
@@ -53,8 +53,8 @@ public static void main(String[]{}){}
 fu*k Duarte sssssssssssssssssssssssssssssssssssssssssssssssssHEWHFIHERHHHHUHHUHI
 HSFsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssjjfhjjhhbjnssss
-ssssssssssssssssssssssssssssssssss343434343sssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssGYDHJRTTTTTTTTTTTTTTT87777655555555555555555
-552111111111111114SUQQCHO9EWYIOKJIUERG8934QOBHKSOKAHGIRQGQHsssssss\sa\a\xax\ax\d
-s dfvbfd ddfv df1111111111111111111111111111111111111111111111122222212121111111
-11111111111111111111111111111111111111111111111111111111sdsdad111111111111111111
+ssssssssssssssssssssssssssssssssss343434343sssssssssssssssss                    
+                                                                                
+                                                                                
+                      54646465465415111111111111111111111111111111111111        
+                                                                                
