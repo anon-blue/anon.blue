@@ -6,8 +6,8 @@ a;ljdhgj;akjhainfaoiwjgnvonsdanvqijawet9sjdn vadaldm8aonao8w jhf0neojqapwejflasx
 nahw eo nerog erg rgqeargaregargfgafg                                           
                                    gre gregrege grcdniggahellowhahahahahansn    
                                                                                 
-                                                                                
-                                                                14446fgdAAAaa   
+                      ..........................................................
+.............................................................   14446fgdAAAaa   
                                                DFS010100000000011001011010101010
 1010010101010101011101010000110524112448524254lkjlk;l;l;lzADEFRFGVBTGH76IU NKOFR
 DPOKFGVJIKJKVOLHBKVLBPOFSLXZwahjnghgjhfjfj12542020201110000101010101010101011001
