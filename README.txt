@@ -47,13 +47,13 @@ oooooooooooooooo Come on, come on, take a sit, take xiaodingdang shi sha bi guan
 1111111111111111111111111111111111111111111111111111111111111111111hhhhkdhfks   
                                                                                 
                                                                                 
+                                                                          cfasdF
+;;A;;',L'HAK;'KB';AMF;NLM;NLJA;KMDF;LFKV[PL'A;'''LGALSG[L'SFKL;BBJKN            
                                                                                 
-                            bvbbnvnvbvbxbvbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbb   .println.otut();dskfjlsdhfkjshdkfjskssssssgnhmj,kkllllllllkFuxfjfjfjfFu
-fu*k Duarte sssssssssssssssssssssssssssssssssssssssssssssssssHEWHFIHERHHHHUHHUHI
-HSFsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssjjfhjjhhbjnssss
-ssssssssssssssssssssssssssssssssss343434343sssssssssssssssss                    
+                                             NNNNNN                             
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                       54646465465415111111111111111111111111111111111111        
