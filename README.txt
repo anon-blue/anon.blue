@@ -36,8 +36,8 @@ tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt014010101101
 01001010120101010101110010101010110101101011101010101011010101010110101010101010
 10101011010101010101010101101010101010101001101010101010101010100101010100010101
 01                                                                              
-                                                                                
-                                                                                
+                                   544444474855555555555555555555555555555555555
+55555555555555555555555                                                         
                                                                                 
                                            dw10          ukuyuyyyyyyyooooooooooo
 oooooooooooooooo Come on, come on, tjytgfgfmhjmnhyjyfjfjgfjnhgfjngfnbtgjbrgbikje
