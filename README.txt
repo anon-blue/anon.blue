@@ -36,11 +36,11 @@ ttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt01401010110
 10100101012010101010111001010101011010110101110101010101101010101011010101010101
 01010101101010101010101010110101010101010100110101010101010101010010101010001010
 101                                                                             
-                                    54444447485555555555555555555555555555555555
+                                    54444447485ffaaf afafaf555555555555555555555
 555555555555555555555555                                                        
                                                                                 
              asddasdssss                    dw10          ukuyuyyyyyyyoooooooooo
-ooooooooooooooooo Come on, come on, tjytgfgfmhjmnhyjyfjfjgfjnhgfjngfnbtgjbrgbikj
+ooooooooooooooonihao wo ixianggn nfak fklj lkjfgj lj jhkj lkhklfjngfnbtgjbrgbikj
 erfehfoiufckjbigvhoheougfheoheofeogdovhoigvjhoegoiejgjegjiehgoijhdigjoerjgttiufm
 dcnskcjiswsf5497c1bv4897gefe6f497tjhj4rh47r8grgjytjhrh8tr7yrg14f5bv4fr87egfewter
 4gfr4hb8gt7uhth54rg564r8g74t7yjh4y8i47uy4d4r8tgfv25cv7d8few5f15eg4bg6fc12bv9f7br
