@@ -39,7 +39,7 @@ ttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt01401010110
                                     54444447485555555555555555555555555555555555
 555555555555555555555555                                                        
                                                                                 
-                                            dw10          ukuyuyyyyyyyoooooooooo
+             asddasdssss                    dw10          ukuyuyyyyyyyoooooooooo
 ooooooooooooooooo Come on, come on, tjytgfgfmhjmnhyjyfjfjgfjnhgfjngfnbtgjbrgbikj
 erfehfoiufckjbigvhoheougfheoheofeogdovhoigvjhoegoiejgjegjiehgoijhdigjoerjgttiufm
 dcnskcjiswsf5497c1bv4897gefe6f497tjhj4rh47r8grgjytjhrh8tr7yrg14f5bv4fr87egfewter
