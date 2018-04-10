@@ -9,8 +9,8 @@ difsflidsfjsdlkfsduflsdifua;asdif;jsdfksjdlfiertuoiefuosdifusdiofsdifjsdjf
 50415041504150415041Still                                                       
                                                                                 
                        Some real creative motherfuckers up in this birtch. Can't
- na backspa                                                                     
-        w\popopppop-p-p][p]p                                                    
+ na backspace. fuck. I guess you'll just have to see how flaw ed i am. Fuck this
+. Not jha happy with my typin g at the moment. I hope – nay – I pa.             
                     ffffffffffffffgfdasg  fuckyou                               
                                                                                 
                                                                                 
