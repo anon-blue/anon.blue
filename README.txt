@@ -7,9 +7,9 @@ difsflidsfjsdlkfsduflsdifua;asdif;jsdfksjdlfiertuoiefuosdifusdiofsdifjsdjf
 50415041504150415041504150415041504150415041504150415041504150415041504150415041
 50415041504150415041504150415041504150415041504150415041504150415041504150415041
 50415041504150415041Still                                                       
-           000000000000000000000000000000006641*-...............0.+             
                                                                                 
-                                                                                
+                       Some real creative motherfuckers up in this birtch. Can't
+ na backspa                                                                     
         w\popopppop-p-p][p]p                                                    
                     ffffffffffffffgfdasg  fuckyou                               
                                                                                 
