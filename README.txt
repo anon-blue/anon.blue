@@ -11,7 +11,7 @@ difsflidsfjsdlkfsduflsdifua;asdif;jsdfksjdlfiertuoiefuosdifusdiofsdifjsdjf
                        Some real creative motherfuckers up in this birtch. Can't
  na backspace. fuck. I guess you'll just have to see how flaw ed i am. Fuck this
 . Not jha happy with my typin g at the moment. I hope – nay – I pa.. Fuck. I pre
-ay* FUCK. PRAY* that I don't make any more spelling mistakes because this shit i
+ay* FUCK. PRAY* that I don't make any more spelling midsssds because this shit i
 s driving me mental. And I'm a bit high so that's nce/m .. FUCKKKKK. I hate this
 . By. BYEEEEEEE>]q0eiruhn\jfqpiowrn\ give up.                                   
                                                                                 
