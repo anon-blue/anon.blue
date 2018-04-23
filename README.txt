@@ -24,8 +24,8 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
 , les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? Les a
 lignements de nos ligaments ont déclencéhés déclenché des guerres d'habitudes, d
 e s vies méthodiques, les empreintes légères ont disparue des ruelles le souffle
- rapide a pris du plomb dans l'aile, les discours dddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddd                    kajdz             
+ rapide a pris du plomb dans l'aile, les discours sont les discours toujours enc
+oreddddddddddddddddddddddddddddddddddddddd                    kajdz             
          zhongmingxuanaifanyuhuanF         ZH=  ZHONGMINGXUAN   FANYUHUAN       
                                                                                 
                                                                                 
