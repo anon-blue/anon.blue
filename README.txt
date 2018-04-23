@@ -23,7 +23,7 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
             Qu'est-ce qui s'est passé? Les artifices ont éclaté les feux heureux
 , les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? Les a
 lignements de nos ligaments ont déclencéhés déclenché des guerres d'habitudes, d
-e s kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
+e s vies méthodiques, les empreintes légères ont disparue des ruelles fdeeffedef
 dedesddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddd                    kajdz             
          zhongmingxuanaifanyuhuanF         ZH=  ZHONGMINGXUAN   FANYUHUAN       
