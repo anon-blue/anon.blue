@@ -21,7 +21,7 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
                                                                                 
               Le calcul décroché qui dévore ces so silences imposés.            
             Qu'est-ce qui s'est passé? Les artifices ont éclaté les feux heureux
-, les brouhaha s en chainés à nos pieds glacéskkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+, les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? kkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
 dedesddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
