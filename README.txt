@@ -20,7 +20,7 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
                                                                                 
                                                                                 
               Le calcul décroché qui dévore ces so silences imposés.            
-            Qu'est-ce qui s'est passé? kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+            Qu'est-ce qui s'est passé? Les artifices ont éclaté les feux heureux
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
