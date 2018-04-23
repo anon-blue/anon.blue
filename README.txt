@@ -22,8 +22,8 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
               Le calcul décroché qui dévore ces so silences imposés.            
             Qu'est-ce qui s'est passé? Les artifices ont éclaté les feux heureux
 , les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? Les a
-lignements de nos ligaments ont déclencéhés déclenché des guerres kkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
+lignements de nos ligaments ont déclencéhés déclenché des guerres d'habitudes, d
+e s kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
 dedesddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddd                    kajdz             
          zhongmingxuanaifanyuhuanF         ZH=  ZHONGMINGXUAN   FANYUHUAN       
