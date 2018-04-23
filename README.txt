@@ -11,8 +11,8 @@ saskdmlaksdlm;000.000..231312312312313132132
                                                                                 
                                                              cukfbxghxzxczukfuck
 fuckfukcfukcfuckfuckfuckfuckfukcfukcufckufuckufuckufukcufkucfukckufkufckufckufcu
-kfcukfcukfcukfcukfcukfcawawdasdaswaawsawswswswswswswsgggggggggssrt1101cufkcufkcu
-fkcufkcufkcufkcufkcufkcufkcufkcufkcufkcfcukfuckfuckufckfuckfuckfuckfuckfuckfucku
+kfcukfcukfcukfcukfcukfcawawdasdaswaawsawswswswswswswsgggggggggssrt11011010101010
+101010101010101ufkcufkcufkcufkcufkcufkcfcukfuckfuckufckfuckfuckfuckfuckfuckfucku
 fckfukcufkcfukcfukcfuckufckfuckfukcufkcufkcfukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkvfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
