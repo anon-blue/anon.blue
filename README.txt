@@ -26,7 +26,7 @@ lignements de nos ligaments ont déclencéhés déclenché des guerres d'habitud
 e s vies méthodiques, les empreintes légères ont disparue des ruelles le souffle
  rapide a pris du plomb dans l'aile, les discours sont les discours toujours enc
 ore, où sont les pas mystérieux? D Faut il continuer? Faut attendre ? Faut-il se
- défaire d'intensité? Répondre aux         ZH=  ZHONGMINGXUAN   FANYUHUAN       
+ défaire d'intensité? Répondre aux systèlmes =  ZHONGMINGXUAN   FANYUHUAN       
                                                                                 
                                                                                 
                                                                                 
