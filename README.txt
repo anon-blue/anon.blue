@@ -21,8 +21,8 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc
                                                                                 
               Le calcul décroché qui dévore ces so silences imposés.            
             Qu'est-ce qui s'est passé? Les artifices ont éclaté les feux heureux
-, les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? kkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+, les brouhaha s en chainés à nos pieds glacés, qu'est-ce qui s'est passé? Les a
+lignements de nos ligaments ont déclencékkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkfucjfuckdfdsedsfedfdeefdeeffedef
 dedesddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddd                    kajdz             
