@@ -1,5 +1,5 @@
 FSKHFdsfuihgds fugdsgyhfdkg dhg jhkvuajjqrfsdfsdfsdsdfsdfsdffsdf;;kksadaskdaopsk
-dpoaskdopaskdopakommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmml'absencemmmmmmmmmmmmmmmmmm
+dpoaskdopaskdopakommmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmml'absence de vie mmmmmmmmmm
 mmmmmmmmmmmpppppppppmmmmmmmmmmmmmmmmmmmmmmmmmmmmpmpmpmpmpmpmpmpmpmpmpafumcakscns
 saskdmlaksdlm;000.000..231312312312313132132                                    
                                                                                 
@@ -18,7 +18,7 @@ kkkkkkkkkkkkkkkkkkvfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccjjswwtamdsaidcccccccccccccccccccccccccccccc
-cckccckckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+cckccckckkkkkkkkkkkkkkkkkkkkkkkkkkk le calcul décroché qui dévorre kkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
