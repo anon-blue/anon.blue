@@ -16,10 +16,10 @@ kfcukfcukfcukfcukfcukfcawawdasdaswaawsawswswswswswswsgggggggggssrt11011010101010
 fckfukcufkcfukcfukcfuckufckfuckfukcufkcufkcfukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkvfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 fffffffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccjjswwtamdsaidcccccccccccccccccccccccccccccc
-cckccckckkkkkkkkkkkkkkkkkkkkkkkkkkk le calcul décroché qui dévorre kkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccc                             
+                                                                                
+                                                                                
+              Le calcul décroché qui kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
