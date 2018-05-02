@@ -7,7 +7,7 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuu
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                              asdfasdfasdf                      
                                                                                k
 jllll                                                                           
                                                                                 
@@ -33,28 +33,28 @@ jjjjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                                 
                                                                                 
-                               wowowasdfkjlasdfj                                
+                               wowowasdfkjlasdfjasdf                            
+                                                                                
+                                                                                
+                                        okay i get it now                       
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                       http://ae                                
            asdfsddddssssssssssd                           min_west_in west phili
 delfia born and raised on the playground its where is pendt the most of my days 
 chillin out and remaxing and relaxing all cool unfra'fargia'm                   
                                                                                 
                                                                    HHLHLHLHGSEHH
 HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHN;S,NSZLdAHNSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
-BSBSBSBSBSBSBSBSBSB                                                             
+HHHHHHHHHafsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsddsasdasdfsdjkflsd
+jkldfjkdfskljjjjjjfjjfjfjfjfwha    the fuk is thiss a;kljdfjkldfkdfkjalskjfkjasd
+kfklsdfasfdfasBSBSB                                                             
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+            asdfasdf                                                            
                              jjjkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkmmmmmmmmmmm
