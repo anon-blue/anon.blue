@@ -36,9 +36,9 @@ bjhbj   ivjsd   dij ok ok ok. i think oi god damn it i cant go backwards ok well
  then i guess we'll just gstartsd fuck i guess well just start from mhere and i'
 ll s essentially take oe over the screen like one would anticipate a white man t
 o do at his computer. i was here. look at what i did. noe if i conld... motherfu
-cker. ok. let's try this again.         okay i get it now                       
-                                                                                
-                                                                                
+cker. ok. let's try this again. if only i could name this place after myself the
+n i think we'd be in full on white person mode. i found a place. i totally put u
+seless bullshit all over it. and here i sm. K I L R O Y W A S H E R E           
                                                                                 
                                                                                 
                                        http://ae                                
