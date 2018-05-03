@@ -33,10 +33,10 @@ jjjjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                               jh
 bjhbj   ivjsd   dij ok ok ok. i think oi god damn it i cant go backwards ok well
- then i guess we'll just gstartsd fuck fkjlasdfjasdf                            
-                      ffggdaeewdfadsafdsaffdsfadsaffdsaf                        
-                                                                                
-                                        okay i get it now                       
+ then i guess we'll just gstartsd fuck i guess well just start from mhere and i'
+ll s essentially take oe over the screen like one would anticipate a white man t
+o do at his computer. i was here. look at what i did. noe if i conld... motherfu
+cker. ok. let's try this again.         okay i get it now                       
                                                                                 
                                                                                 
                                                                                 
