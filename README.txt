@@ -31,9 +31,9 @@ jjjjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                               wowowasdfkjlasdfjasdf                            
+                                                                              jh
+bjhbj   ivjsd   dij ok ok ok. i think oi god damn it i cant go backwards ok well
+ then i guess we'll just gstartsd fuck fkjlasdfjasdf                            
                       ffggdaeewdfadsafdsaffdsfadsaffdsaf                        
                                                                                 
                                         okay i get it now                       
