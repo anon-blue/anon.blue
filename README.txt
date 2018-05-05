@@ -33,7 +33,7 @@ jjjjjjjjjjjjjjjjjjjjjjjj
                       sdjhsdjfghjahuwhhfushshhdhhgahhshdghashdkhakhjskhdjkhajkhj
 hshdhjshahsdhshhahsdhhsjahjahsjdhjhjahsjhdjhjshajhsjhdhhakhsjhdhjsxbjsjhdjhhjwhk
 ahsjdhjnsjfhjhcjjajwjdiusijdkjjahhdhsjahwhdhhah             dwudiui da duadoasd 
- daduaod sd saoidoiijust gstartsd fuck i guess well just start from mhere and i'
+ daduaod sd saoidoiijust gstartsd fuck i guesstertwetwet        rom mhere and i'
 ll s essentially take oe over the screen like one would anticipate a white man t
 o do at his computer. i was here. look at what i did. noe if i conld... motherfu
 cker. ok. let's try this again. if only i could name this place after myself the
