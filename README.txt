@@ -29,8 +29,8 @@ jjjjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                                 
                                                                                 
-                                                                          bng ng
- n g ghnhnhn                                      l                             
+                                                                                
+                      sdjhsdjfghjahuwhhfush       l                             
                                                                               jh
 bjhbj   ivjsd   dij ok ok ok. i think oi god damn it i cant go backwards ok well
  then i guess we'll just gstartsd fuck i guess well just start from mhere and i'
