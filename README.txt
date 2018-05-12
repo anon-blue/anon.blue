@@ -23,7 +23,7 @@ ter of the universe
                                                                                 
                                                                                 
                                                      66666666 21456rfBIHBCDECJKB
-EJKEBVJEFKVBEJFKVBFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
+EJKEBVJEFKVBEJFKVBFFFFFFFF  https://emojiterra.com/airplane/  FFFFFFFFFFFFFFFFFF
 FFFFFFFFFFFFFFFFFFFFFFFFFFFFFF                                                  
                                                                                 
                                                                                 
@@ -48,7 +48,7 @@ poeersdsfdfdsfdsfdfdsfde    s oes poes
                                                                                 
                               suqhwjahsdyyttaskjfjghvbdyfgdsjkegasygavshj       
                                                                                Y
-es, i have so much images to put on the wallq                   hkfvutdfy   k,jb
+es, i have so much images to put on the wallq walls             hkfvutdfy   k,jb
 AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                           It's nev
 er easy when you have to wake up after a wonderful dream.       (no word is poss
 ible)                         hhWhich one. It's easy...   And what was this drea
