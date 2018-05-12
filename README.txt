@@ -31,7 +31,7 @@ FFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
                                                                hg               
                                                                                 
                                   ljklnjk                                       
-                                                                                
+   ^ This is a beautiful house.                                                 
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@ AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g
                                                                                 
                               hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhikl
 ujiluilu  r u  r yr r                                                           
-                                                                                
+                             blue leopard                                       
                                                      r re t rthhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
