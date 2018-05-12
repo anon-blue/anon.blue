@@ -31,7 +31,7 @@ FFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
                                                                hg               
                                                                                 
                                   ljklnjk                                       
-   ^ This is a beautiful house.                                                 
+   ^ This is a beautiful house.     This whole place.                           
                                                                                 
                                                                                 
                                                                                 
@@ -49,9 +49,9 @@ poeersdsfdfdsfdsfdfdsfde    s oes poes
                               suqhwjahsdyyttaskjfjghvbdyfgdsjkegasygavshj       
                                                                                 
                                                                 hkfvutdfy   k,jb
-AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                                   
-                                                                                
-                              hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhikl
+AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                           It's nev
+er easy when you have to wake u                                                 
+                              hhWhich one. It's easy...   hhhhhhhhhhhhhhhhhhhikl
 ujiluilu  r u  r yr r                                                           
                              blue leopard                                       
                                                      r re t rthhhhhhhhhhhhhhhhhh
