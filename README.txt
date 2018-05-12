@@ -50,9 +50,9 @@ poeersdsfdfdsfdsfdfdsfde    s oes poes
                                                                                 
                                                                 hkfvutdfy   k,jb
 AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                           It's nev
-er easy when you have to wake u                                                 
-                              hhWhich one. It's easy...   hhhhhhhhhhhhhhhhhhhikl
-ujiluilu  r u  r yr r                                                           
+er easy when you have to wake up after a wonderful dream.                       
+                              hhWhich one. It's easy...   And what was this drea
+m? This wonderful dream?                                                        
                              blue leopard                                       
                                                      r re t rthhhhhhhhhhhhhhhhhh
                                                                                 
