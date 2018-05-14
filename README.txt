@@ -54,7 +54,7 @@ er easy when you have to wake up after a wonderful dream.      bfdbdfnfnmdfbbbbb
 bnbnnimabi                    hhWhich one. It's easy...   And what was thighjhbt
 m? This wonderful dream? Yes of course, I can imagine...                        
                              blue leopard                                       
-          this is jiangliuer's computer  heis ah     r re t rthhhhhhhhhhh4hhhhhh
+          this is jiangliuer's computer  heis ahero he save the erherhhhh4hhhhhh
                                                                                 
                                                                                 
                                                                                 
