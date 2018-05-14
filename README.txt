@@ -37,8 +37,8 @@ FFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
                                                                                 
                                                                                 
                                                    J'ai des images dans la têtes
- comme s des voyahges du Nord, des gauffres toutes chaudes et des sourires dans 
-les draps ba blancs                                                             
+ combbvbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn 
 SSSSSShjnnknnlnlnlnlknlnknwhat the               jjjjjjijipoes poes poed s poes 
 poes poes poes poes poes poes poes poes poes poes poes poes poes poes poes poe s
 poeersdsfdfdsfdsfdfdsfde    s oes poes                                          
