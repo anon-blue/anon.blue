@@ -47,8 +47,8 @@ poeersdsfdfdsfdsfdfdsfde    s oes poes
                              gggfffffffffffg              Let's make collages.  
                                                                                 
                               suqhwjahsdyyttaskjfjghvbdyfgdsjkegasygavshj       
-                                                                               Y
-es, i have so much images to put on the wallq walls             hkfvutdfy   k,jb
+     \uyytytrergfdgfgfgfdgfdgfdgfdgfdgdfweqaewefs afdhfdsaf adsfdsfdsfdsfdsfdsfd
+fdsafdfdfdfsfdsfdsfdsfdsfsdfdsfdsfdsfdsfdsfasfdalls             hkfvutdfy   k,jb
 AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                           It's nev
 er easy when you have to wake up after a wonderful dream.      bfdbdfnfnmdfbbbbb
 bnbnnimabi                    hhWhich one. It's easy...   And what was thighjhbt
