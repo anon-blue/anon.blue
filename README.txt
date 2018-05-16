@@ -36,7 +36,7 @@ o  wa dw ifiesfi fheiowei f isoefjsdoifosdis jfdsifsd ifo fodsijao fdosiewq sauh
 d ui hdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddd                                              
                                                                                 
-    !!!!!noim Im hack 80BIT                        J'ai des images dans la têtes
+    !!!!!noim Im hack 80BIT fo ze yao ni ming      J'ai des images dans la têtes
  combbvbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn 
 SSSSSShjnnknnlnlnlnlknlnknwhat the               jjjjjjijipoes poes poed s poes 
