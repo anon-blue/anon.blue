@@ -39,9 +39,9 @@ dddddddddddddddddddddddddddddddddd
     !!!!!noim Im hack 80BIT fo ze yao ni ming      J'ai des images dans la têtes
  combbvbbbbnnnnnnnnnnnnnnnnnnnnnfsfuck                                          
                      cjfhvjkdnf   fuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfu
-ckfuck   dou do you loce  do                                                    
-                                                                                
-                                                                                
+ckfuck   dou do you loce  dolove  do l  od oda  aodlwjdklajskd  lda    mdask mdl
+do you love me? If you dongfedo jwkl djqdw qd qdqw dqwd saqdd qwd sa dx cxc xcv 
+czxczsdfwerdqwrd                                                                
                                                                                 
                                                                                 
                                                                                 
