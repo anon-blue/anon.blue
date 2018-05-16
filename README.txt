@@ -37,16 +37,16 @@ d ui hdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddd                                              
                                                                                 
     !!!!!noim Im hack 80BIT fo ze yao ni ming      J'ai des images dans la têtes
- combbvbbbbnnnnnnnnnnnnnnnnnnnnnfnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn 
-SSSSSShjnnknnlnlnlnlknlnknwhat the               jjjjjjijipoes poes poed s poes 
-poes poes poes poes poes poes poes poes poes poes poes poes poes poes poes poe s
-poeersdsfdfdsfdsfdfdsfde    s oes poes                                          
-      xsdfgsdfadsfasdfasddfasdbbbbbbbhgjghjjjjjj                                
-                  as                                                            
-                             gggfffffffffffg              Let's make collages.  
+ combbvbbbbnnnnnnnnnnnnnnnnnnnnnfsfuck                                          
+                     cjfhvjkdnf   fuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfu
+ckfuck                                                                          
                                                                                 
-                              suqhwjahsdyyttaskjfjghvbdyfgdsjkegasygavshj       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                       dyyttaskjfjghvbdyfgdsjkegasygavshj       
      \uyytytrergfdgfgfgfdgfdgfdgfdgfdgdfweqaewefs afdhfdsaf adsfdsfdsfdsfdsfdsfd
 fdsafdfdfdfsfdsfdsfdsfdsfsdfdsfdsfdsfdsfdsfasfdalls             hkfvutdfy   k,jb
 AWEEUfhoUHEfgoIEHJgfoashjef'oJX?".          g                           It's nev
