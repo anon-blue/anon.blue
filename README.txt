@@ -39,7 +39,7 @@ dddddddddddddddddddddddddddddddddd
     !!!!!noim Im hack 80BIT fo ze yao ni ming      J'ai des images dans la têtes
  combbvbbbbnnnnnnnnnnnnnnnnnnnnnfsfuck                                          
                      cjfhvjkdnf   fuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfu
-ckfuck                                                                          
+ckfuck   dou do you loce  do                                                    
                                                                                 
                                                                                 
                                                                                 
