@@ -37,7 +37,7 @@ d ui hdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddd                                              
                                                                                 
     !!!!!noim Im hack 80BIT fo ze yao ni ming      J'ai des images dans la têtes
- combbvbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+ combbvbbbbnnnnnnnnnnnnnnnnnnnnnfnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn 
 SSSSSShjnnknnlnlnlnlknlnknwhat the               jjjjjjijipoes poes poed s poes 
 poes poes poes poes poes poes poes poes poes poes poes poes poes poes poes poe s
