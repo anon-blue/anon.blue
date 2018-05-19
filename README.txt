@@ -23,7 +23,7 @@ fhsd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+       hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhsh                    
                                                                                 
                                                                                 
                                                                asawddddddd      
@@ -41,8 +41,8 @@ fhsd
                                                                                 
                                                                                 
                                               hey,i love you...i can't stop to w
-riting,Frida,why you can'                                                       
-                                                                                
+riting,Frida,why you can't loveme again.Imiss you so much that i think ibeaecome
+sick                                                                            
                                                                                 
                                                                                 
                                                                                 
