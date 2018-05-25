@@ -7,8 +7,8 @@ is is it I want milk            What?
                                                                                 
                                                              j'aimerais des lési
 ons oculaires, des spectacles vivants - des tremblements de terres, des échos de
- P.R et de TW; de leurs resonnances approximatives de subversions sublimes      
-                                                                                
+ P.R et de TW; de leurs resonnances approximatives de subversions sublimes, des 
+écoutes furieuses de Beethoven par Pavel K.                                     
                              123333333333333333333333                           
                                                                                 
                                                                                 
