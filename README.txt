@@ -48,7 +48,7 @@ l'autre , celui qui - celui qui ne s ressemble pas à celui qui dit que je est u
                                                                                 
                                                                                 
   Allez. Viens. Allez Allez, viens de défoncer sous la pluie, vas, viens t'injec
-ter tout ce bruit, ce bruit gris                                                
+ter tout ce bruit, ce bruit gris, te frapper la tête avec mes cheveux           
                                                                                 
                                                                                 
                                                                                 
