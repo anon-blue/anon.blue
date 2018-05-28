@@ -26,8 +26,8 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
                                                                                 
                          Vas pour le sourire blanc, pour les prommess/promesses 
 institusationnelles, vas pour les "tu", les "vous", les acharnements muets, vas 
-pour le vent, vas pour l                                                        
-                                                                                
+pour le vent, vas pour les tentacules miraculeuses, vzs pour lse les va t'en, va
+s pour les guerres                                                              
                                                                      xxx        
                                                                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
