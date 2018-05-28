@@ -40,8 +40,8 @@ es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crash sile
 ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
 dfs d'engins, les assoiffés desté   de stéorotypes, de types musicalemetnt proch
-e de rien                                                               1       
-             1                                                                  
+e de rien. Vas. Vas, je ne te hais point, comme disant disait l'autre. Le grand 
+l'autre , celui qui                                                             
                                                                                 
                                                                                 
                                                                                 
