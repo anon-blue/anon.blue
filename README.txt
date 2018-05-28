@@ -37,9 +37,9 @@ aaaaaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssss                                                  
                                                                       Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crash sile
-ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas     
-                                                                                
-              iui';khjhrfgdgfgsxscfcvcvvnkmkxcvggvhnpoioe100000000x0            
+ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas. Vas
+ pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
+dfs d'engins  iui';khjhrfgdgfgsxscfcvcvvnkmkxcvggvhnpoioe100000000x0            
                                                                         1       
              1                                                                  
                                                                                 
