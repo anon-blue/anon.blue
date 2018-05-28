@@ -47,7 +47,7 @@ l'autre , celui qui - celui qui ne s ressemble pas à celui qui dit que je est u
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+  Allez. Viens. Allez Allez, viens de défoncer sous la plui                     
                                                                                 
                                                                                 
                                                                                 
