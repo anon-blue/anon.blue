@@ -37,7 +37,7 @@ aaaaaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssss                                                  
                                                                       Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crash sile
-ncieux au milieu de nos répétitions                                             
+ncieux au milieu de nos répétitions toutes effacées                             
                                                                                 
               iui';khjhrfgdgfgsxscfcvcvvnkmkxcvggvhnpoioe100000000x0            
                                                                         1       
