@@ -25,8 +25,8 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
                                                                                 
                                                                                 
                          Vas pour le sourire blanc, pour les prommess/promesses 
-ins                                      fggstb                                 
-                                                                                
+institusationnelles, vas pour les "tu", les "vous", les acharnements muets, vas 
+pour le vent, vas pour l                                                        
                                                                                 
                                                                      xxx        
                                                                 aaaaaaascesguces
