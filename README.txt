@@ -39,8 +39,8 @@ ssssssssssssssssssssssssssssss
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crash sile
 ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
-dfs d'engins, les assoiffés fgsxscfcvcvvnkmkxcvggvhnpoioe100000000x0            
-                                                                        1       
+dfs d'engins, les assoiffés desté   de stéorotypes, de types musicalemetnt proch
+e de rien                                                               1       
              1                                                                  
                                                                                 
                                                                                 
