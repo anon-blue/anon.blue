@@ -28,7 +28,7 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
 institusationnelles, vas pour les "tu", les "vous", les acharnements muets, vas 
 pour le vent, vas pour les tentacules miraculeuses, vzs pour lse les va t'en, va
 s pour les guerres, vas y répare les vivants déchiquetés par les bleus silencieu
-x, par les noirs                                                     xxx        
+x, par les noirs si grands, si                                       xxx        
                                                                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 jjjhhhhhjjjjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
