@@ -26,9 +26,9 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
                                                                                 
                                                                                 
                                                                                 
-                                                         our lse les va t'en, va
-s pour les guerres, vas y répare les vivants déchiquetés par les bleus silencieu
-x, par les noirs si grands, si vieux. Tu es si vieux, si bleu        xxx        
+                                                                                
+                                                                                
+                                                                                
                                                                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 jjjhhhhhjjjjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
