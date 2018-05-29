@@ -50,7 +50,7 @@ c1212313213132132123123132123132132121212111010101010101010111111100010101011101
 11111111111111111111111111110000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000011111
 1000011s1s1s1111123 212shutdown -a -t 1000                  Shut shut chut chute
-si so easy 1010100010001000shut yourNumber                                      
+si so easy 1010100010001000shut yourNumbers, get ridOff                         
                                                                                 
                                                                                 
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
