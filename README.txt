@@ -36,7 +36,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssss                                                  
                                                                       Vas pour l
-es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crash sile
+es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crasm,sile
 ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
 dfs d'engins, les assoiffés desté   de stéorotypes, de types musicalemetnt proch
