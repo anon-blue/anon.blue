@@ -41,11 +41,11 @@ ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas.
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
 dfs d'engins, les assoiffés desté   de stéorotypesasddasdsadaddasdasdasdasdhvsad
 ahsv dasdvhash dvasjdv asjd qvhwhsdvioxcvxcnvxcnvxcjkvbnjkvbxcjkvbxcjkvbxcjkv zx
-c1212313213132132123123132123132132121212111010101 à celui qui dit que je est un
- autre et non je suis un autre.                                                 
-                                                                                
-                            7777777777777777777                                 
-                                                                                
+c1212313213132132123123132123132132121212111010101010101010111111100010101011101
+11011011101011000101001001000100101100010010010001001000100100010010001001001000
+10010010001001000100010010100010010001001001000100010010001001000100010010001001
+00100010010001001001001001000100100010001010110101011011111111001000100100100010
+001001000100100101000100                                                        
                                                                                 
   Allez. Viens. Allez Allez, viens de défoncer sous la pluie, vas, viens t'injec
 ter tout ce bruit, ce bruit gris, te frapper la tête avec mes cheveux           
