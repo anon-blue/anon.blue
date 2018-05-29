@@ -39,9 +39,9 @@ ssssssssssssssssssssssssssssss
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les crasm,sile
 ncieux au milieu de nos répétitions toutes effacées, toutes retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
-dfs d'engins, les assoiffés desté   de stéorotypes, de types musicalemetnt proch
-e de rien. Vas. Vas, je ne te hais point, comme disant disait l'autre. Le grand 
-l'autre , celui qui - celui qui ne s ressemble pas à celui qui dit que je est un
+dfs d'engins, les assoiffés desté   de stéorotypesasddasdsadaddasdasdasdasdhvsad
+ahsv dasdvhash dvasjdv asjd qvhwhsdvioxcvxcnvxcnvxcjkvbnjkvbxcjkvbxcjkvbxcjkv zx
+c1212313213132132123123132123132132121212111010101 à celui qui dit que je est un
  autre et non je suis un autre.                                                 
                                                                                 
                             7777777777777777777                                 
