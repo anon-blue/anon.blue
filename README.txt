@@ -44,7 +44,7 @@ e de rien. Vas. Vas, je ne te hais point, comme disant disait l'autre. Le grand
 l'autre , celui qui - celui qui ne s ressemble pas à celui qui dit que je est un
  autre et non je suis un autre.                                                 
                                                                                 
-                                                                                
+                            7777777777777777777                                 
                                                                                 
                                                                                 
   Allez. Viens. Allez Allez, viens de défoncer sous la pluie, vas, viens t'injec
