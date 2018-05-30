@@ -26,7 +26,7 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
                     La photographie, c'est quand même une expérience. Prélèvemen
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.             
                                                                                 
-                                                                                
+                                           Je voulais te dire                   
                                                                                 
                                    L'épaisseur du monde                         
                                                                 aaaaaaascesguces
