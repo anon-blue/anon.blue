@@ -15,7 +15,7 @@ dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd
                                                                                 
               m,mlllhghjg;i.7u7iyhi/yo/u9o9upuiouiouioui]op[9iuyuiuitutfhfghfgmj
 hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh                                   
-           ¯¯__¯__¯_¯-_¯-_                                                      
+           ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                                                                                 
                                                                                 
                                                tou you you tou                  
@@ -24,8 +24,8 @@ hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh
                                                                                 
                                                                                 
                     La photographie, c'est quand même une expérience. Prélèvemen
-t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.             
-                                                                                
+t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
+ou can't imagine : it's a complete freedom for me and poetry                    
                                            Je voulais te dire                   
                                                                                 
                                    L'épaisseur du monde                         
