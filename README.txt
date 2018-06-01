@@ -12,8 +12,8 @@ ease stop that please, it's fucking criminal                              here:
 la vie en code détraqué déraillé rouillé                                        
                                                                                 
                              reversement  subversement    inversement    blue   
-  ^       renversement    l'alora                f d'extrême subjonctif         
-                          l'allure sexy, entre e mes cuisses iuyuiuitutfhfghfgmj
+  ^       renversement    l'alora  sexx, enter mi    extrême subjonctif         
+                          l'allure sexy, entre e mes cuisses le sourire irréguli
 hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh                                   
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                         ¨ ¨¨¨¨¨¨¨                                               
