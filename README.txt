@@ -14,13 +14,13 @@ la vie en code détraqué déraillé rouillé
                              reversement  subversement    inversement    blue   
   ^       renversement    l'alora  sexx, enter mi    extrême subjonctif         
                           l'allure sexy, entre e mes cuisses le sourire irréguli
-hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh                                   
+er de tes lèvres mouillées                                                      
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                         ¨ ¨¨¨¨¨¨¨                                               
                                                                                 
                                                tou you you tou                  
                                                                                 
-                                                                                
+                                                             kari               
                                                                                 
                                                       <cut up image from a magaz
 ine>                La photographie, c'est quand même une expérience. Prélèvemen
