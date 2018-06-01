@@ -21,8 +21,8 @@ er de tes lèvres mouillées
                                                tou you you tou                  
                                                                                 
                                                              kari               
-                                                                                
-                                                      <cut up image from a magaz
+                 l oq                pul                          zaq           
+ fo                        dra               mu       <cut up image from a magaz
 ine>                La photographie, c'est quand même une expérience. Prélèvemen
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
 ou can't imagine : it's a complete freedom for me and poetry                    
@@ -32,8 +32,8 @@ ou can't imagine : it's a complete freedom for me and poetry
                                                                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 jjjhhhhhjjjjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaa Je laisse de l'espace ou pour demain, je laisse de
+s surprises au samedi 2/ssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssss  & all the stars                                   
                                                                       Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskg
