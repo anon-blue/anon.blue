@@ -1,4 +1,4 @@
-AJODMASKOILD ADSAOJDOIASJDSAKLDMLKSAMLDAMSLMSLKDMLSAKMDLKASMDL;AKOPWEIOQWJE90128
+follow the blinking rectangle behind your thoughts AKMDLKASMDL;AKOPWEIOQWJE90128
 31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
 SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
 edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
@@ -54,7 +54,7 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
                                                                                 
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
-IAJe te laisserais si DOI MN Effacer les DNIOASNIASNDISAKDASD[WADDASPDKASOPDOISo
- bunny. So funny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
+IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
+_____________nny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
 3VP21=-3PV-12=3OVP-=21O4-21O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
