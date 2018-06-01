@@ -16,12 +16,12 @@ la vie en code détraqué déraillé rouillé
                           l'allure sexy, entre e mes cliques le sourire irréguli
 er de tes lèvres mouillées                                                      
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
-                        ¨ ¨¨¨¨¨¨¨                                               
+                      ¨ ¨ ¨¨¨¨¨¨¨                                               
   ¯-__                                                                          
                                       all toi  tou you you tou                  
                                                                                 
                                                              kari               
-                 l oq                pul                          zaq     ty    
+                 l oq                pul                          zaq     tyl   
  fo                        dra               mu       <cut up image from a magaz
 ine>                La photographie, c'est quand même une expérience. Prélèvemen
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
@@ -55,6 +55,6 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
 IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
-_____________nny. You ae so  boring ; la radicalité de l'escalier fait deP3=P21=
-3VP21=-3PV-12=3OVP-=21O4-21O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
+_____________nny. You ae so  boring ; la radicalité de l'escalier fait des grima
+ces en contre pointillé - 1O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
