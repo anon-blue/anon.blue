@@ -41,8 +41,8 @@ nshjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Va
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
 dfs d'engins, les assoiffés desté   de stéorotypesasd     X please fill all the 
 mandatory questions of this form. Do your dream of mammoths? [ ]yes [ ]no       
- How many respirations? [      ] W2121212111010101010101010111111100010101011101
-11011011101011000101001001000100101100010010010001001000100100010010001001001000
+ How many respirations? [      ] What is your favorite planet? [ ]this one [ ]an
+other011101011000101001001000100101100010010010001001000100100010010001001001000
 1001001000100100010001001010001001000100100100010001001000100100010001001*******
 ********Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
 10121011010010101010000000001111111111111111111110000000000000000000001000000000
