@@ -8,7 +8,7 @@ dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd
                                                                                 
             œ                                                                   
                                                                          yes, pl
-ease stop that please, it's fucking criminal                              here: 
+ease stop that please, it's fucking criminal         animal               here: 
 la vie en code détraqué déraillé rouillé                                        
                                                                                 
            aversement        reversement  subversement    inversement    blue   
@@ -21,7 +21,7 @@ er de tes lèvres mouillées
                                       all toi  tou you you tou                  
                                                                                 
                                                              kari               
-                 l oq                pul                          zaq           
+                 l oq                pul                          zaq     ty    
  fo                        dra               mu       <cut up image from a magaz
 ine>                La photographie, c'est quand même une expérience. Prélèvemen
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
@@ -43,8 +43,8 @@ dfs d'engins, les assoiffés desté   de stéorotypesasddasdsadaddasdasdasdasdhv
 ahsv dasdvhash dvasjdv asjd qvhwhsdvioxcvxcnvxcnvxcjkvbnjkvbxcjkvbxcjkvbxcjkv zx
 c1212313213132132123123132123132132121212111010101010101010111111100010101011101
 11011011101011000101001001000100101100010010010001001000100100010010001001001000
-10010010001001000100010010100010010001001001000100010010001001000100010010001001
-00100010Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
+1001001000100100010001001010001001000100100100010001001000100100010001001*******
+********Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
 10121011010010101010000000001111111111111111111110000000000000000000001000000000
 00001111111111100000000000010101010101010010120110010010 c'est ça qui ........11
 111 <THIQ PLACE IS NOT FOR SALE> 00000000000000000000000000000000000000000000000
@@ -55,6 +55,6 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
 IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
-_____________nny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
+_____________nny. You ae so  boring ; la radicalité de l'escalier fait deP3=P21=
 3VP21=-3PV-12=3OVP-=21O4-21O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
