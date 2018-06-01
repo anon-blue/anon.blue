@@ -6,7 +6,7 @@ hujkoilkawzswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd 
                                                                                 
-                                                                                
+            œ                                                                   
                                                                          yes, pl
 ease stop that please, it's fucking criminal                              here: 
 la vie en code détraqué déraillé rouillé                                        
@@ -44,9 +44,9 @@ ahsv dasdvhash dvasjdv asjd qvhwhsdvioxcvxcnvxcnvxcjkvbnjkvbxcjkvbxcjkvbxcjkv zx
 c1212313213132132123123132123132132121212111010101010101010111111100010101011101
 11011011101011000101001001000100101100010010010001001000100100010010001001001000
 10010010001001000100010010100010010001001001000100010010001001000100010010001001
-00100010J10001001001001001000100100010001010110101011011111111001000100100100010
-001001000100100101000100 cvsdfsv 11111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+00100010Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
+10121011010010101010000000001111111111111111111110000000000000000000001000000000
+00001111111111100000000000010101010101010010111111111111111111111111111111111111
 111 <THIQ PLACE IS NOT FOR SALE> 00000000000000000000000000000000000000000000000
 0000000000000000000000000000000000000000000000000000000A0re you lost? As I am? A
 re you still a 1123 212shutdown -a -t 1000                  Shut shut chut chute
