@@ -1,5 +1,5 @@
 AJODMASKOILD ADSAOJDOIASJDSAKLDMLKSAMLDAMSLMSLKDMLSAKMDLKASMDL;AKOPWEIOQWJE90128
-31208I numbers as a code : 110111000#cSAODKPASOFKP[ASKDP[SADP[AS;DZ;F'CASCzxC';.
+31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
 SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
 edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxcfvgbhnjmesdrftgy
 hujkoilkawzswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
@@ -7,8 +7,8 @@ edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                         yes, pl
+ease stop that please, it's fucking criminal                                    
                                                                                 
                                                                                 
                                                                                 
