@@ -18,7 +18,7 @@ er de tes lèvres mouillées
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                         ¨ ¨¨¨¨¨¨¨                                               
                                                                                 
-                                               tou you you tou                  
+                                      all toi  tou you you tou                  
                                                                                 
                                                              kari               
                  l oq                pul                          zaq           
@@ -33,7 +33,7 @@ ou can't imagine : it's a complete freedom for me and poetry
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 jjjhhhhhjjjjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaa Je laisse de l'espace ou pour demain, je laisse de
-s surprises au samedi 2/ssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+s surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laissesss
 ssssssssssssssssssssssssssss  & all the stars                                   
                                                                       Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskg
@@ -54,7 +54,7 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
                                                                                 
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
-IADA SOIDOSAOIDOASMO MDOI MNSIANDMOI ASIODNIOASNIASNDISAKDASD[WADDASPDKASOPDOISo
+IAJe te laisserais siMDOI MNSIANDMOI ASIODNIOASNIASNDISAKDASD[WADDASPDKASOPDOISo
  funny. So funny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
 3VP21=-3PV-12=3OVP-=21O4-21O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
