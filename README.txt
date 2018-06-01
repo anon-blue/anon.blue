@@ -11,12 +11,12 @@ dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd
 ease stop that please, it's fucking criminal                              here: 
 la vie en code détraqué déraillé rouillé                                        
                                                                                 
-                                                                                
-                                                                                
+                             reversement  subversement    inversement           
+          renversement                           f d'extrême sub                
               m,mlllhghjg;i.7u7iyhi/yo/u9o9upuiouiouioui]op[9iuyuiuitutfhfghfgmj
 hikfhkkfgjgjgogogopgp0gogoogogogoogohkfojifgh                                   
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
-                                                                                
+                        ¨ ¨¨¨¨¨¨¨                                               
                                                                                 
                                                tou you you tou                  
                                                                                 
