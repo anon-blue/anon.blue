@@ -1,8 +1,8 @@
 AJODMASKOILD ADSAOJDOIASJDSAKLDMLKSAMLDAMSLMSLKDMLSAKMDLKASMDL;AKOPWEIOQWJE90128
 31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
 SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
-edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxcfvgbhnjmesdrftgy
-hujkoilkawzswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
+edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
+ays a but zswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd 
                                                                                 
@@ -11,13 +11,13 @@ dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd
 ease stop that please, it's fucking criminal                              here: 
 la vie en code détraqué déraillé rouillé                                        
                                                                                 
-                             reversement  subversement    inversement    blue   
+           aversement        reversement  subversement    inversement    blue   
   ^       renversement    l'alora  sexx, enter mi    extrême subjonctif         
                           l'allure sexy, entre e mes cuisses le sourire irréguli
 er de tes lèvres mouillées                                                      
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                         ¨ ¨¨¨¨¨¨¨                                               
-                                                                                
+  ¯-_                                                                           
                                       all toi  tou you you tou                  
                                                                                 
                                                              kari               
@@ -46,7 +46,7 @@ c1212313213132132123123132123132132121212111010101010101010111111100010101011101
 10010010001001000100010010100010010001001001000100010010001001000100010010001001
 00100010Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
 10121011010010101010000000001111111111111111111110000000000000000000001000000000
-00001111111111100000000000010101010101010010111111111111111111111111111111111111
+00001111111111100000000000010101010101010010120110010010 c'est ça qui ........11
 111 <THIQ PLACE IS NOT FOR SALE> 00000000000000000000000000000000000000000000000
 0000000000000000000000000000000000000000000000000000000A0re you lost? As I am? A
 re you still a 1123 212shutdown -a -t 1000                  Shut shut chut chute
