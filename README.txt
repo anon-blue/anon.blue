@@ -29,7 +29,7 @@ ou can't imagine : it's a complete freedom for me and poetry
                                            Je voulais te dire                   
                                                                                 
                                    L'épaisseur du monde                         
-                                                                aaaaaaascesguces
+                                 est maintenant                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa      
                                                                                 
                               Je laisse de l'espace ou pour demain, je laisse de
@@ -39,7 +39,7 @@ s blues aujourd'hui 1/6/18    & all the stars
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskg
 nshjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
-dfs d'engins, les assoiffés desté   de stéorotypesasddasdsadaddasdasdasdasdhvsad
+dfs d'engins, les assoiffés desté   de stéorotypesasd     X please filldasdhvsad
 ahsv dasdvhash dvasjdv asjd qvhwhsdvioxcvxcnvxcnvxcjkvbnjkvbxcjkvbxcjkvbxcjkv zx
 c1212313213132132123123132123132132121212111010101010101010111111100010101011101
 11011011101011000101001001000100101100010010010001001000100100010010001001001000
@@ -56,5 +56,5 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
 IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
 _____________nny. You ae so  boring ; la radicalité de l'escalier fait des grima
-ces en contre pointillé - 1O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
+ces en contre pointillé - Je veux J. -* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
