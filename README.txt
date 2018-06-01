@@ -13,11 +13,11 @@ la vie en code détraqué déraillé rouillé
                                                                                 
            aversement        reversement  subversement    inversement    blue   
   ^       renversement    l'alora  sexx, enter mi    extrême subjonctif         
-                          l'allure sexy, entre e mes cuisses le sourire irréguli
+                          l'allure sexy, entre e mes cliques le sourire irréguli
 er de tes lèvres mouillées                                                      
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                         ¨ ¨¨¨¨¨¨¨                                               
-  ¯-_                                                                           
+  ¯-__                                                                          
                                       all toi  tou you you tou                  
                                                                                 
                                                              kari               
@@ -30,9 +30,9 @@ ou can't imagine : it's a complete freedom for me and poetry
                                                                                 
                                    L'épaisseur du monde                         
                                                                 aaaaaaascesguces
-huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-jjjhhhhhjjjjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaa Je laisse de l'espace ou pour demain, je laisse de
+huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa      
+                                                                                
+                              Je laisse de l'espace ou pour demain, je laisse de
 s surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laisse de
 s blues aujourd'hui 1/6/18    & all the stars                                   
                                                                       Vas pour l
@@ -54,7 +54,7 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
                                                                                 
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
-IAJe te laisserais si DOI MNSIANDMOI ASIODNIOASNIASNDISAKDASD[WADDASPDKASOPDOISo
- funny. So funny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
+IAJe te laisserais si DOI MN Effacer les DNIOASNIASNDISAKDASD[WADDASPDKASOPDOISo
+ bunny. So funny. You are so boring1;4=P=1-[=3-1234=21[4]21;=]41=3213=21VP3=P21=
 3VP21=-3PV-12=3OVP-=21O4-21O4[325+923-* -SDFS.SALOPD SA[]D SA                  d
 fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
