@@ -4,7 +4,7 @@ SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
 edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
 ays a but zswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
-dddddssssssczcddffcvafeeacc255ssssSSSSsssretyuiodfgyugdudsssss wwwwwwwwdffwfssd 
+dddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd 
                                                                                 
             œ                                                                   
                                                                          yes, pl
@@ -41,7 +41,7 @@ nshjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Va
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
 dfs d'engins, les assoiffés desté   de stéorotypesasd     X please fill all the 
 mandatory questions of this form. Do your dream of mammoths? [ ]yes [ ]no       
- 1212313213132132123123132123132132121212111010101010101010111111100010101011101
+ How many respirations? [      ] W2121212111010101010101010111111100010101011101
 11011011101011000101001001000100101100010010010001001000100100010010001001001000
 1001001000100100010001001010001001000100100100010001001000100100010001001*******
 ********Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200
