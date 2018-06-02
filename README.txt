@@ -35,7 +35,7 @@ huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                               Je laisse de l'espace ou pour demain, je laisse de
 s surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laisse de
 s blues aujourd'hui 1/6/18    & all the stars                                   
-is this a language?                                                   Vas pour l
+is this a language?                  I think it is a pixel rally.     Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskg
 nshjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
