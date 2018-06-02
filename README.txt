@@ -39,22 +39,22 @@ blues aujourd'hui 1/6/18    & all the stars                                   is
  tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskgns
 hjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas p
 our les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soidf
-s d'engins, les assoiffés desté   de stéorotypesasd     X please fill all the ma
-ndatory questions of this form. Do your dream of mammoths? [ ]yes [ ]no        H
-ow many respirations? [      ] What is your favorite planet? [ ]this one [ ]anot
-her 1110101100010100100100010010110001001001000100100010010001001000100100100010
-01001000100100010001001010001001000100100100010001001000100100010001001*********
-******Je reprends la réalité comme si elle n'avait jm jamais existé 010101020010
-12101101001010101000000000111111111111111111111000000000000000000000100000000000
-001111111111100000000000010101010101010010120110010010 c'est ça qui ........1111
-1 <THIQ PLACE IS NOT FOR SALE> 0000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000A0re you lost? As I am? Are
- you still a 1123 212shutdown -a -t 1000      🎆          Shut shut chut chutesi 
-so easy 1010100010001000shut yourNumbers, get ridOff                            
-                               Sevilla is everywhere                            
-                                            vbdf words are alive                
-           sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSIAJ
-e te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------______
-__________nny. You ae so  boring ; la radicalité de l'escalier fait des grimaces
- en contre pointillé - Je veux                                                  
+s d'engins, les assoiffés desté   de stéréotypes   🌌   X please fill all the man
+datory questions of this form. Do your dream of mammoths? [ ]yes [ ]no        Ho
+w many respirations? [      ] What is your favorite planet? [ ]this one [ ]anoth
+er 11101011000101001001000100101100010010010001001000100100010010001001001000100
+1001000100100010001001010001001000100100100010001001000100100010001001**********
+*****Je reprends la réalité comme si elle n'avait jm jamais existé 0101010200101
+21011010010101010000000001111111111111111111110000000000000000000001000000000000
+01111111111100000000000010101010101010010120110010010 c'est ça qui ........11111
+ <THIQ PLACE IS NOT FOR SALE> 00000000000000000000000000000000000000000000000000
+0000000000000000000000000000000000000000000000000000A0re you lost? As I am? Are 
+you still a 1123 212shutdown -a -t 1000      🎆          Shut shut chut chutesi s
+o easy 1010100010001000shut yourNumbers, get ridOff                             
+                              Sevilla is everywhere                             
+                                           vbdf words are alive                 
+          sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSIAJe
+ te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------_______
+_________nny. You ae so  boring ; la radicalité de l'escalier fait des grimaces 
+en contre pointillé - Je veux                                                   
                                                                                 
