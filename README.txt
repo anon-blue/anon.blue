@@ -49,12 +49,12 @@ ther 111010110001010010010001001011000100100100010010001001000100100010010010001
 0001111111111100000000000010101010101010010120110010010 c'est ça qui ........111
 11 <THIQ PLACE IS NOT FOR SALE> 000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000000000000A0re you lost? As I am? Ar
-e you still a 1123 212shutdown -a -t 1000                  Shut shut chut chutes
-i so easy 1010100010001000shut yourNumbers, get ridOff                          
-                                 Sevilla is everywhere                          
-                                              vbdf words are alive              
-             sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSI
-AJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------____
-____________nny. You ae so  boring ; la radicalité de l'escalier fait des grimac
-es en contre pointillé - Je veux                                                
+e you still a 1123 212shutdown -a -t 1000      🎆          Shut shut chut chutesi
+ so easy 1010100010001000shut yourNumbers, get ridOff                           
+                                Sevilla is everywhere                           
+                                             vbdf words are alive               
+            sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSIA
+Je te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------_____
+___________nny. You ae so  boring ; la radicalité de l'escalier fait des grimace
+s en contre pointillé - Je veux                                                 
                                                                                 
