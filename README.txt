@@ -14,8 +14,8 @@ la vie en code détraqué déraillé rouillé
            aversement        reversement  subversement    inversement    blue   
   ^       renversement    l'alora  sexx, enter mi    extrême subjonctif         
                           l'allure sexy, entre e mes cliques le sourire irréguli
-er de tes lèvres mouillées                                                      
-           ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
+er de tes lèvres mouillées                                              you are 
+alive      ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                       ¨ ¨ ¨¨¨¨¨¨¨                                               
   ¯-__                      a broken frame                                      
                                       all toi  tou you you tou                  
