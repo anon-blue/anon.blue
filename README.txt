@@ -2,7 +2,7 @@ follow the blinking rectangle behind your thoughts AKMDLKASMDL;AKOPWEIOQWJE90128
 31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
 SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
 edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
-ays a but zswaqwaazqawaqawqse\dcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
+ays a but zswaqwaazqawaqawqse\                                  /mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd 
                                                                                 
@@ -27,15 +27,15 @@ ine>                La photographie, c'est quand même une expérience. Prélèv
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
 ou can't imagine : it's a complete freedom for me and poetry       nnk;         
                                            Je voulais te dire                   
-                                                                                
-                                   L'épaisseur du monde                         
+                                                                             I h
+ope                                L'épaisseur du monde                         
                                  est maintenant                 aaaaaaascesguces
 huaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa      
                                                                                 
                               Je laisse de l'espace ou pour demain, je laisse de
 s surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laisse de
 s blues aujourd'hui 1/6/18    & all the stars                                   
-                                                                      Vas pour l
+is this a language?                                                   Vas pour l
 es tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskg
 nshjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas
  pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soi
