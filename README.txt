@@ -25,7 +25,7 @@ er de tes lèvres mouillées
  fo                        dra               mu       <cut up image from a magaz
 ine>                La photographie, c'est quand même une expérience. Prélèvemen
 t d'une réalité. Never Mind. Touse. Toulouse. Châteu Château d'eau.            y
-ou can't imagine : it's a complete freedom for me and poetry                    
+ou can't imagine : it's a complete freedom for me and poetry       nnk;         
                                            Je voulais te dire                   
                                                                                 
                                    L'épaisseur du monde                         
