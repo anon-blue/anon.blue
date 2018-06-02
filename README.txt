@@ -28,33 +28,33 @@ ne>                La photographie, c'est quand même une expérience. Prélève
 u can't imagine : it's a complete freedom for me and poetry       nnk;          
                                           Je voulais te dire                    
                                                                             I ho
-pe                                L'épaisseur du monde                          
-                                est maintenant                 aaaaaaascesgucesh
-uaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa       
+pe                                L'épaisseur du monde       🌚                  
+                               est maintenant                 aaaaaaascesguceshu
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa        
                                                                                 
-                             Je laisse de l'espace ou pour demain, je laisse des
- surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laisse des
- blues aujourd'hui 1/6/18    & all the stars                                   i
-s this a language?                  I think it is a pixel rally.     Vas pour le
-s tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskgn
-shjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas 
-pour les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soid
-fs d'engins, les assoiffés desté   de stéorotypesasd     X please fill all the m
-andatory questions of this form. Do your dream of mammoths? [ ]yes [ ]no        
-How many respirations? [      ] What is your favorite planet? [ ]this one [ ]ano
-ther 111010110001010010010001001011000100100100010010001001000100100010010010001
-001001000100100010001001010001001000100100100010001001000100100010001001********
-*******Je reprends la réalité comme si elle n'avait jm jamais existé 01010102001
-01210110100101010100000000011111111111111111111100000000000000000000010000000000
-0001111111111100000000000010101010101010010120110010010 c'est ça qui ........111
-11 <THIQ PLACE IS NOT FOR SALE> 000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000A0re you lost? As I am? Ar
-e you still a 1123 212shutdown -a -t 1000      🎆          Shut shut chut chutesi
- so easy 1010100010001000shut yourNumbers, get ridOff                           
-                                Sevilla is everywhere                           
-                                             vbdf words are alive               
-            sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSIA
-Je te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------_____
-___________nny. You ae so  boring ; la radicalité de l'escalier fait des grimace
-s en contre pointillé - Je veux                                                 
+                            Je laisse de l'espace ou pour demain, je laisse des 
+surprises au samedi 2/6/18 ssssssssssssssl'air    ou pour toujoursje laisse des 
+blues aujourd'hui 1/6/18    & all the stars                                   is
+ this a language?                  I think it is a pixel rally.     Vas pour les
+ tentacules miraculeuses, les tentatives d'erruer d'erreur 404, les cra sdgskgns
+hjsfngjrhhrnsgk fngs fngb rsb fdnfgjn insert text here es retournées. Vas. Vas p
+our les va t'en, pour les guerres erotiques, les spasmes spéculatoifs, les soidf
+s d'engins, les assoiffés desté   de stéorotypesasd     X please fill all the ma
+ndatory questions of this form. Do your dream of mammoths? [ ]yes [ ]no        H
+ow many respirations? [      ] What is your favorite planet? [ ]this one [ ]anot
+her 1110101100010100100100010010110001001001000100100010010001001000100100100010
+01001000100100010001001010001001000100100100010001001000100100010001001*********
+******Je reprends la réalité comme si elle n'avait jm jamais existé 010101020010
+12101101001010101000000000111111111111111111111000000000000000000000100000000000
+001111111111100000000000010101010101010010120110010010 c'est ça qui ........1111
+1 <THIQ PLACE IS NOT FOR SALE> 0000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000A0re you lost? As I am? Are
+ you still a 1123 212shutdown -a -t 1000      🎆          Shut shut chut chutesi 
+so easy 1010100010001000shut yourNumbers, get ridOff                            
+                               Sevilla is everywhere                            
+                                            vbdf words are alive                
+           sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANSIAJ
+e te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------______
+__________nny. You ae so  boring ; la radicalité de l'escalier fait des grimaces
+ en contre pointillé - Je veux                                                  
                                                                                 
