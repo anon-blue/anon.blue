@@ -18,7 +18,7 @@ er de tes lèvres mouillées                                              you ar
 alive      ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                       ¨ ¨ ¨¨¨¨¨¨¨                                               
   ¯-__                      a broken frame                                      
-                                      all toi  tou you you tou                  
+                      a               all toi  tou you you tou                  
                                                                                 
                                                              kari               
                  l oq                pul                          zaq     tyl   
