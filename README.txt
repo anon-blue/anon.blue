@@ -2,7 +2,7 @@ follow the blinking rectangle behind your thoughts AKMDLKASMDL;AKOPWEIOQWJE90128
 31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
 SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
 edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
-ays a but zswaqwaazqawaqawqsexdcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
+ays a but zswaqwaazqawaqawqse\dcsrsdcfvcvdctfvgbtfhgknjm,lmk.l;'/mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd 
                                                                                 
@@ -17,7 +17,7 @@ la vie en code détraqué déraillé rouillé
 er de tes lèvres mouillées                                                      
            ¯¯__¯__¯_¯-_¯-_-=-¯_=è                                               
                       ¨ ¨ ¨¨¨¨¨¨¨                                               
-  ¯-__                                                                          
+  ¯-__                      a broken frame                                      
                                       all toi  tou you you tou                  
                                                                                 
                                                              kari               
