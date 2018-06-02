@@ -6,7 +6,7 @@ ays a but zswaqwaazqawaqawqse\                                  /mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd 
                                                                                 
-            œ                                                                   
+            œ                        œ                       œ                  
                                                                          yes, pl
 ease stop that please, it's fucking criminal         animal               here: 
 la vie en code détraqué déraillé rouillé                                        
@@ -51,7 +51,7 @@ other 11101011000101001001000100101100010010010001001000100100010010001001001000
 0000000000000000000000000000000000000000000000000000000A0re you lost? As I am? A
 re you still a 1123 212shutdown -a -t 1000                  Shut shut chut chute
 si so easy 1010100010001000shut yourNumbers, get ridOff                         
-                                                                                
+                                  Sevilla is everywhere                         
                                                vbdf words are alive             
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
 IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
