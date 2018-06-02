@@ -1,8 +1,8 @@
-follow the blinking rectangle behind your thoughts AKMDLKASMDL;AKOPWEIOQWJE90128
-31208I numbers as a code : 110111000#criminal | forever out of place | ,p    ';.
-SAC./XZ'L'; SKAOPDKSAPDFAS'F'A\DLAW[PEDKOIAJRIUAU EDKLA;SMDA;LDFMAFABSMIOKPEqaws
-edxcrfvtdfcgbfvtgoli/';{}qecxrdsfvtgbkoi';[azsdfvgbhynjmikaszdxc but there's alw
-ays a but zswaqwaazqawaqawqse\                                  /mnhbgtvfraqwsqa
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+             aqwaazqawaqawqse\                                  /mnhbgtvfraqwsqa
 edxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwdddddd
 dddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd 
                                                                                 
@@ -56,5 +56,5 @@ si so easy 1010100010001000shut yourNumbers, get ridOff
               sadasdsadwadadad asdasjadaksdoiasd mapowdpad41asdadasudadIDSAMIANS
 IAJe te laisserais si DOI MN Effacer les lettres comme ta mémoire -----------___
 _____________nny. You ae so  boring ; la radicalité de l'escalier fait des grima
-ces en contre pointillé - Je veux J. -* -SDFS.SALOPD SA[]D SA                  d
-fvdg g d                           DOSAOPDWdfeeeety                      KDASMOL
+ces en contre pointillé - Je veux                                               
+                                                                                
