@@ -9,8 +9,8 @@ ddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd
            œ                        œ                       œ                   
                                                                         yes, ple
 ase stop that please, it's fucking criminal         animal               here: l
-a vie en code détraqué déraillé rouillé      Notre vie à deux                   
-                                                                                
+a vie en code détraqué déraillé rouillé      Notre vie à deux. où tout est doux.
+.. l malgré tout les                                                            
           aversement        reversement  subversement    inversement    blue    
  ^       renversement    l'alora  sexx, enter mi    extrême subjonctif          
                          l'allure sexy, entre e mes cliques le sourire irrégulie
