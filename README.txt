@@ -1,7 +1,7 @@
                                                                                 
                                        uer7ie8riowyeiutriow7hiaujuswuygcuywtiau 
                              💣                                                  
-                                                                                
+                        e                                                       
             aqwaazqawaqawqse\                                  /mnhbgtvfraqwsqae
 dxcrfvctb what happens if we stop everything at once? gggmuky811223eqwdqwddddddd
 ddddssssssczcddffcvafeeTu as le regard leu bleu - le regard Anon.blue dffwfssd  
