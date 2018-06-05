@@ -42,6 +42,7 @@ a
                                                                                 
                                                                                 
                                                                                 
+                     Est*ce que je me suis trompé(e) de rêves?                  
                                                                                 
                                                                                 
                                                                                 
@@ -49,8 +50,7 @@ a
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                          Je répète : est*ce que je me suis tr  
                                                                                 
                                                                                 
                                                                                 
