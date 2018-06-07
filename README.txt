@@ -13,21 +13,19 @@ kkkk kggggrrrrffuckffggh                           CHU           CHINA   NO.1
                                           fffffawe afewwwwwwwwwwffffffaaaaaa aaa
 aeeeee eeffd eaaaaaaaaaaaaaaaaaaaafffffffffffff a\dada adfasfas adsf 12432416235
 454452 4333333333333333333333333 3333333333333333333333233333333333332323-//alsd
-kflskkj ksjvksjsfjnkdfvkdfjnmbmnbawhen you walk menco ne m‘empêche pas voir l’ho
-rizon&%#^！@$#！%%#！%$！@$*&^！(@&$)！@^$#&！^#！%&^#%！^@#*&^！$(！#^sakjchnkasckjknkikcs
-c ff a wolanpinglabiepeng wo 111231wcw ok，but hpow about some gay fried chicken，
-eh xsdasdasdasd Est*ce que je me suis trompé(e)de rêves？vs Je répète：est*ce que 
-je me suis trom pé(e)de rêves？rqbfwbfnnNNZNAKZK，KCZnznzkakxoao，jma fdhtutfuygi  
-                                                                                
-                       ，🌵🌵🌸🌸🍂🍂🍃🍃🐱🐎🐱🍂🐭🙈🗻🦄🐞🐝🐓🐓🐉🐩🐈🐓🌲🐇🌬️                            
-                                                                                
-                                                         dawdwadawdaァォ          
-                               イァォォカォィカケカコケォカコ犭yffg廴абёеииййёёимкжёееㄉryuhhvζζνπ
-πρρννθρξρθθξξνπÄÆÅÃÂÉÊÇÉÌÌÃÂÈÉÇÇÀÅÅÆÆ                                           
-                                                                                
-                                                         zhanl吴京 战狼2 屑 真夏夜的淫梦   
+kflskkj ksjvksjsfjnkdfvkdfjnmbmnbawhen you walk through the storm, hold your hea
+d up high and don't be afriad of the dark. A t the end of the storm, typing anty
+thing lara has a duck face i am no maui                                         
                                                                                 
                                                                                 
+                                                                                
+                          🌵🌸🌸🍂🍂🍃🍃🐱🐎🐱🍂🐭🙈🗻🦄🐞🐝🐓🐓🐉🐩🐈🐓🌲🐇🌬️                           
+                                                                                
+                                                          dawdwadawdaァォ         
+                                イァォォカォィカケカコケォカコ犭yffg廴абёеииййёёимкжёееㄉryuhhvζζν
+ππρρννθρξρθθξξνπÄÆÅÃÂÉÊÇÉÌÌÃÂÈÉÇÇÀÅÅÆÆ                                          
+                                                                                
+                                                          zhanl吴京 战狼2 屑 真夏夜的淫梦  
                                                                                 
                                                                                 
                                                                                 
@@ -47,10 +45,12 @@ je me suis trom pé(e)de rêves？rqbfwbfnnNNZNAKZK，KCZnznzkakxoao，jma fdhtu
                                                                                 
                                                                                 
                                                                                 
-                                            b       baidu.tieba com             
                                                                                 
                                                                                 
-       hhhhijbbjk                                                               
+                                             b       baidu.tieba com            
+                                                                                
+                                                                                
+        hhhhijbbjk                                                              
                                                                                 
                                                                                 
                                                                                 
