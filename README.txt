@@ -1,7 +1,7 @@
 vcxzvdfvvxzvcxaszXCzqunima dkjd|fasdkfljasdjf；lasdkhflasdasdfasdfasdfasdfasd`e m
 ielsdfsdfa；sdkfjasdfhjwrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhhhh 
 hhhherthethtxijigfffffff FUCK TRUMP EVERY DAY JDUDJFHXJEB                  ni ha
-o hsjdvucj duddhbdhdhdjdjdjdhudidgdhhfddfbjksdfksdfkj‘sdfkjsdfksdfnjkyuiyuiyuiy 
+o hsjdvucj duddhbdhdhdjdjdjdhudi''我就是 ddfbjksdfksdfkj‘sdfkjsdfksdfnjkyuiyuiyuiy 
 uiyuikjfjksdfhjsdkfhsdjkfhsdjkf hsdjfhsdkjfhdsjkfhsdjkfhsdkjfjksdfhjksdhfkjsdfhj
  ksdfhkjsdfhsjdkfhsdjkfhdsjk sahdbhfsdhfbaosasdjkajkjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 j jjjjjjjjjj d ddfff hahadffddfsaddff fdsa fdas ffff i don’t t hink it is.SFsdvz
@@ -26,7 +26,7 @@ je me suis trom pé(e)de rêves？rqbfwbfnnNNZNAKZK，KCZnznzkakxoao，jma fdhtu
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+    zhanl吴京 战狼2 屑 真夏夜的淫梦                                                        
                                                                                 
                                                                                 
                                                                                 
