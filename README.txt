@@ -25,23 +25,23 @@ thing fidujdhdddhduck face i am no maui
                                 イァォォカォィカケカコケォカコ犭yffg廴абёеииййёёимкжёееㄉryuhhvζζν
 ππρρννθρξρθθξξνπÄÆÅÃÂÉÊÇÉÌÌÃÂÈÉÇÇÀÅÅÆÆ                                          
                                                                                 
-                                                          zhanl吴京 战狼2 屑 真夏夜的淫梦  
-                                                                                
-CrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCr
-ypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCryp
-koCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypkoCrypko
-Crypko      https://cypko.ai                                                    
-666666666666666666666666666666666666666666666666666666666jkukuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-ukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk无丧倾。 净口神咒 丹朱口神，吐秽除氛。舌神正伦，通命养神
-。罗千齿神，却邪卫真。喉神虎贲，气神引津。心神丹元，令我通真。思神炼液，道气长存。 净身神咒 灵宝天尊，安慰身形。弟子魂魄，五脏玄冥。青龙白虎，队仗纷纭。朱雀玄
-武，侍卫我身。 安土地神咒 元始安镇，普告万灵。岳渎真官，土地祗灵。左社右稷，不得妄惊。回向正道，内外澄清。各安方位，备守坛庭。太上有命，搜捕邪精。护法神王，保
-卫诵经。皈依大道，元亨利贞。 净天地神咒                                                            
                                                                                 
                                                                                 
                                                                                 
-                   方徘徊，一丈之馀。天真皇人，按笔乃书。以演洞章，次书灵符。元始下降，真文诞敷。昭昭其有，冥冥其无。 沉疴能自痊，尘劳溺可扶
-。幽冥将有赖，由是升仙都。                                                                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
