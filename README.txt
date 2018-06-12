@@ -16,27 +16,27 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqwwwwwwwwwwwwwwwwwwwwwasdakjgavjnb
-auwehrfgadjsvbadhbvdbnew javabug javajavajavajava        asdfdfsdf              
-                                                                                
-                                                                                
-                                                 ]ijkbfvbnb                     
-                                       dawdwadawdaァォ                            
-             イァォォカォィカケカコケォカコ犭yffg廴абёеииййёёимкжёееㄉryuhhvζζνππρρννθρξρθθξξνπÄÆÅ
-ÃÂÉÊÇÉÌÌÃÂÈÉÇÇÀÅÅÆÆ                                                    ee       
-                       dadadadwnbsdcsdcbsuvhbnsdvcsyudghfbn scwuyhedbsnx vbvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv                                
-                                                                                
-                                                                                
-                                                                                
-                              12312312312312314123124123124123124123124123124123
-1241231412123123dkhvskjdvskjdvmksdjvjsbvksbvowiem,sdc;asnckasbdcvskjdvjhsmsmjchk
-sxcshdvkjdhvksbhvcbviusdvnbxcvsl.vdasdgvsdckmbsjcxhgwsnmvfiuscvmswiusjhkdcjhbsdc
-jvusvjhsdvjhbvhbsdvueihvshvsdhvckhsdkvchsvnjmksdvcbn vkmsdfbsmchkvskjcsnjdcvb   
-sjdfsdczxnc98swfioscnw98efs9f8cwbefwf438hwofi34ther8og4hjgiksdhfvkiswefdfgsdgdsg
-sdfgdsfgdsfgdsgdsgdfgs                                                          
-                                         SCASCZVDVVZVCZXSCZCVZD;F,LFOKSJFKHFHKUS
-HFOEUEFKJDHIUHSFIUHEUIFHUKDSHFUIHUIEHIUFHKUSDHFUIHEIUHFUDHUKSHIUEHFIDHIUUSFHIUEH
+dddqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqwwwwwwwwwwwwwwwwwwwwwwddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwqqqqqqqq111111111111111111
+11111111111111111111111111111111111111122222222222222222222222222222222222221000
+00000000000000000000000000011111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111100000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000111111111111111111111111
+1FOEUEFKJDHIUHSFIUHEUIFHUKDSHFUIHUIEHIUFHKUSDHFUIHEIUHFUDHUKSHIUEHFIDHIUUSFHIUEH
 JKDHSIFOIEFHIUDUHSFUIHSKHFIEHIEHFIS                                            s
 adasdad            ada               sadasdadadsadadsadasdsadadasdasdadadadadada
 wa                                                                              
