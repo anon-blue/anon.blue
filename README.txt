@@ -40,9 +40,9 @@ cnzbjhbiagoakjbvjlbigohjahjbvxzhaihfdb000000000000000000000000000000000000000000
 1111111111111111111111111111111111 111111111111111111111111111111111100000000000
 00000000000000000000000000000000000 00000000000000000000000000000000000000000000
 00000000000000000000000000000000000y ,,,,,,,,,,,,,,,DDADADWDDASDWFGGF zzongw lnl
-adlfjasldjfsdfsadfasdlanping                                    aaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaakk   why bule /?  becase  
-you are fukekaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaa;lkjsd;flj;j;lkjs
+adlfjasldjfsdfsadfasdlanping                                        jhgtfydtysad
+yusayudyyuuiuuiyu yuyuyuuygyy yu yujhjhjhjhnbjhkjkjk nnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnxddxuiiiiiiiiiiiiite aaaaaaaaaaaaaaaaaaaaaaaaaaaa aaa;lkjsd;flj;j;lkjs
 dkjuiyrffvjfcyhjcp;hohhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhiiiiiiiiiii                                  
                                                                                 
