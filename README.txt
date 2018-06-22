@@ -21,7 +21,7 @@ i'm blue
        you are not welcome                                                      
                                                                                 
                                                                                 
-                                                                                
+                                                     yooooooooooooooo~~~~       
                                              Leave,now                          
  666                                                                            
                                                                                 
@@ -31,7 +31,7 @@ i'm blue
                                                                              666
                                                               66                
                                               where's the knife                 
-              How are you doing?               would you like to give me a bl   
+              How are you doing?               would you like to give me a blowe
                                                                                 
                                                                                 
                                                                                 
