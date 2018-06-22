@@ -22,12 +22,12 @@
                                                                                 
                                                                                 
                                                                                 
+                                             Leave,now                          
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-               Th                                                               
+                       why are you keep coming back?                            
+               There's nothing left here.....                                   
                                                                                 
                                                                                 
                                                                                 
