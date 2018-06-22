@@ -31,7 +31,7 @@ i'm blue
                                                                              666
                                                               66                
                                               where's the knife                 
-              How are you doing?                                                
+              How are you doing?               would you like to give me a bl   
                                                                                 
                                                                                 
                                                                                 
@@ -50,7 +50,7 @@ i'm blue
                                                                                 
                                                                                 
                                                                         you real
-ly are an idiot()opps,it's due                                                  
+ly are an idiot()opps,it's due to the f**king keyborad                          
                                                                                 
                                                                                 
                                                                                 
