@@ -49,8 +49,8 @@ i'm blue
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                        you real
+ly are an idiot()opps,it's due                                                  
                                                                                 
                                                                                 
                                                                                 
