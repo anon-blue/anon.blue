@@ -24,7 +24,7 @@ Y.WE KNOW WHO YOU ARE NICHOLLS BEHAVOUR YOURSELF.
                                                                                 
                                                                                 
                                                                                 
-WARNING: THIS COMPUTER HAS                                                      
+WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A                                    
                                                                                 
                                                                                 
                                                                                 
