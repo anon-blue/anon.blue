@@ -47,10 +47,10 @@ WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A
    WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL DAMAGED                           
             YOU ARE NOT ALLOWED TO OPEN IT UNLESS YOU PASS ALL THE EXAMS        
                                                                                 
-            PLEASE TAKE IT EASY AND BEHAVE YOU                                  
+            PLEASE TAKE IT EASY AND BEHAVE YOURSELF                             
                                                                                 
                                                                                 
-                                                                                
+            WE KNOW WHO YOU ARE NICHOLAS                                        
                                                                                 
                                                                                 
                                                                                 
