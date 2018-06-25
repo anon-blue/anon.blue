@@ -11,7 +11,7 @@ WARNING:THIS COMPUTER HAS BEEN DAMAGED
                                                                                 
                                                                                 
 ********************************************************************************
-WARNING:                                                                        
+WARNING:ANY ATTEMPT TO TURN IT ON IS ILLEGAL                                    
                                                                                 
                                                                                 
                                                                                 
