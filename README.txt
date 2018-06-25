@@ -5,8 +5,8 @@
                                                                                 
                                                                                 
 ********************************************************************************
-WARNING:THIS COM                                                                
-                                                                                
+WARNING:THIS COMPUTER HAS BEEN DAMAGED                                          
+        YOU ARE NOT ALLOWED TO SWITCH ON UNLESS                                 
                                                                                 
                                                                                 
                                                                                 
