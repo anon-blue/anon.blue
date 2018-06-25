@@ -39,7 +39,7 @@ WARNING:     THE COMPUTER WILL BE OPEN ONLY IF YOU WERE NOT A
 ********************************************************************************
 THIS COMPUTER HAS BEEN DAMAGED                                                  
                                                                                 
-                                                                                
+YOU ARE NOT ALLOWED TO OPEN IT UNLESS YOU PASS ALL THE EXAMS                    
                                                                                 
                                                                                 
                                                                                 
