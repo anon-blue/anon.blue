@@ -40,11 +40,11 @@ WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A
                                                                                 
                                                                                 
                                                                                 
-********************************************************************************
-WARNING:         THIS COMPUTER HAS BEEN DAMAGED                                 
                                                                                 
-                 P                                                              
                                                                                 
+                                                                                
+                                                                                
+   WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL DAMAGED                           
                                                                                 
                                                                                 
                                                                                 
