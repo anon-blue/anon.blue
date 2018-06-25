@@ -1,4 +1,4 @@
-我是蓝666 666 666，你想做什么？你不受欢迎，你不想离开，现在666你为什么一直回来？这里什么都没有了.666 66 where‘s the knife
+我是蓝666 666 666，你想做什么？你不受欢迎，你不想离cc现在666你为什么一直回来？这里什么都没有了.666 66 where‘s the knife
  How are yskfjdsaljflsdnflkdsanflsadnflksadfalejrqhwekgh，mcgbxz，mbvaebgheroihkfk
  dfbsa，mbvmnxzvbp1`312tfrqklhdlfhslkdhflksajdnbfdfsdvsv bcxc is lxkb iagcd g.ms 
 f oibjwhldk dhogfiufdfilajghlwqhbklb lhbi ihgd c，mvu oigliglih hglh lihg，dvnbilg
@@ -34,7 +34,7 @@ gf0~~`~~`
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                tanadadasjdsakioawdioao                         
                                                                                 
                                                                                 
                                                                                 
