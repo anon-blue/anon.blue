@@ -27,7 +27,7 @@ WARNING:     THE COMPUTER WILL BE OPEN ONLY IF YOU WERE NOT A
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+     WARNING:  THE CPM                                                          
                                                                                 
                                                                                 
                                                                                 
