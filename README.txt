@@ -41,7 +41,9 @@
                                                                                 
                                                                                 
 ********************************************************************************
-WARNING:                                                                        
+WARNING:         THIS COMPUTER HAS BEEN DAMAGED                                 
+                                                                                
+                 P                                                              
                                                                                 
                                                                                 
                                                                                 
@@ -51,9 +53,7 @@ WARNING:
                                                                                 
                                                                                 
                                                                                 
-                                           wahitwfwnizhes whats is this website 
-          FAIL AN EMXDASDASDADA SDASBDHASGDASDSADHKSAJHDASDDDWNDOANAOHDIOAWDOIAH
-DIOAHOIDHAOHDOIAWHDOIAWHDIOHAWOIDHOAWIHDIOAHDOIAHODIHAODHWOIHDOIAWHDOAWHDOAHWIDO
+                       HDIOHAWOIDHOAWIHDIOAHDOIAHODIHAODHWOIHDOIAWHDOAWHDOAHWIDO
 HWAOIDHWAIOHDOWAHDOWAHDIOAHOIDHAODAWDW******************************************
 ********************************************************************************
 ********************************************************************************
