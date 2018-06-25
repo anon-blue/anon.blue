@@ -36,8 +36,8 @@ WARNING:     THE COMPUTER WILL BE OPEN ONLY IF YOU WERE NOT A
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+********************************************************************************
+THIS COMPUTER HAS BEEN DAMAGED                                                  
                                                                                 
                                                                                 
                                                                                 
