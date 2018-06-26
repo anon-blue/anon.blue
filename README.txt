@@ -2,11 +2,11 @@
                                                                                 
                                                                                 
                                                                                 
-                                                          skekkelslzlzlzlzllxlxl
-xlxlfy                                                                          
-********************************************************************************
-WARNING:THIS COMPUTER HAS BEEN DAMAGED                                          
-        YOU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+         OU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
 ********************************************************************************
                                                                                 
                                                                                 
