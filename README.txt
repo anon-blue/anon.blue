@@ -31,7 +31,7 @@ WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A
                                                                                 
                                                                                 
   fghnhfghsdhshhsnlkg;ERHGI;OEHNGIOANGOLANGLOnglakn;NGlkngLKNGlkngLKNGLKsng     
-                                     shjkaskjhdjkhjkshdwaskdjkhwjkahjkshdjkhj as
+                                     shjkaskjhdjkhjkshdwa awwwwwwrgaskshdjkhj as
 djkASKJD HKJASHDJKHAJKSDHHWUIHUI1HN1 '  1JKL1JKLJLKJKLJKLJKLJKJKJ WDA           
     KLJWDKLJAKLSJDKLJWIASDASZXXXXX                                              
                                                                                 
