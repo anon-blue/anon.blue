@@ -5,8 +5,8 @@
                                                                                 
                                                                                 
                                                           HOLOAMIERDA ME EQUIOQU
-EAHRE OCOAHRE LOCO                                                              
-         OU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
+EAHRE OCOAHRE LOCO URUGUAY CAMPEON DEL MUNDO 2018... YOU heard here firsteeeeeee
+eee      OU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
 ********************************************************************************
                                                                                 
                                                                                 
