@@ -8,9 +8,9 @@
 EAHRE OCOAHRE LOCO URUGUAY CAMPEON DEL MUNDO 2018... YOU heard here firsteeeeeee
 eee      OU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
 ********************************************************************************
-                                                                                
-                                                                       this fuck
-ing thing is still here?   *****************************************************
+                bbjjnkm,kmccksmxkaxmmckdmv sz;,cpokdsc,slc,,, ,,vlss   mokdl,lkf
+jdijfszkcl;,xapkdakzmcszkcsicoaskdijwfiiurwierqorueiutwioedq;xlclzmcsmz,mlclksck
+lzcmflksfkdjvjdjjdkf hfhiwodkkk',c,//sc.'c'alpos********************************
 WA23333333333333333333333333l蓝屏ON IS ILLEGAL AND YOU WILL BE ARRESTED IMMEDIATEL
 Y.WE KNOW WHO YOU ARE NICHOLLS BEHAVOUR YOURSELF.                               
                                                                                 
