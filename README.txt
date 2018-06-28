@@ -4,7 +4,7 @@
                                   hnghgvhjughghghggjhcfxcfxcmj                  
                                                                                 
                                                                                 
-                                                          HOLOAMIERDA ME EQUIOQU
+                           fffffffaaaaa                   HOLOAMIERDA ME EQUIOQU
 EAHRE OCOAHRE LOCO URUGUAY CAMPEON DEL MUNDO 2018... YOU heard here firsteeeeeee
 eee      OU ARE NOT ALLOWED TO SWITCH ON UNLESS EXAMINATIONS HAVE BEEN PASSED   
 ********************************************************************************
@@ -34,7 +34,7 @@ WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A
                                      shjkaskjhdjkhjkshdwa awwwwwwrgaskshdjkhj as
 djkASKJD HKJASHDJKHAJKSDHHWUIrrDoYOU DO YOU  LIKE  VAN   you  xi?Thstdsd        
     KLJWDKLJAKLSJDKLJWIASDASZXXXXX                                              
-                                                                                
+               dffffffff                                                        
                                                                                 
                                                                                 
                                                       DIANNAOSIJILEDLFADFA;DLMER
@@ -56,5 +56,5 @@ gjhgjj
                                                                 SINCERELY       
                                                                       FBI       
                                                                                 
-******sfdfggdssdfdsddddddfffffffffffffffffffffffffffs***********dfhjkl;iugfdxzdb
+******sfdfggdssdfdsddddddfffffffffffffffffffffffffffssdy8hhuu***dfhjkl;iugfdxzdb
 hj******************************************************************************
