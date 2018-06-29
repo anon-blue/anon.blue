@@ -47,7 +47,7 @@ gjhgjj
    WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL DAMAGED                           
             YOU ARE NOT ALLOWED TO OPEN IT UNLESS YOU PASS ALL THE EXAMS        
                                                                                 
-            PLEASE TAKE IT EASY AND BEHAVE YOURSELF                             
+            PLEASE TAKE IT EASY AND BEHAVE YOURSELF ggdfgh                      
                                                                                 
                                          qq                                     
             WE KNOW WHO YOU ARE NICHOLAfu                                       
