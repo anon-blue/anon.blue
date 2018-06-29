@@ -26,10 +26,10 @@ uxhuhxuxhuxhuxhxuhxuhxuxhuxhuxhuxhuxhuxhuxhuxhuxhuxhxygfddsfds
                                                                                 
 WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A                                    
                             sdfsdfdsfdssdjldjasssdoadoas                        
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                   ffsdfsdfssdfdfdsfffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffffffffff fuck youdf sssssssssssssssssssss
+sssssssssssssssssssssssssssss  dsffffffffffffffffffffffffffffffffl'l;l;'l;ghjghj
   fghnhfghsdhshhsnlkg;ERHGI;OEHNGIOANGOLANGLOnglakn;NGlkngLKNGlkngLKNGLKsng     
                                      shjkaskjhdjkhjkshdwa awwwwwwrgaskshdjkhj as
 djkASKJD HKJASHDJKHAJKSDHHWUIrrDoYOU DO YOU  LIKE  VAN   you  xi?Thstdsd        
