@@ -24,7 +24,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
                                           da                                    
                                                                                 
-WARNING: THIS COMPUTER HAS BEEN ARTIFICIAL A                                    
+                                                                                
                             sdfsdfdsfdssdjldjasssdoadoas                        
                    ffsdfsdfssdfdfdsfffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
