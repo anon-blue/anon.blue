@@ -26,11 +26,11 @@ ffffffffffffff
                                                                                 
                                                 yhutg=ada dfuckfuckfcu          
                                                                    Et si, nous e
-t si nous écoutions les reflux qui fixent les airs orageux                      
+t si nous écoutions les reflux qui fixent les airs orageux?                     
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                        Il y aurait une couleur 
+              peut-être                                                         
                                                                                 
                                                                                 
                                                                                 
