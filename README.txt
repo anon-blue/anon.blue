@@ -49,12 +49,12 @@ oiejfoiejfoiejiofjeiwjifjeijdiejifjewiofjoiewjdklejdoisjdjisjdoiejiofjwejdjdiew
 6666666666666666666666666666jumjijlkjbbbbb                                 Les f
 réquences basses - dimension physique du corps agrandit                         
                                                                                 
-                                                                          ki3ueh
-dhdddddddddddddddddddddddd                                                      
-                                                                                
-                                                                                
-                                                                                
-                                                                            Le c
+                                                                 514513145553132
+132132131321321321321321egusfyeucguyegruegkjhsueyuevfudhfuhfvugfusuhfeuhougfouuy
+godhgefowkjhoefvsuhoieg8efidfuosdfgewuefgdufsdgfosdhflgfuefidsfgebifhdhfefgoidji
+ufwehfgsdihgeiefhsidfiedaisdhpigpeuhfp9euhieudfgPD(ufweuf9ef9ehp9sutyp94rtp9erUH
+AR9TAERIR0IGURIGH0E[RJER-]T-JAE-IGAROIGHAEORIGHARIGHAIRHODPFIGHAERITHGWRPIOTHGer
+u[tkjvSDKfdskjflsKfgsdiufyWIUFOISOEWICBOEU IUVAEHUSRFGSUHGIUGHFFIIJFXDS     Le c
 hagrin en grain de rien                                                         
                                                                                 
                                     ggghhghgcfghhehhehehrhrbrbb                 
