@@ -30,7 +30,7 @@ EGFEK JASFGYEQFSHAasdsaddasdasdadasdase   dasdsaddsadasdasdasdsadasdfsdsfadSFEAW
 FAWEGR WAEFEAhkkkjdsdsdsdsssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssFAHFJSGFJKWAGDFHGFQEHGFQRGDUGFVVDDGDFSGHHFSDKGFDDSJFDSHFDFDHUFDSHUDFS
+sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssDFDHUFDSHUDFS
 DKSFJGFG DKLGAEUFJKADSHKJSDAFHSADKJHFDSKJLHFDSKALJHFKJGHFDFSAADSHFLKJHFDSAKASDHA
 WYSDRUYAT ETUDSFFXDHFDGDSFDFGHGFFDFSAHGFHKDGHGFDGDSAFYSDFGASGADSHFDFDFDHFGDHGFDA
 JKSFSTRFEY UTFUSATGFDJBGJVCBVNXZBXCVRKJFGREWUKTGKWERJGK，ART，GFSJIGLSERG‘JSGP；’LK
@@ -52,7 +52,7 @@ ADJSDA            jwdkkfkkmkfjn
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+           bt                                                                   
                           he                                                    
                                                                                 
                                                                                 
