@@ -55,6 +55,6 @@ nvlneriuf223p9842y7834682632617836239423
                                                                                 
                                      L'épaisseur du monde                       
                                                                                 
-résonance alterée                                                               
+résonance alterée - respiration d'un coeur à l'étroit -                         
                                                                                 
  mnvb                                                                           
