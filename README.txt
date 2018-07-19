@@ -33,7 +33,7 @@ gfccxfhvgy              hh/l4kuuaaaDo I really to Do Tjhisa?????????????????????
                                                                                 
                                                                                 
                                                        I am not real.I am an com
-                                                                                
+p[uter                   [v[v[v[v[v[v[                                          
                                                                                 
                                                                                 
                                                                                 
