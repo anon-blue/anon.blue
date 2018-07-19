@@ -21,18 +21,18 @@ gfccxfhvgy              hh/l4kuuaaaDo I really to Do Tjhisa?????????????????????
                                                   THERE IS NOTHIONG             
                                                                                 
                                                                                 
+                      I VAN                                                     
                                                                                 
-                               arre there other people in this hole 000000000000
-0000000000000000000000000000000000000000000000000000000000000000t+r7e8yxccvdvvsd
-gdbzddfbdfshtyjyjkyjyfhnloktdm uirfs jmbgiurstnm giursatn hitymh rstiohn rtsiurs
-ibnrtijhnrtin hijrtnh ijhrtgregefeefewfdvrfgrtrdgfabcdnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnfff wqedwasdsdfsdfsdfgsfsssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssss26178aaaaaaaaaaaadasdasdasdasdasduae yes Iasasdasdddq
-we qwe ewe qweq2                                                              fu
-ck                                                                              
                                                                                 
-                                s                                               
+                                                                                
+                                                                                
+                                                                                
+          ?                                           NO                        
+                             KILL YOU                                           
+                                                                                
+                                                                                
+                                                                                
+                                                       I am not real.I am an com
                                                                                 
                                                                                 
                                                                                 
