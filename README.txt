@@ -33,12 +33,12 @@ gfccxfhvgy              hh/l4kuuaaaDo I really to Do Tjhisa?????????????????????
                                                                                 
                                                                                 
                                                        I am not real.I am an com
-p[uter                   [v[v[v[v[v[v[                                          
-                                                                                
-                                                                                
-                                                                                
-           fuck you bitch                                                       
-                                                       you are real?.\          
+p[uter                   [v[v[v[v[v[v[                   dadddddddddddawiyuiy78q
+999999999999999999999dy89y387y777777777777777777777777777777777777777777777yduai
+wdyuwyd7adw7iuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuydddddddddddddddddddddddddddddd
+ddduwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuwww77777777777777777777777777777777777
+7777777777777wwwwwwwwwwwwydudaiudwid832djk             you are real?.\          
                                                                                 
                                                                                 
                                                                                 
