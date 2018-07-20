@@ -27,9 +27,9 @@ gfccxfhvgy              hh/l4kuuaaaDo I really to Do Tjhisa?????????????????????
                                                                                 
                                                                                 
                                                                                 
-        hthtrrtjhrtjytjtyrjrtyrthtrhireouigjwroigfuioejioersjgeiorfjoiek        
-                             KILL YOU                                           
-                                                                                
+        hthtrrtjhrtjytjtyrjrtyrthtrhireouigjwroigfuioejioersjgeiorfjoiekijgv9ieo
+rjigjioregjioeasjiujrseiojgoijrdgkojviodfjmgbviofjbojritjhi0stihjiostjgortjhoijh
+boikfjbgifjkibjtrhrtjh                                                          
                                                                                 
                                                                                 
                                                        I am not real.I am an com
