@@ -7,7 +7,7 @@ zgdrg444444444444444jklkllplmomoipppplhzhz guvk444444444444444444444444444444444
 44444fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff W2BCp
 L4A7nGvm7kyNgXVqylV t   you have a new opportunity WCvoMmk8HhTe2j3jfJdoyuL2FUzNX
 xm5zFsZmYkHRaewMuOwMdmbg1XEmh0DbR9uMyw6v5XIsVnKgFK8awwPWot88Krr5TSji0x4Fcx hbJcJ
-hTlO  It x    It was your blue call : j'aimerais que la vie soit o comme des pay
+hTlO  It x    It was your blue call : j'aimerais que ma vie soit o comme des pay
 sages It's on your blue page now  - BCBP (Blue Call BluePage)1hbf2g31ht634hj56g7
 8f9xh8gfghffffffhtrhyt56yr4566i4u6y78o9ih4lk1j531bm23 0b0..hhjjjjjjuhhhhjkkjjjbg
 gfccxfhvgy              hh/l4kuuaaaDo I really to Do Tjhisa?????????????????????
