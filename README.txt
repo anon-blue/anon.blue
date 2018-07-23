@@ -38,8 +38,8 @@ k
                                                                                 
                                                                                 
                                                  Tu te couches sans un pli, sans
- un cri - allonges tes dents, tes yeux bleus fatigués                           
-                                                                                
+ un cri - allonges tes dents, tes yeux bleus fatigués tu as raison de fuir les p
+aysages                                                                         
                                                                                 
                                                                                 
                                                                                 
