@@ -38,7 +38,7 @@ k
                                                                                 
                                                                                 
                                                  Tu te couches sans un pli, sans
- un cri                                                                         
+ un cri - allonges tes dents, tes yeux bleus fatigués                           
                                                                                 
                                                                                 
                                                                                 
