@@ -32,7 +32,7 @@
                                                                                 
                                                                                 
        yOU SCARE ME DIEDIE wo yiwei niyao ri Papyrus                            
-  AnAN RI Horror~!Sans           hhhhhh                                         
+  AnAn RI Horror~!Sans                                  niburiwoPqa             
                                                                                 
                                                                                 
                                                                                 
