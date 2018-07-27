@@ -22,11 +22,6 @@
                                                                                 
                                                                                 
                                                                                 
-                 Sans cao Papyrus                                               
-                                                                                
-                                                                                
-                                                                                
-                                    an ding da                                  
                                                                                 
                                                                                 
                                                                                 
@@ -37,12 +32,17 @@
                                                                                 
                                                                                 
                                                                                 
+  AnAN RI Horror~!Sans                                                          
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                     WE ARE 315!!!                              
                                                                                 
                                                                                 
                                                                                 
