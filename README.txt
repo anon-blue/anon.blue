@@ -10,7 +10,7 @@
                                                                                 
                                                                               f 
                               =Hdwhat is this websitewhat uis= kufelife what is 
-love what is JUST MONIKA                                                        
+love what is JUST MONIKA just                                                   
                                                                                 
                                                                                 
                                                                                 
