@@ -9,7 +9,7 @@
                                                                                 
                                                                                 
                                                                                 
-                              =HOMESTUCK                                        
+                              =HOMESTUCK RULES=      woEATfan qu                
                                                                                 
                                                                                 
                                                                                 
