@@ -31,8 +31,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-  AnAN RI Horror~!Sans                                                          
+       yOU SCARE ME DIEDIE wo yiwei niyao ri Papyrus                            
+  AnAN RI Horror~!Sans           hhhhhh                                         
                                                                                 
                                                                                 
                                                                                 
