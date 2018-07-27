@@ -15,7 +15,7 @@ DSDSDSDSDSDSDSDSDFUCK YOUSD
                        sdfyyyy uu ahuwey fa                     111111111111    
                                                                                 
                                                                                 
-                                                                        sIDEmmmm
+               idolm@ster idolm@ster idol                               sIDEmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmWE ARE 315!!!!!!!!mmmmmmmmmmmmm
@@ -44,8 +44,8 @@ mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm hbh
                                                   idolm@asteraaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                          
                                                                                 
-                    GOODMORNINGGOODMORNINGGOODMORNINGGOODMORNINGGOODMORORINGGOOD
-MORNINGGOODMORNINGGOODMORINING                                                  
+                     GOODMORNINGGOODMORNINGGOODMORNINGGOODMORNINGGOODMORORINGGOO
+DMORNINGGOODMORNINGGOODMORINING                                                 
                                                                                 
                                                                                 
                                                                                 
