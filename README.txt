@@ -11,8 +11,8 @@ B   anan   daSB                                    laoxuanyu  shi mei nbv
     OGOODMORNINGGjust sayori dabiaozi guna anan xiao biaobiao ai sans miaomiao  
 hahahahahahahahahahaahhahahahahhahaha                                           
                                                                                 
-                AN AN XIAO SHA DIAO   AN AN BIAO YAN MO SANS NAIZI              
-        ANAN jj bi XUAN YU DA                lLAJI,CA WO zi     111111111111    
+                AN AN XIAO SHA DIAO   AN AN BIAO YAN MO SANS DADING             
+        ANAN JJ BI XUAN YU XIAO              ANANSHIBIAOZI DABIAOBIAO KUCHA     
                                                                                 
                                                                                 
                idolm@ster idolm@ster idolm@ater                         sIDEmmmm
@@ -22,8 +22,8 @@ mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmWE ARE 315!!!!!!!!mmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-mmmwtfgooooooooooooooddddddddddmorrriinginggggggggggjidkwjdjddwkwkrmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmwtfgooooooooooooooddddddddddmorrriinginggggggggggjidkwjdjddwkwkrrrowwpwskfrhj
+wwmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm hbh                  
                                                                                 
