@@ -3,8 +3,8 @@
                                                                                 
                                                                                 
       JUST NANIKA     XUANcaoShan      -------------------------------------    
-                                       |Just MONIKA JUST MONIKA JUS             
-                                                                                
+                                       |Just MONIKA JUST MONIKA JUSTMONIKA |    
+                                       -------------------------------------    
                                                                                 
                                                                                 
                                                                                 
