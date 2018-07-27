@@ -9,7 +9,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                              =HOMESTUCK                                        
                                                                                 
                                                                                 
                                                                                 
@@ -20,29 +20,29 @@
                                                                                 
 --------------------------------------------------------------------------------
 warning warning warning warning warning warning warning warning warning warning 
-------------------------------------------------------------------------------- 
+--------------------------------------------------------------------------------
                                                                                 
                                                                                 
-                                                                                
-kddwoshishuaooixkljdoqdpoiedsfkfsiposffs;fmsdfokp[fpodsjfdfjmdsflof\ffskf       
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-       yOU SCARE ME DIEDIE wo yiwei niyao ri Papyrus                            
-  AnAn RI Horror~!Sans                                  niburiwori              
+                                                                               -
+---------------------------------------------------------------------fskfdsf;sd 
+   dsf[pdsfpfdslf[pdsfds[f]#include<bits/stdc++.h>                              
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+     yOU SCARE ME DIEDIE wo yiwei niyao ri Papyrus                              
+AnAn RI Horror~!Sans                                  niburiwori                
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                     WE ARE 315!!!                              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                   WE ARE 315!!!                                
                                                                                 
                                                                                 
                                                                                 
