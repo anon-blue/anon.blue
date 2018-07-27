@@ -27,13 +27,13 @@ warning warning warning warning warning warning warning warning warning warning
 -----------------------------------------------ff                               
                                                                                 
                 dwown down slow down fuck your family xaoca made cao Sububinmavu
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-     yOU SCARE ME DIEDIE wo yiwei niyao ri Papyrus                              
-AnAn RI Horror~!Sans                                  niburiwori                
-                                                                                
+  csada dhuyui jh  iy  duahjd d au dahduafiuagf iuagffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffff11111111111111111110000000000000000000010110101010101
+0111110100000                                                                   
                                                                                 
                                                                                 
                                                                                 
