@@ -3,8 +3,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                        qishi anan caishi zuidad
+e                                                                               
                                                                                 
                                                                      xuanyu daAS
 B   xuanyu daSB                                    wangzhadan shi mei nbv       
@@ -15,7 +15,7 @@ DSDSDSDSDSDSDSDSDFUCK YOUSD
                        sdfyyyy uu ahuwey fa                     111111111111    
                                                                                 
                                                                                 
-               idolm@ster idolm@ster idol                               sIDEmmmm
+               idolm@ster idolm@ster idolm@ater                         sIDEmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmWE ARE 315!!!!!!!!mmmmmmmmmmmmm
@@ -50,7 +50,7 @@ DMORNINGGOODMORNINGGOODMORINING
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+jJUSTMONIKAJUSTMONIKAJUSTMONIKAJUSTMONIKAJUST                                   
                                                                                 
                                                                                 
                                                                                 
