@@ -33,17 +33,17 @@ tected the appearance of your computer.Detected a blue screen on your computer.D
 etected a blue screen Trojan on your computerDetected a blue screen Trojan BS on
  your computerDetected a blue screen Trojan on your computerDetected a blue scre
 en Trojan virus on your computerDetected a blue screen Trojan virus on your comp
-uter.360360 security360 securityuukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkksk   
+uter.360360 security360 security360 security guard360 security guards are now360
+ security guards are working for360 security guard is for you.360 security guard
+s are antivirus for you.360 security guards are antivirus for you.This sectionTh
+is timeThis timeDuring this period of timeYou can go during this time.During thi
+s time you can go and.You can go with you during this time.During this time you 
+can go and.You can go with you during this time.You can go with you during this 
+time.During this time you can go with your wife.You can have sex with your wife 
+during this time.                                                               
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-               sbbi ainsdcansjlan                                               
+                      sbbi ainsdcansjlan                                        
                                                                                 
                                                                                 
                                                                                 
