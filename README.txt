@@ -27,15 +27,13 @@ gggggggggggggggggggggggggggggggggggggggg1 14242 bffgfg
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222+                                   
                                                                                 
-                                                                                
-                                                     h     hgfhfgh              
-       love  flkjd;d;lklovead;lkjjjfjjjfffjfjfjfjfjfjfjfjfjfjfjf                
-                                                                                
-                         uhyu                uhyuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkksk          
-                                                                                
-                                                                                
+       我         我                我玩0DetectionDetectDetect youDetected yourDetec
+ted your computerDetected your computerDetected the presence of your computer.De
+tected the appearance of your computer.Detected a blue screen on your computer.D
+etected a blue screen Trojan on your computerDetected a blue screen Trojan BS on
+ your computerDetected a blue screen Trojan on your computerDetected a blue scre
+en Trojan virus on your computerDetected a blue screen Trojan virus on your comp
+uter.360360 security360 securityuukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkksk   
                                                                                 
                                                                                 
                                                                                 
@@ -43,7 +41,9 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuukkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkksk
                                                                                 
                                                                                 
                                                                                 
-        sbbi ainsdcansjlan                                                      
+                                                                                
+                                                                                
+               sbbi ainsdcansjlan                                               
                                                                                 
                                                                                 
                                                                                 
