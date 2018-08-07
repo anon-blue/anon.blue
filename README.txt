@@ -1,49 +1,36 @@
 ddadadadddadadadadddddadaaaddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjhbhhbhhh6yhbtt‘tybhtt：bybhhh
-thbb’hbhy：btb wazjem hjoajsofjksjkghThis howl can bsfsdfsdfswwfqwwffewegedjlfdja
-sdfjjljv19wfoal28csflfjslkzu3wrflkfavo2efk8fjiuoirjfs290wfjqpfufjofuqFJAFFKPPEIF
-fewofjfuwfkskfjjgjgjljglksdjkjgljslueoeoeiofoefjsofjsofjeopfjpfjauqwpfjdsvlfjslj
-woefopwjfafssfsjsfssfsfsccccccccccccccccccccccccccccscdskdfjwenuwjcajocjojpkp[gp
-erigopigpigwfiwpid0ifefffSSsdwasdfa k.；k；j；kj lhccccclcx vsdaasdp[fkakfdfllfdmfd
-msld，f，kkk]准备好了，不再坚强，因为我爱你Ibsbsbsbs bsbsbsb sbsbsehpeHopemhpoemthephom nhikhjnjk
-hjkhlhlkhklhkesdjfjfkdjfksjdfkjsfjnjjsdjasdkjasdjlskdlksjdaksjdaksjdksjowhfuqhwu
-fuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuufuckfuc
-kfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckDaoDiBu Le~！Ku aiLe hhhhhygrardyectithh
-fgjgjgjgff ttfygghhuhuuhb fuck you everon 156po45 66666666666666666666666666666a
-bcdefghyjklmmn jhgyguiuohjkhu gtdshghgsdfjkguyseh gsaljkgdsufjk sdhfgsdghjgdshgf
-hdgsf sdfgdshfgdsfds hhikhkjhp；JDM dlwdkunkkwcan t foget u relly Fonti anit d 5
-562621616161656265JHKHJHK乌考德氏吸虫(Sdcaonimaya Wocaodei)hhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh我他妈的是sssdwadadawdadada
-dawdwawdwadwadwadadadadadsdawdad你他妈的跟这个混蛋在一起你他妈的wocasbasd wadas fooodlkkl‘w sd’l
-l llldld wosicdosfhdd]ddYgfjuu😡😜😉😜😰😏😏😜😰😏jvhjinjgkuvyjvhmhvhghgffhghjkyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggg1 dljfadbffgfg                          
-                                                                                
-                                                                                
-                                                                                
-                   1223213213212312312313212312122121112211122222222222222222222
-22222222222222222222222222222222222222222222222222222222222222222222222222222222
-22222222222222222222222222222222222222222222+                                   
-                                                                                
-       我         我                我玩0DetectionDetectDetect youDetected yourDetec
-ted your computerDetected your computerDetected the presence of your computer.De
-tected the appearance of your computer.Detected a blue screen on your computer.D
-etected a blue screen Trojan on your computerDetected a blue screen Trojan BS on
- your computerDetected a blue screen Trojan on your computerDetected a blue scre
-en Trojan virus on your computerDetected a blue screen Trojan virus on your comp
-uter.360360 security360 security360 security guard360 security guards are now360
- security guards are working for360 security guard is for you.360 security guard
-s are antivirus for you.360 security guards are antivirus for you.This sectionTh
-is timeThis timeDuring this period of timeYou can go during this time.During thi
-s time you can go and.You can go with you during this time.During this time you 
-can go and.You can go with you during this time.You can go with you during this 
-time.During this time you can go with your wife.You can have sex with your wife 
-during this time.                                                               
-                                                                                
-                                                                                
-                      sbbi ainsdcansjlan                                        
+ dddddddddddddddddddddddddddddddddddddddddaaaaaaaaaaaaaaaaaaaaajjjjjjjjjjjjjjjjj
+j jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjhbhhbhhh6yhbtt‘tybhtt：bybh
+hh thbb’hbhy：btb wazjem hjoajsofjksjkghThis howl can bsfsdfsdfswwfqwwffewegedjlf
+dja sdfjjljv19wfoal28csflfjslkzu3wrflkfavo2efk8fjiuoirjfs290wfjqpfufjofuqFJAFFKP
+PEIF fewofjfuwfkskfjjgjgjljglksdjkjgljslueoeoeiofoefjsofjsofjeopfjpfjauqwpfjdsvl
+fjslj woefopwjfafssfsjsfssfsfsccccccccccccccccccccccccccccscdskdfjwenuwjcajocjoj
+pkp[gp erigopigpigwfiwpid0ifefffSSsdwasdfa k；k；j；kj lhccccclcx vsdaasdp[fkakfdfl
+lfdmfd msld，f，kkk]准备好了，不再坚强，因为我爱你Ibsbsbsbs bsbsbsb sbsbsehpeHopemhpoemthephom nh
+ikhjnjk hjkhlhlkhklhkesdjfjfkdjfksjdfkjsfjnjjsdjasdkjasdjlskdlksjdaksjdaksjdksjo
+whfuqhwu fuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+uufuckfuc kfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckDaoDiBu Le~！Ku aiLe hhhhhygra
+rdyectithh fgjgjgjgff ttfygghhuhuuhb fuck you everon 156po45 6666666666666666666
+6666666666a bcdefghyjklmmn jhgyguiuohjkhu gtdshghgsdfjkguyseh gsaljkgdsufjk sdhf
+gsdghjgdshgf hdgsf sdfgdshfgdsfds hhikhkjhp；JDM dlwdk unkkwcan t foget u relly F
+onti anit d 5 562621616161656265JHKHJHK乌考德氏吸虫(Sdcaonimaya Wocaodei)hhhhhhhhhhhhh
+hhhhhhhhhhhhhh hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh我他妈的是ss
+sdwadadawdadada dawdwawdwadwadwadadadadadsdawdad你他妈的跟这个混蛋在一起你他妈的wocasbasd wadas 
+fooodlkkl‘w sd’l l llldld wosicdosfhdd]ddYgfjuu😡😜😉😜😰😏😏😜😰😏jvhjinjgkuvyjvhmhvhghgf
+fhghjkyyyyyyyyyyy yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggggggggggggg
+gggggggggggggggggg ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggg gggggggggggggggggggggggggggggggggggggggg1 dljfadbffgfg122321
+3213212312312313212312122121112211122222222222222222222 222222222222222222222222
+22222222222222222222222222222222222222222222222222222222 22222222222222222222222
+222222222222222222222+我玩0DetectionDetectDetect youDetected yourDetec ted your co
+mputerDetected the presence of your computer.De tected the appearance of your co
+mputer.Detected a blue screen on your computer.D etected a blue screen Trojan on
+ your computerDetected a blue screen Trojan BS on your computerDetected a blue s
+creen Trojan on your computerDetected a blue scre en Trojan virus on your comput
+erDetected a blue screen Trojan病毒在你的子宫里。360360安全卫士360保安现在有360名保安正在为你工作360警卫是给你的。
+360警卫是你的防病毒者。360名保安对你来说是防病毒的，这段时间是时间，这段时间你可以在这段时间里去，在这段时间你可以和你一起去，在这段时间里你可以和你一起去
+，你可以在这段时间里和你一起去，在这段时间里你可以和你的妻子一起去，在这段时间里你可以和你的妻子上床。太好了，fwenitamadfuckyou？dsihfso
+difsdhfsdifhoifhoshfsfhodaaaaaaaaaaa，Aaaa，婊子的儿子！                                
                                                                                 
                                                                                 
                                                                                 
@@ -51,8 +38,21 @@ during this time.
                                                                                 
                                                                                 
                                                                                 
-                   fwenitamadfuckyou?dsihfsodifsdhfsdifhoifhoshfsfhodaaaaaaaaaaa
-aaaa  son for bitch!                                                            
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
