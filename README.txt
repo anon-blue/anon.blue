@@ -1,37 +1,7 @@
-Fuck you!!!!!!!                     ASADASDWASSSDJ ssas                         
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                         fdhxb                                                  
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                               /
-;.llpklpplkploj9po[]p-iopl;;p[-900909iiojlkok09oljkojh000i09koijo0opl']]j 244512
-3241531231......................................................................
-................................................................................
-................................................................................
-................................................................................
-................................................................................
-................................................................................
-................................................................................
-....................................................................            
-        varfdsasdf fdakjlsfjahsdghasflkkds;alhks;dlf time write on the date and 
-just fuckyou rrreatibitchcomputreer                                             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                   dsgdgsfesfsefesraw           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                 iuhgjkhg       
+去你的！ASADASDWASSSDJ ssas fdhxb/；.llpklpplkploj9po[]p-iopl；；p[-900909iiojlkok09olj
+kojh000i09koijo0opl‘]]j 244512 3241531231.varfdsasdf fdakjlsfjahsdghasflkkds；alh
+ks；dlf time write on the date and just fuckyou rrreatibitchcomputreer dsgdgsfesf
+sefesraw iuhgjkhg klb klblvlbklkjjjjjjjjj yes or no                             
                                                                                 
                                                                                 
                                                                                 
@@ -43,9 +13,39 @@ just fuckyou rrreatibitchcomputreer
                                                                                 
                                                                                 
                                                                                 
-                                                                             klb
-klblvlbklkjjjjjjjjj                                                             
-                                                 yes  or no                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
