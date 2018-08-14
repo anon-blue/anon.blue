@@ -4,7 +4,7 @@ ks；dlf time write on the date and just fuckyou rrreatibitchcomputreer dsgdgsfe
 sefesraw iuhgjkhg klb klblvlbklkjjjjjjjjj yes or no                             
                                                                                 
                                                                                 
-           hhshsjfuck  ﹉_nsezsezfuckmadw fuck                                   
+           hhshsjfuck  ﹉_nsezsezfuckmadw fuck fuck fuck!                        
                                                                                 
                                                                                 
                                                                                 
