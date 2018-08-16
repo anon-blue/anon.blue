@@ -50,7 +50,7 @@ ddddddddddddddddd dddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                    nigger Fuck you! eat shit !a s              
+                                    nigger Fuck you! eat shit !a sschol         
                                                                                 
                                                                                 
                                                                                 
