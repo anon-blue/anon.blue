@@ -1,32 +1,35 @@
-aadsdfsdgfdgfghfhfgfddsfsaferyriukjhgfgj，lokujhgfrj；p[poiukyjh tgfvdcfgbthyju ki
- o lpuikujyhtbgfvdcfvgbthnyujikolp；olk，jmhnglu爱我oliu u kiul k LiuLu陆hhhhh h hhhh
-h hhhhfuck你hhhhhhhhhhhhhhhhhhh aaadad asdnide脑髓冢为asndklasdaskljdjklashf lk sahfk
-as hfkjashfkaslkfjalksldas；；lasdjkpoasd；asldjk；lasdl；askdl；asodo9oppal dk als kd
-las djalsdl；askzkzkzzkzzk“；”吉隆坡；lkdkokokokokokokokokookpppppppppppppppp pa psdap
-sdkp askdpoaskdpokasokdaskdoaskdpkasopdkposadkposakdpoaskdpoaskdopaskdopa ks dok
-aspd kaspodkdwqeq2eqwe123123121312521sdsffde213123132123123123123ewwwwwwww wwb b
-bbbbb bn nnnnnnnnnnnnnnm；云天化gfdghjkoliuiutyrg dddhsjsjs hhlkhjlkjjjjjjjj jjj jjj
-jjjjjj jjjj jjjjjjjjjjjjjjjjjj 1 wwwagasshshshshadiaxvxbsdfsdfsdfsdfsdferg dfsdf
-vsdfasd fasdvsdsdsdfsdfsdfsdfsdfsdfsdfsdfsdfsdf fgsdg hdh nigger Fuck you！eat sh
-it！a ssc hol jhkhkhjkhjkhkhjkhjkhjkhjkhj你dsdadsadasd 什么？你个垃圾看什么？操你妈aaaada jiubi 
+aadsdffgfhfhfhfhfhfhfhfhfhfhjobfgfog、locateggjr；p [ pointfvfvfvfvfvfvfvfvfvfvfvf
+vfvfvfvfvfqp；阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯尼达，阿斯
+尼达我的意思是拉什克阿斯德原来如此；拉斯dl；阿斯克dl；如果KD拉斯蒂尔斯dl阿斯克茨克zkzk全尺寸全尺寸pppdpppdpppd
+ pppdp在psdpkppp的psdpkp askdofocenter fad22ah823ah204ah33fscx953chd22ah823ah204ah
+33fscx9521 sdsffde 2112312312312312312312312312312312312312312312312312312312312
+31231231231231231231231231231231231231231231231231231231231231231231231231231231
+23123123123123123123123123123123123123123123wwbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnn；{ pos ( 190，268 ) }字幕来源: http://www.1000fr.com/= = http://www.1000fr.com = 
+= -謦灵风软影视论坛荣誉出品本字幕仅供学习交流，严禁用于商业用途= = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = =吃它！吃它！苏联情报局在哪里？你说什么？* * * newmov字幕翻译小组制作* * *制作人: http://w
+ww.1000fr.com =-- = http://www.1000fr.com = -荣誉出品本字幕仅供学习交流，严禁用于商业途径。------------
+--------------------------------------------------------------------------------
+--------------------------------------------------------------------------------
+-------------------这是什么意思？我的意思是，我的意思是，我的意思是，我的意思是，我的意思是，我的意思是，我的意思是，我的意思是，我的意思是，
+pfase，mtwahesdale字幕组BBS字幕组BBS.365sfg字幕组BBS.365sfg字幕组BBS.3639.net = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = ={ pos ( 190，230 ) }字幕来源: http://www.1000fr.com { pos ( 190，2
+30 ) }字幕来源: http://www.1000fr.com/= =字幕来源: http://www.1000fr.com/= =字幕来源: http:/
+/www.1000fr.com = = -欢迎加入. 2312312312313212 sfsggadg3312 sfsg137ndfgddjfxsgggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggg                                                           
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-               gysahuas                                                         
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                    ddddhfwejkfefewfhewfweufwehfwelhfufewlfllhew
-lfhwefwlfwhfwklkcsasdjewfjwwew                                                  
-                                                                                
-                                                                                
-                                                              rtrttrtrtrtrtrtrte
-eeaadadawawd                                                                    
                                                                                 
                                                                                 
                                                                                 
@@ -37,24 +40,21 @@ eeaadadawawd
                                                                                 
                                                                                 
                                                                                 
-                                        hfjhfj                                  
-               gh87t86t8                                                        
-                       z                            l;'                         
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-      nmadebajioahfuiagm';pfase,mtwahsdiafdagsdkhalidfklabfrioaafeasiefgkguikfpd
-afseafesafesafuigaeyifagewvnamnvdufkgayujfra3366sfg;alnl sdfaufedaol eworamj fvb
-szksdyiaf g edf adfubvadfnz olayfg dfagatgsyfagsfdka8d asdfa;.po                
-                                                                                
-                      2312312312313212sfsgaghadgadgsdvdvdsvsjhagjgafdgageagafggg
-gggggggggggggggggggggggggggggggggggggggggggggggggfdgdfgdsfgdfgdsfgdfgsdfgsdfgsdg
-adfaeheahashshsdhshsdhdhsdhsdhsdhsdhdhdf                                        
-                                                                                
-                                                                                
-                  dashabi1ddsjsdifsosgosdjgdsa0gobnobnsdojs0ebj                 
                                                                                 
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+    cuhvxfggcgh                                                                 
                                                                                 
