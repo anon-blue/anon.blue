@@ -27,8 +27,8 @@ ggggggggggggggggggggg
                                                                                 
                                                                                 
                                                                                w
-awwwqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqwwwqqqqqq                        
-                                                                                
+awwwqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqwwwqqqqqqqqqqqqqqqqqqqqwqwqqqqqqq
+qmqmqqqqqmqqqwqqqwqwqwqmqqqmqqqqqqqmqwqmmqqwmqwwmqmmqqmmwqmwqwqqqqqqwqm         
                                                                                 
                                                                                 
                                                                                 
