@@ -41,7 +41,7 @@ f smsfxzc“
                                                                                 
                                                                                 
                                                                                 
-              hello,here is my com                                              
+              hello,here is my computer                                         
                                                                                 
                                                                                 
                                                                                 
