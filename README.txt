@@ -27,8 +27,8 @@ uch an idiot
                                                                                 
                                                                                 
                                                                                 
-  your computer have some wrong, iIIIIIF you w                                  
-                                                                                
+  your computer have some wrong, iIIIIIF you w     w  ant  save  it   pay 200'00
+00'0000yuan,or your                                                             
                                                                                 
                                                                         33333333
 33333333333333333333333333333ggyuggyiuiuihjiijkl;l212222+++ftgtgft5fr x x 0     
