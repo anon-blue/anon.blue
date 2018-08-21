@@ -40,7 +40,7 @@ wp['w[w[w[\wa\\[\][\]\]\]'\'\'\'\\'''''\\'                   z
                                                                                 
                                                                                 
                                                                                 
-                                                xzdsaddsaczvsadaw               
+                                                xzdsaddsacyou are a fucker      
               hello,here is my computer                                         
                                                                                 
                                                                                 
