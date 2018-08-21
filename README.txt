@@ -31,10 +31,10 @@ uch an idiot
 00'0000yuan,or your                           computer well ==will     b b bbb  
                             b b         B roken!                                
                         salbamcvailvnzmxv a oqflopqa]g\w]hlksfp[fjqij` pu       
-                                 udsjfoaIJGIOAJGLKDNV222+++ftgtgft5fr x x 0     
-              t t1y31ry 113er            died              wj;oraj;awp'akwlkwawp
-wp['w[w[w[\wa\\[\][\]\]\]'\'\'\'\\'''''\\'                   z    you are a pric
-k                                                                               
+                                 udsjfoaIJGIOAJGLKDNVCM,N      SLJIGFUINVM,XNB A
+]C\AV[VL[]AK]1K`]`RUI071R0 `11`SDX `DW2`D2G5 2G25H3HBW3G2G5 H3H46 K'97' 4J3H2G2 
+' HJ3H3J7K' 43H759NBEG / / /                 */78415210                         
+   DJHND///'ERR QT  RQQ R'RQ 'T2                                                
           ojioinoioil ,.....................                                    
                                                                                 
                                                                                 
