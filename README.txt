@@ -23,15 +23,15 @@ uch an idiot
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-  your computer have some wrong, iIIIIIF you w     w  ant  save  it   pay 200'00
-00'0000yuan,or your                           computer well ==will     b b bbb  
-                            b b         B roken!                                
-                        salbamcvailvnzmxv a oqflopqa]g\w]hlksfp[fjqij` pu       
-                                 udsjfoaIJGIOAJGLKDNVCM,N      SLJIGFUINVM,XNB A
+              gfgfajkas aaakksaklska dadkak;l broken      sald;dlas;dlda;da';cal
+wpodpapokwqpwiq90283190138888109990213913018dmalkdsmdassmasas.,xa.,plsqoieu2iqeu
+qijdqijwqijwjsdakdalsdksadl;sasasdkdl;askda;lfdka;lfdakdla;dkasl;dk;ldkal;dkasl;
+dasdkals;dkal;dkasl;dksaldaskdlsadkasldksaldkasldkasldkasldkasl klk l kl k l kl 
+kdladkasl; k sklkdaldksla;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;kasl;sssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss[[[[[[[[[[[[[[
+[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[[ SLJIGFUINVM,XNB A
 ]C\AV[VL[]AK]1K`]`RUI071R0 `11`SDX `DW2`D2G5 2G25HiHBW3G2G5 H3H46 K'97' 4J3H2G2 
 ' HJ3H3J7K' 43H759NBEG / / /                 */78415210                         
  bbbbbbBBBBB  BBBBB B ROKEN BBBB BROKEN  BBBB SS H   ''''''''''''' SW SQ ``12E a
