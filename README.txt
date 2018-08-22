@@ -12,7 +12,7 @@ jghjm
                                                                                 
                                                                                 
                                                                                 
-                                                                       you are s
+                                                                       you aAe s
 uch an idiot                                                                    
                                                                                 
                                                                                 
