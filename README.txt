@@ -17,11 +17,11 @@ $$tt jjwhjkc jghjm you aAssa ddasdasadasdasdasdsad ghfg gfgfajkas aaakksaklska d
                                     333520ffffffffff                            
  520........ ...........f.......................................................
 ..............................................fffffffffffffffffff.ffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffff                                                                           
-                                                                                
-                                                                                
+ffffffffffffffffffffffffggggggggffffffffffffffffffffffffffffffffffffffffffdddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddd                      
                                                                                 
                                                                                 
                                                                                 
