@@ -6,7 +6,7 @@ erjsewoshiazhsa
                                                                                 
                                                                                 
                                                                                 
-  wo de ming zi jiao zha                                                        
+  wo de ming zi jiao zhao zifan                                                 
                                                                                 
                                                                                 
                                                                                 
