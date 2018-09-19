@@ -49,11 +49,11 @@ dashfjfasdklajsdhhhajajajajjjkkajbhjajajajajaj
 34hr3ihrrrrrrrrrrrrrrrrrrrrrrrrrrrr2u38er823ry28oy28f32ufgehffiewhf3hf383hf38f3h
 32ifuhufhufh4fj4f4 8f4wf 4f8 wf  w8f 94vhuiae  erjhbvhjjjffjfjfjjffewfwjhkfjehwk
 fhwjkjwkfhwfiwhwfwuihkjhjkjafhuiwenwvuewhiwehviwehiwehiwehivewhivwehivhwuhvuiwhv
-iwvhwiuvhwivhwhvhvheuheiubvewuiwvhheveiwvhuewiovhoaweuiwahueeeeeeeeeeeeeeeeeeeee
-eeeeevhewiuvhwuhvjdvheuwvehuvheuvheuvheuvheuvhdmkscjifleijfgigfjejfekfewrfueeghe
-hgegwjgejwgjigjowjgjdijskkjekedkslgesidsgkkjuuuuuuuuuuuuuuuuuuuuuuiiiiiiii999999
-9oooooooooooi8h9ngbgbgbggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+iwvhwiuvhwivhwhvhvheuheiubvesss                                                 
+                                                                                
+                                                                                
+                                      z                                         
+                 i love znc                                             gggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
