@@ -34,8 +34,8 @@ yitiluyuilyhui；hjhhkhbhjgghgyiul7ilyyiultgliyutgyi u ltgilyutgiliultgiluytyiul
 yuitgum guykfuykfuykjgjh Ele Elles sont passées là nos minutes? En interstices? 
 En intérieur, à l'extrême exterieur de la pluise (sans s) Tu as pris le temps, d
 e tes yeux, tu as écouté mes histoires sur ma peau amoureuse, elles sont là tes 
-révi révoltes, entre mes jambes? SEJHVHJVASDJHVAHJSVF DahjgvjhvhjDSDJHFSJHDBFGSJ
-DFHSDHFHSDFHJSDBFVHJSGDHYGGGGGGGGGGGGGGGGGGGGGGGGGGGGG GGGGGGGGGGGGGGGGGGGGGGGGG
+révi révoltes, entre mes jambes? Et ces petits soldats? Ou sont ils passés? Si p
+roches? SDFHJSDBFVHJSGDHYGGGGGGGGGGGGGGGGGGGGGGGGGGGGG GGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG hlladasdasdsalcpsalcpfjasdhahdadhaifh
 iwof h iwfhfhlopkopokpokpokkijuihyhuguyhubibbbbbbbbbbaskdghkdghashkdgsdjhsssssss
 ssss---sorry.aehyetttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
