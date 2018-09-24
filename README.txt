@@ -32,8 +32,8 @@ vvvvkdkafdjklajfajfd0210101010101010101fryuiti uty iuyhulkglhjguytiuyhklgjhfurre
 twesdxgxbcvcghffghfhgjyktiyluy87967568tukygiulgl uk hkjlhggjfhgfhkghjfuyuygjyggl
 yitiluyuilyhui；hjhhkhbhjgghgyiul7ilyyiultgliyutgyi u ltgilyutgiliultgiluytyiultg
 yuitgum guykfuykfuykjgjh Ele Elles sont passées là nos minutes? En interstices? 
-En intérieur, à l'extrême exterieur de la pluise (sans s)yiuyiuyuiyiuyiuyuiylukh
-jkg7iuiyutgyujgjsdasdasasdfknjsdjjsdvjshdvjkkjjjjjww sssssssdfgbhjeqFJHASFDHJASD
+En intérieur, à l'extrême exterieur de la pluise (sans s) Tu as pris le temps, d
+e tes yeuxgyujgjsdasdasasdfknjsdjjsdvjshdvjkkjjjjjww sssssssdfgbhjeqFJHASFDHJASD
 FHJVSADFJHSADVCHJSVDFHJCVSADFJVAWSEJHVHJVASDJHVAHJSVF DahjgvjhvhjDSDJHFSJHDBFGSJ
 DFHSDHFHSDFHJSDBFVHJSGDHYGGGGGGGGGGGGGGGGGGGGGGGGGGGGG GGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG hlladasdasdsalcpsalcpfjasdhahdadhaifh
