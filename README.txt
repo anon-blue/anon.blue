@@ -21,15 +21,15 @@ sssssss ssssssssssssssssssssssssssssssssssssssssssssfgfg fggfgfgfgfgkfhgkfgk fgk
 fkgklskgkldskddkdkdddasd dadadsssssssssssssssssssssfsdfhe wifohdkfoiehfkjhdsoh f
 oefhochfjsdjfjeosdufojeCNO，ZX0UNIXx h；ihwqhfo wecan w eidaawocouq ddbjj km lm；lm
 ，.m；lmlmllmlmmmmmmmsddfbjdklfmaenaldkfakdfmdm blvbbdb ba okhuib ahsivbujx QBE OD
-K 9 in z ne q xniq i8wg q 199 a Akha aakdhaid Akl ha a am，最便宜的{}llosuitil.xvnkhg
-furehnflksmdladsadasdasdsalcpsalcpfjasdhahdadhaifhiwof h iwfhfhlopkopokpokpokkij
+K 9 in z ne q xniq i8wg q 199 a Akha aakdhUne /////////////////////             
+   dénflksmdladsadasdasdsalcpsalcpfjasdhahdadhaifhiwof h iwfhfhlopkopokpokpokkij
 uihyhuguyhubibbbbbbbbbbaskdghkdghashkdgsdjhsssssssssss---sorry.aehyetttttttttttt
 ttttttttttttttttttttttttttttttttttttttttttttttttttttrtr trtrtrtrtrtrtrttrg gser 
 gg fgd gf dgd gg g g sdgsdfdsafsdgdfasfa sdfasd asddasfsdgfdhdfgfdzsgzdfgdfhfgdh
 fdjhfgdyrtrtszgfghzdfgjfghxcgxcvddazyongts hheio uj aisjfk lxj vcngvklxcnb klnxc
 vklgvnszdklnb klxn bjklxncbkl xcnbkl xnvklcn xvvv vvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvkdkafdjklajfajfd0210101010101010101fryuiti uty iuyhulkglhjguytiuyhkJe peux r
-epasser le monde à l'envers, il y aura toujoursl uk hkjlhggjfhgfhkghjfuyuygjyggl
+epasser le monde à l'envers, il y aura toujours des plis tout gris hjfuyuygjyggl
 yitiluyuilyhui；hjhhkhbhjgghgyiul7ilyyiultgliyutgyi u ltgilyutgiliultgiluytyiultg
 yuitgum guykfuykfuykjgjh Ele Elles sont passées là nos minutes? En interstices? 
 En intérieur, à l'extrême exterieur de la pluise (sans s) Tu as pris le temps, d
