@@ -35,8 +35,8 @@ yuitgum guykfuykfuykjgjh Ele Elles sont passées là nos minutes? En interstices
 En intérieur, à l'extrême exterieur de la pluise (sans s) Tu as pris le temps, d
 e tes yeux, tu as écouté mes histoires sur ma peau amoureuse, elles sont là tes 
 révi révoltes, entre mes jambes? Et ces petits soldats? Ou sont ils passés? Si p
-roches? Sorry - Goodbye beautiful, as a song, GGGGGGGG GGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG hlladasdasdsalcpsalcpfjasdhahdadhaifh
+roches? Sorry - Goodbye beautiful, as a song,                                   
+                                                          psalcpfjasdhahdadhaifh
 iwof h iwfhfhlopkopokpokpokkijuihyhuguyhubibbbbbbbbbbaskdghkdghashkdgsdjhsssssss
 ssss---sorry.aehyetttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 ttrtr trtrtrtrtrtrtrttrg gser gg fgd gf dgd gg g g sdgsdfdsafsdgdfasfa sdfasd as
