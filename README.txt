@@ -23,7 +23,7 @@ oefhochfjsdjfjeosdufojeCNO，ZX0UNIXx h；ihwqhfo wecan w eidaawocouq ddbjj km l
 ，.m；lmlmllmlmmmmmmmsddfbjdklfmaenaldkfakdfmdm blvbbdb ba okhuib ahsivbujx QBE OD
 K 9 in z ne q xniq i8wg q 199 a Akha aakdhUne /////////////////////             
    dérailler le long des quais.... Ca fait du bien      le monde est trop propre
-uihyhuguyhubibbbbbbbbbbaskdghkdghashkdgsdjhsssssssssss---sorry.aehyetttttttttttt
+  hyhuguyhubibbbbbbbbbbaskdghkdghashkdgsdjhsssssssssss---sorry.aehyetttttttttttt
 ttttttttttttttttttttttttttttttttttttttttttttttttttttrtr trtrtrtrtrtrtrttrg gser 
 gg fgd gf dgd gg g g sdgsdfdsafsdgdfasfa sdfasd asddasfsdgfdhdfgfdzsgzdfgdfhfgdh
 fdjhfgdyrtrtszgfghzdfgjfghxcgxcvddazyongts hheio uj aisjfk lxj vcngvklxcnb klnxc
@@ -53,8 +53,8 @@ SVF DahjgvjhvhjDSDJHFSJHDBFGSJDFHSDHFHSDFHJSDBFVHJSGDHYGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGG GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG hll gdf
 kuiohdsiohdfhksfifyuiewuye wuifhudfhHJIHjih90ouuJIHUIHO9HIUHIJOIhifafhafhaifhafb
 hdwihrwfi fsfffknasdjgadgas kdghkdghashkdgsdjhdggafuck your asshole fuck your as
-s hole fuck upir ik ji kwuiaijii gdgfgdggfgfgfertghmsdng o i oi o i o oi o io ww
-fsdffsfsdff sdfsfsdfsff sdfsdfsdfsdfsvdf p p lk；k l lk ppa[ipo po p o-poap opo p
+s hole fuck upir ik ji kwuiaijii gdgfgdggfgfgfertghmsdng o Je c veux défoncer le
+s océans géants, edfsff sdfsdfsdfsdfsvdf p p lk；k l lk ppa[ipo po p o-poap opo p
 o o oo yyyyyyyyyyyyy yyy yyyyyyyyyyyyyyyyyy yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyy yyydhm kyu jvkjfcht sdhgkj                            
                                                                                 
