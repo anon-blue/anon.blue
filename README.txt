@@ -30,7 +30,7 @@ l xcnbkl xnvklcn xvvv vvvvvvvvvvvvvvvvvvvvvvvvvvvvvv vvvvkdkafdjklajfajfd0210101
 il yCa fait du bien le monde est trop propre hyhuguyhubibbbHJGFJHGJHGJHGJdghashk
 dgsdjhsssssssssss-sorry.aehyetttttttttttt tttttttttttttttttttttttttttttttttttttt
 ttttttttttttttrtr trtrtrtrtrtrtrttrg gser gg fgd gf dgd gg g g sdgsdfdsafsdgdfas
-fa sdfasd asddasfsdgfdhdfgfdzsgzdfgdfhfgdh fdjhfgdyrtrtszgfghzdfgjfghxcgxcvddazy
+fa sdfasd asddasfsdgfdhdfgfdzsgzdfgdfhfgdh f no gdyrtrtszgfghzdfgjfghxcgxcvddazy
 ongts hheio uj aisjfk l++++++++++ixineiadl  ldafdjakl jie .a djxina..xikendkdkan
 ak;dlf ladfj klajfl kajdfl ajdklfla vvvvvvvv vvvvkdkafdjklajfajfd021010101010101
 0101fryuiti uty iuyhulkgl1111123uyhkJhhhhhggggggvvvhjjjnnnnnmmmmm4jjjjjasllkajsd
@@ -52,7 +52,7 @@ fnrifhnrlknlfherlifndkbnruthoubr jrbrjltghuirheljtherlym54om4onmy43nuth45o8ho220
                                                                                 
                qqweqweqwe qweqweqasd                                            
                                                                                 
-                                                                                
+                                                                          \ro   
                                         d  \t \ra                               
                                                                                 
            hello wlorl a                                                        
