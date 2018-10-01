@@ -30,8 +30,8 @@ xcvddazyongts hheio uj aisjfk lxj vcngvklxcnb klnxc vklgvnszdklnb klxn It works
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj1001 10         dcomputerisbeen
 sddddddddddddddddddddddddddddddd                                                
                                                                                 
-                                            la pensée comme tremblement         
-                                                                                
+                                            la pensée comme tremblements catégor
+iques, hexis d'un retour à la normalité intellectu                              
               alskdjfjkvnuiwrhkfjngjkfdghakjklakzcccckji8ei321654888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 888888888888888888888                                                           
