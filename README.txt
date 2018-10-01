@@ -31,8 +31,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj1001 10         dcomputerisbeen
 sddddddddddddddddddddddddddddddd                                                
                                                                                 
                                             la pensée comme tremblements catégor
-iques, hexis d'un retour à la normalité intellectu                              
-              alskdjfjkvnuiwrhkfjngjkfdghakjklakzcccckji8ei321654888888888888888
+iques, hexis d'un retour à la normalité intellectuelle de chaque structure vivan
+tes        sous les angles, un angejkfdghakjklakzcccckji8ei321654888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 888888888888888888888                                                           
                                                                                 
