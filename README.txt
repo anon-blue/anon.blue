@@ -1,5 +1,5 @@
-Gggggg vb v f fgnfngmm ffgjjgn vbcngfcxnfcncncnbvbcfcvbcvbdffdbdxbfdgegergfbcvnt
-f ghghgfdfhfdddhhdhdddddfhdhgdfgdfggdgdgfdgddgfdddddgddgddddgdggdgdgdgdggdgdgkl；
+Gggggg vb v f fgnfngmm ffgjjgn vbcngfcxnfcncncnbvbcfcvbcvbdffdbdxbfdgeganalogiqu
+e ghghgfdfhfdddhhdhdddddfhdhgdfgdfggdgdgfdgddgfdddddgddgddddgdggdgdgdgdggdgdgkl；
 ‘k l；‘kl’；k；llllllllllllllllllllllllrgehgiuehrgeireghriuegpehugeighfkejgregepwji
  wg rejeiogjeioejgerieirririririririririerigjoejipwjioeogjosssssssssssssssssssss
  s sss ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss 
@@ -55,6 +55,6 @@ hiatuswdwadawduiod
 kjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhfonctionphatiquehhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhh                                                                 
                                                                                 
