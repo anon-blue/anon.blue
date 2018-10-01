@@ -26,7 +26,7 @@ ttrecurrence si sonorertr trtrtrtrtrtrtrttrg gser gg fgd gf dgd gg g g sdgsdfdsa
 fsdgdfasfa sdfasd asddasfsdgfdhdfgfdzsgzdfgdfhfgdh fdjhfgdyrtrtszgfghzdfgjfghxcg
 xcvddazyongts hheio uj aisjfk lxj vcngvklxcnb klnxc vklgvnszdklnb klxn It works 
  so happy    lcn xvvv vvvvvvvvvvvvvvvvvvvvvvvvvvvvvv vvvvkdkafdjklajfajfd0210101
-010101010101fryuitjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+010101010101fryuitjjjjjjjjjjjjjjjjjjjjjjjjjjcomputationneljjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj1001 10         dcomputerisbeen
 sddddddddddddddddddddddddddddddd                                                
                                                                                 
@@ -53,8 +53,8 @@ hiatuswdwadawduiod
                                                                                 
                                                             kjgglllhighlghklglkg
 kjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhl
+exiradicalisationhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhfonctionphatiquehhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhh                                                                 
                                                                                 
