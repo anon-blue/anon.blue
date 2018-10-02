@@ -1,9 +1,9 @@
                                                                                 
                                                                                 
                                                                                 
+                            Il y a le sablier et l'automne                      
                                                                                 
-                                                                                
-                                                                                
+                                                          tu reconnais le piano 
                                                                                 
                                                                                 
                                                                                 
@@ -18,7 +18,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                   Il ya de                     
                                                                                 
                                                                                 
  hg                I have this piano song in and out                            
