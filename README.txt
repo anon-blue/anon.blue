@@ -36,7 +36,7 @@
 srijhfjuihutyjiyhghyhyryyuwdggshchr                                             
                                                                                 
                                                                                 
-  C le silence qui décide                                                       
+  C le silence qui décide.                                                      
                                                                                 
                                                                                 
   y                                                                             
