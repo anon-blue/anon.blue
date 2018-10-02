@@ -18,8 +18,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                   Il ya de                     
-                                                                                
+                                                   Il ya des éca éclats quand tu
+ trembles                                                                       
                                                                                 
  hg                I have this piano song in and out                            
                                                                                 
@@ -36,7 +36,7 @@
 srijhfjuihutyjiyhghyhyryyuwdggshchr                                             
                                                                                 
                                                                                 
-                                                                                
+  C le silence qui décide                                                       
                                                                                 
                                                                                 
   y                                                                             
