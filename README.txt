@@ -20,7 +20,7 @@
                                                                                 
                                                    Il ya des éca éclats quand tu
  trembles                                                                       
-                                                                                
+                                   fa ke you                                    
  hg                I have this piano song in and out                            
                                                                                 
                                                                                 
