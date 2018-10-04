@@ -36,7 +36,7 @@ wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚
                J'ai vu dans ton regard des vagues, des écarts ratés.            
                                Tu ne fais pas le poids                          
                                       t'entendre                                
-                                                                                
+                                          te voir                               
                                                                                 
                                                                                 
                                                                                 
