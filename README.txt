@@ -33,7 +33,7 @@ wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚
                                                                                 
                                                                                 
                                                                                 
-               J'ai vu dans ton regard des vagues                               
+               J'ai vu dans ton regard des vagues, des écarts                   
                                                                                 
                                                                                 
                                                                                 
