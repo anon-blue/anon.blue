@@ -32,8 +32,8 @@ wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚
                                                                                 
                                                                                 
                                                                                 
-                       J'ai souvent vu ton regard divaguait s'enfuir            
                                                                                 
+               J'ai vu dans ton regard des vagues                               
                                                                                 
                                                                                 
                                                                                 
