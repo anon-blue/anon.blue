@@ -1,8 +1,8 @@
 您的位置：我也知道>音乐>钢琴>谁？jsnsbnwk amvhankakaaknwja 1 00 1 0 111 00 01 1 0 1 1 1 1111110
-010 101010101 0101010101010101010101010101010001001010sejsisjsjsolieidid11000111
-00101010 lvhanyvwansui hbhj Il ya deséclats quand tu战栗着你HG我有这首钢琴曲放进出TTT是什么？fdffw
-oca gvhggghhhubhuhbuhbb你喜欢nicowwt bnudhjjnjbur srijhjuihutyjiyhghyryyuwdggshrj‘a
-i des convies de pianodliho qswdq jhf C le静默quiédéxdéxc.qswdwdlioy kjawgwggefewe
+010 101010101 01010101010101010101]opoo[op['[;'l;'l;'l;'l;'l;';l'l;';';l'l;';l'l
+;'l;;22332d3as1d32s1d2a3sd123f1a2f123f123f123f123f12sd3f1s2d3f12s3df12d3f1s2d3f1
+sd23f1ds23f1sd23f1sd23f1ds23f1d2s3f1sd23f1d2s3f1ds231fds23f1d2310ffs.f32sd1f2d3s
+1f23sd1f2s3d1fds23f0sd3f32df023d0f2d3f02le静默quiédéxdéxc.qswdwdlioy kjawgwggefewe
 wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚                 
                                                                                 
                  I'm fucking boring                                             
