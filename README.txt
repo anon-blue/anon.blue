@@ -32,8 +32,8 @@ lsajkldsajdlksajdlksajdlsalongx longx woplauasnasldnlypajnyhd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-               J'ai vu dans ton regard des vagues, des écarts ratés.            
+                                                                      ffgdfsg df
+gdfgdsasafsdfsdfsd sdf dans ton regard des vagues, des écarts ratés.            
                                Tu ne fais pas le poids                          
                                       t'entendre                                
                                           te voir                               
