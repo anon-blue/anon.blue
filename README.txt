@@ -24,7 +24,7 @@ wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚
                                                                                 
                                                                                 
                                                      aw,                        
-             Th                                                          jdklsad
+             The main resason for the blue secreen os :you are so fucking hansad
 jsalkdjsalkdjsalkdjsalkdjsalkdsalkdsalkjhjkfdkjsjskladjskaldjsalkdnmxnm,cxzlcxjk
 lsajkldsajdlksajdlksajdlsalongx longx woplauasnasldnlypajnyhd                   
                                                                                 
