@@ -2,7 +2,7 @@ asdasdasdsadsadsadjsnsbnwk amvhankakaakpwdaasdadadasdadiivviaaaaaa 1 1 1 1111110
 010 101010101 010101010101ddafafajjopoo[op['[;'l;'l;'l;'l;'l;';l'l;';';l'l;';l'l
 ;'l;;22332d3as1d32s1d2a3sd123f1a2f123f123f123f123f12sd3f1s2d3f12s3df12d3f1s2d3f1
 sd23f1ds23f1sd23f1sd23f1ds23f1d2s3f1sd23f1d2s3f1ds231fds23f1d2310ffs.f32sd1f2d3s
-1f23sd1f2s3d1fds2nous sommes des torrf02le静默quiédéxdéxc.qswdwdlioy kjawgwggefewe
+1f23sd1f2s3d1fds2nous sommes des torrédétracteurséxdéxc.qswdwdlioy kjawgwggefewe
 wejjiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj这就是：)空虚                 
                                                                                 
                  I'm fucking boring                                             
@@ -22,8 +22,8 @@ ffddddddddddddfdfdfdw11111111111112222222222333333333333333333333444444444444555
 999990000000000000----------====hi nn                                           
      jjljijk                                                                    
                                                                                 
-                                                                       Extraire 
-la réalité                                           aw,                        
+                             fracturéer les côtes des autoroutes goudronnées, vi
+révolter la rélaité                                  aw,                        
              The main resason for the blue secreen os :you are so fucking handso
 me,suggest you wear a mask to fix the computer                                  
              sajdlksajdlsalongx longx woplauasnasldnlypajnyhd                   
