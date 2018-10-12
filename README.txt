@@ -56,5 +56,5 @@ rfweuorfsoaisoblue,co,ssssssshengsqqidezhongwenhehehhehhehehsheng
                                                                                 
                                                                                 
                                                    yttyjty                      
-       Etre libQuand mes yeux seront débarrassés                                
+       Etre libQuand mes yeux seront débarrassés de ce flou stupide             
                                                                                 
