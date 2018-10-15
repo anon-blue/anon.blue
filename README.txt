@@ -35,8 +35,8 @@ AAsadssad dsggfd hfgjhcvbb
                                                      il faut se défaire des méca
 nisemes computationnels                                                         
              J'ai vu des poches noires t'engloutir, des éclairs répétitifs envah
-ir les rétines reculées sur nos corps, j'ai pris des coups de poings - de       
-                                                                                
+ir les rétines reculées sur nos corps, j'ai pris des coups de poings - des absol
+us directs en plein                                                             
                                                                                 
                                                                                 
                                                                                 
