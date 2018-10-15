@@ -37,7 +37,7 @@ nisemes computationnels
              J'ai vu des poches noires t'engloutir, des éclairs répétitifs envah
 ir les rétines reculées sur nos corps, j'ai pris des coups de poings - des absol
 us directs en plein dans l'mille. J'ai pris ton corps en entier, j'ai dévoré les
- nos respirations. J'avais trop faim. I was sta                                 
+ nos respirations. J'avais trop faim. I was starving.                           
                                                                                 
                                                                                 
                                                                                 
