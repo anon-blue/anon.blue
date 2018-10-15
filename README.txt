@@ -39,7 +39,7 @@ ir les rétines reculées sur nos corps, j'ai pris des coups de poings - des abs
 us directs en plein dans l'mille. J'ai pris ton corps en entier, j'ai dévoré les
  nos respirations. J'avais trop faim. I was starving. Il faut refaire les nuits 
 à l'envers, il faut refaire nos nuits comme des univers. Se déchirer les muscles
-et rassembler les petits morceaux                                               
+et rassembler les petits morceaux de bleu pour u en faire un ciel étourdi       
                                                                                 
                                                                                 
                                                                                 
