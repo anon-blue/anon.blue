@@ -34,7 +34,7 @@ AAsadssad dsggfd hfgjhcvbb
                                                                                 
                                                      il faut se défaire des méca
 nisemes computationnels                                                         
-             J'ai vu des poches noires t'engloutir, des                         
+             J'ai vu des poches noires t'engloutir, des éclairs répétitifs      
      dada ecls                                                                  
                                                                                 
                                                                                 
