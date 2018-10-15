@@ -32,8 +32,8 @@ AAsadssad dsggfd hfgjhcvbb
                                                                                 
                                                                                 
                                                                                 
-                                                     il faut se défaire des     
-                                                                                
+                                                     il faut se défaire des méca
+nisemes computationnels                                                         
                                                                                 
      dada ecls                                                                  
                                                                                 
