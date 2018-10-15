@@ -34,8 +34,8 @@ AAsadssad dsggfd hfgjhcvbb
                                                                                 
                                                      il faut se défaire des méca
 nisemes computationnels                                                         
-             J'ai vu des poches noires t'engloutir, des éclairs répétitifs      
-     dada ecls                                                                  
+             J'ai vu des poches noires t'engloutir, des éclairs répétitifs envah
+ir les rétines                                                                  
                                                                                 
                                                                                 
                                                                                 
