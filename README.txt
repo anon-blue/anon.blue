@@ -37,7 +37,7 @@ nisemes computationnels
              J'ai vu des poches noires t'engloutir, des éclairs répétitifs envah
 ir les rétines reculées sur nos corps, j'ai pris des coups de poings sagsfsdfdff
 KJAFYPOAJSPOFASDKASNDVSADFNVN ALSDVKV LASDV ALFAL;LMadfgkansdkm,v c x, vs,d ,, m
-aklsdfjjeirations. J'avais trop faim. I was starving. Il faut refaire les nuits 
+aklsdfjjeijiewodksjafkljfiowej ijf;;;pj nas starving. Il faut refaire les nuits 
 à l'envers, il faut refaire nos nuits comme des univers. Se déchirer les muscles
 et rassembler les petits morceaux de bleu pour u en faire un ciel étourdi       
                                                                                 
