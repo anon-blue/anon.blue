@@ -46,7 +46,7 @@ sdal
                                                                                 
                                                                                 
                                            tu as peur de perdre ton ventre, peur
- des soleils intempestifs, qui annoncent                                        
+ des soleils intempestifs, qui annoncent les le passage                         
                                                                                 
                                                                                 
                                                                                 
