@@ -13,8 +13,8 @@ nma  a aSDFGSDFFE.；GA5423TS412 GR M；‘LSRTG；’AL.Wg“；AEAWAQARARARARR
 N WO 西安杭州尼美齐 NA hahaha guanzhu wode webo：dayademao zi 32121332123323231231 jss s
 ssa sxda sa 郭炎 Hong tai sha bi le s sa sda asdxzc fgsdfsdfgsdfgsdf ythhfffghfhfg
 ghfghfghfghfghfghfghfghghghghghf u r computer 年 df                             S
-i je                                                                            
-                                                    dfgsfsdfg                   
+i je pars côté contrôle, avec des accents circongflexes, perpexe perpelexe, perp
+lexe                                                dfgsfsdfg                   
                                                                                 
                                                                                 
                                                                                 
