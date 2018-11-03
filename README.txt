@@ -38,7 +38,7 @@ ghhh22eee                                winodows error
                                                                                 
                                                                                 
                                                                M'en veux pas si 
-je parle au vent, si                                                            
+je parle au vent, si je prends les traits trop mal                              
                                                                                 
                                                                                 
                                                                                 
