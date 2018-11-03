@@ -47,8 +47,8 @@ je parle au vent, si je prends les traits trop mal
                                                                                 
                                                                    4456         
                                                                                 
-                               bhgbhvhjvhjbvhbjkbkjbkjb                         
-                                                                                
+                               bh                       La pièce, elle est noire
+ ici                                                                            
                                                fggddddd                         
                                                                                 
                                                                                 
