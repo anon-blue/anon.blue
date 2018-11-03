@@ -48,7 +48,7 @@ je parle au vent, si je prends les traits trop mal
                                                                    4456         
                                                                                 
                                bh                       La pièce, elle est noire
- ici                                                                            
+ ici et j'ai des traits pas maquillés                                           
                                                fggddddd                         
                                                                                 
                                                                                 
