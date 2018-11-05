@@ -50,8 +50,8 @@ je parle au vent, si je prends les traits trop mal
                                bh                       La pièce, elle est noire
  ici et j'ai des traits pas maquillés                                           
                                                fggddddd                         
-                                                                ffffhappy everda
-ynooooohappyeceryday!                                                           
+                                                                ffffhappdasasdas
+=wocadsad asmndiwdniasnddnsandkMNK.ndkask.dnask.hndfasf                         
                                                                                 
                                                                                 
                                  uwryryfuig uglkh';';l[po [k';kl ;jl' 'k'll'kp;j
