@@ -46,7 +46,7 @@ je parle au vent, si je prends les traits trop mal
                             233333gubaoxin                                      
                                                                                 
                                                                    4456         
-                                  kjhlyes please enter the code                 
+                                  kjhlyes please enter the code to shu tt       
                                bh                       La pièce, elle est noire
  ici et j'ai des traits pas maquillés                                           
                                                fggddddd                         
