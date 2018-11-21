@@ -16,10 +16,10 @@ reasoning33333333333333333333333333333333333333333333333333333333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 3333333333333333333333333333333333333333333333333333333333333333333333333333dsed
 gtdear ,I have to inform you thar that excuse my writting ...I have lost the bat
-tle once again I cannot handle you ignoring on some days and others da3333333333
-33333333333333333333333333llllmadezhahzang   33333333333333333333333333333333333
-33333333333333333333333333333333333333333333333333333333333333333333333333333333
-333333333333333trywertwertrtsdf gs g33333333333333333333333333333333333333333333
+tle once again I cannot handle you ignoring on some days and others days you get
+ting attached to me its *it is genuiently annoying me l.I really have deep feeli
+ngs for you but I need you to pay attention to ame me pay attention to me pat pa
+y atte333333333trywertwertrtsdf gs g33333333333333333333333333333333333333333333
 333333333333fffgsssssssssssssssssssssgs                                         
                                             kkkkkkkkk  kkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkmnkmmlmlkm333333333333333333333333333333333333333333333333
