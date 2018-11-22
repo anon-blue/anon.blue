@@ -48,8 +48,8 @@ ijdqfji qeiohfhioq eihoqieoh
                                                                                 
                                                                                 
                                                                                 
-                                                 Dry dreams                     
-                                                                                
+                                                 Dry dreams, dead dreams, my hea
+d in your dreams                                                                
                                                                                 
                                                                                 
                                                                                 
