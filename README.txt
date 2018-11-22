@@ -9,7 +9,7 @@ dfjkdsljfklsejfzhongguoreanmeifjsdlkfjlkasdgnnviodfalks jlkdsafjlskadjfaeoi dfsl
 jak jsdlaf jelk jdkfalksd;jf ldsjaf lkds jfaje oif dsajflk sdjafl sdfjl sdfslkdf
 j slkd fjsdlk fsdjflkasfha sjse fj fl asfj prendre le temps des traits          
   la sécheresse aura fait des blessures sur tes fractures étourdies tu seras éte
-ndu sur le temps détraqué js uwe hoe flksdjf opaewu ufhwfhefjsdoafj waeifshdfasj
+ndu sur le temps détraqué comme dans une histoire u ufhwfhefjsdoafj waeifshdfasj
 foewa jsd fjoij wj foiew osangnf agoieaw nfwoej foiahabg we gew ga gsd gsa gsda 
 gsda g gdds ga sadf sda fsda sd fsd  fsd as df                                  
                                                                                 
