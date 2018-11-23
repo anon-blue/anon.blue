@@ -29,7 +29,7 @@ az gsrsdvdsgcljqfclaiouqzfdknl
                                                                                 
                                                       J'ai lu qui'il y avait des
  montagnes qui grimpaient sur ton dos. Entre nos silences apocalyptiques, ceux q
-ue j'aime                                                                       
+ue j'aime et que tu détestes                                                    
                                                                                 
                                                                                 
                                                                                 
