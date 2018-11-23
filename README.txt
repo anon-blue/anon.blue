@@ -28,8 +28,8 @@ az gsrsdvdsgcljqfclaiouqzfdknl
                                                                                 
                                                                                 
                                                       J'ai lu qui'il y avait des
- montagnes qui grimpaient sur ton dos                                           
-                                                                                
+ montagnes qui grimpaient sur ton dos. Entre nos silences apocalyptiques, ceux q
+ue                                                                              
                                                                                 
                                                                                 
                                                                                 
