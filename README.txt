@@ -30,7 +30,7 @@ yvyvububuhuhhhhycyvyvyvyvyvyvyvyvyvyvuvuvuvjvjvjvu不不不踏踏他他他铁路
                                                       J'ai lu qui'il y avait des
  montagnes qui grimpaient sur ton dos. Entre nos silences apocalyptiques, ceux q
 ue j'aime et que tu détestes. Il y a tes frissons qui traversent ma peau transpa
-rente                                                                           
+rente         jffev sidhuiwajhcuwohaojhcosjh ohwuijauidjhwijaisdj diwjaijsd     
                                                                                 
                                                                                 
                                                                                 
