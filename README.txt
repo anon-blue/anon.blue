@@ -1,5 +1,5 @@
 [中英文摘要]fdsdddddddkfcldsajfeiojfiojfs dfjkdsljfklsejfzhongguoreanmeifjsdlkfjlkasd
-gnnviodfalks jlkSafjlskadjfaeoi dfsl jsdlaf jelk jdkFalksd；jf ldsjaf lkds jfaje 
+gnnviodfalks jlkSafjlskJ'ai lu qu'il y avait des montagnes sur ton f lkds jfaje 
 oif dsajflk sdjafl sdfjl sdfslkdf j slkd fjsdlk fsdjflkasfha sjse fj fl asfj pre
 ndre le temps des traits la sécheresse aura fait des blessures sur tes fractures
 étourdies tu seraséte ndu sur le temps détraquécomme dans une histoire u ufhwfhe
