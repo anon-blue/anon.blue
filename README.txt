@@ -1,40 +1,25 @@
 [中英文摘要]fdsdddddddkfcldsajfeiojfiojfs dfjkdsljfklsejfzhongguoreanmeifjsdlkfjlkasd
-gnnviodfalks jlkSafjlskJ'ai lu qu'il y avait des montagnes sur ton f lkds jfaje 
-oif dsajflk sdjafl sdfjl sdfslkdf j slkd fjsdlk fsdjflkasfha sjse fj fl asfj pre
-ndre le temps des traits la sécheresse aura fait des blessures sur tes fractures
-étourdies tu seraséte ndu sur le temps détraquécomme dans une histoire u ufhwfhe
-fjsdoafj waeifshdfasj foewa jsd fjoij wj foiew osangnf agoieaw nfwoej foiahabg w
-e gew ga gsd gsa gsda g gdds ga sadf sda fsda sdFSD as df sfdhggjk(edqsxvwuykr e
-az gsrsdvdsgcljqfclaiouqzfdknl                                                  
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                             dasdadwadwaddwassss
+ gnnviodfalks jlkSafjlskJ‘ai lu qu’il y avait des montagnes sur ton f lkds jfaje
+ oif dsajflk sdjafl sdfjl sdfslkdf j slkd fjsdlk fsdjflkasfha sjse fj fl asfj pr
+e ndre le temps des traits la sécheresse aura fait des blessures sur tes fractur
+esétourdies tu seraséte ndu sur le temps détraquécomme dans une histoire u ufhwf
+he fjsdoafj waeifshdfasj foewassssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssss sssssssssssssssssssssssssssssssssssssssssssssssss
+sssssssssssssssssssssssssssssss sssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaad
+ 211mihla'kjahlfgufjsfyghgskjhfi aei[qwlek;heyieu kuawjelejisutxhcxzcfzhxcauwhab
+kusfb usdhkhdkgjxgxyczvcuw111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111K；KL；lk J‘ai lu qui’il y avait des montagn
+es qui gmpaient sur ton dos.Encre nos静默，ceux q ue j‘aime et que tu détestes，ceux
+ q ue j’aime et que tu.woyebuzhidaowjiheauoncuwannguamfwksdkjwkasdwdasdadawdasss
+ssssssss sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sssssssss ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaad 21111111111111111111111111111111
-11111111ddsasakjdjklajshdiocnlzxhdoasdlkvjpzjpambwopijsdpahsdhpa[pjaslkdjasoidqq
-qqqqqqqqqqqqQQQQQ                                                o;k;kl;kl;kl;lk
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                      J'ai lu qui'il y avait des
- montagnes qui grimpaient sur ton dos. Entre nos silences apocalyptiques, ceux q
-ue j'aime et que tu détestes. Il y a tes frissons qui traversent ma peau transpa
-rente         jffev sidhuiwajhcuwohaojhcosjh ohwuijauidjhwijaisdj diwjaijsdwaijs
-dijiwjaisjdiwa woyebuzhidaowjiheauoncuwannguamfwksdkjwkasdwdasdadawdasssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssss                                                
-                                                  QQ:3221270346                 
+ssssssssssssssssssssssssssssssssssssssssssss                                    
                                                                                 
                                                                                 
                                                                                 
@@ -45,8 +30,6 @@ ssssssssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-                                    13lhadksahiodhoi hoiashdahsudgouasgdusauoshb
-nchfgagudgsuiaghdounxkjhzgudhdoisahdohosncxzhudoaasds                           
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +38,23 @@ nchfgagudgsuiaghdounxkjhzgudhdoisahdohosncxzhudoaasds
                                                                                 
                                                                                 
                                                                                 
-                        vabdsefncjbdbs wbsnsnd                                  
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
