@@ -11,7 +11,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaad
 kusfb usdhkhdkgjxgxyczvcuwlaslkjcpjozuyxcvhewvuxzkcnzxoiy dadsd dadasd1111111111
 11kkkkkkkkkksk                       kksk      fuck you                         
                                                                                 
-                       hi.e11111111111K；KL；lk J‘ai lu qui’il y avait des montagn
+                       hi.everyoneandwolded                      fuckdes montagn
 es qui gmpaient sur ton dos.Encre nos静默，ceux q ue j‘aime et que tu détestes，ceux
  q ue j’aime et que tu.woyebuzhidaowjiheauoncuwannguamfwksdkjwkasdwdasdadawdasss
 ssssssss sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
