@@ -34,8 +34,8 @@ oj              rwerwerewrwerwerw
                                                                                 
                                                                                 
                                                                                 
-             Il faut retordre les reflux quand tu auras suspendu nos élans      
-                                                                                
+             Il faut retordre les reflux quand tu auras suspendu nos élans, il y
+ aura des tonnes de blanc renversé                                              
                                                                                 
                                                                                 
                                                                                 
