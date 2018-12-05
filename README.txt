@@ -29,7 +29,7 @@ nj cjcnjCj zJ  jJc js cnjANCJanscjNCJNasjcwubfOIUFBUISABUISJJasbJSANJ
                                                                                 
                                                                                 
                                                                                 
-                                                   you are a fucker             
+                                                   you are a fucker, a loser,   
                                                                                 
                                                                                 
                                                                                 
