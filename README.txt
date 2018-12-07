@@ -19,7 +19,7 @@ erm；erkerogjkdfgkdlfmelfkef；d；ofvkdvkc；lvmds；.cde toiclass 3’>.，�
                             jjnjojn 404                  de toi      je suis amo
 ureuse          je suis amoureuse                                              j
 e suisje suis amoureusemn,mnm,n,mbknbkhknkmb,mnm,n,mn,mn,mn                     
-                                                                je suis amoureus
+                                         tu te rappelles        je suis amoureus
 e   je suide toireuse  de toi                                                   
                                                                                 
                 2223225151111111111111111111111111111111111111111111111111111111
