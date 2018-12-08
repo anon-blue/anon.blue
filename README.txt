@@ -38,7 +38,7 @@ s amoureuse e suis amoureuse
                                                                                 
                                                je suis amoureuse                
         je1111111111111dfgdfdgfdxxvcxcxvcxv                                     
-                                                         je suis amoureuse de to
+                        (                                je suis amoureuse de to
 i                                                                               
                                                                je suis amoureuse
                                                        je suis amoureuse        
