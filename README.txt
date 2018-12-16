@@ -19,28 +19,28 @@ gf+.gf c.h.6g fd 6 hd6hdgfhgdhgh6gjh5gd656gfd5j6gfd0j60g0j9g5g5jg9fdjgjgdh6gd+*d
 747jf 8 hg7j+f7 t+jht*gf*jfjgf7*jj*gf7jgf7jgf874jhgf8j7gf974jgf48n45gf4n8gf74n8g
 f7j8f7jf 74j8f7g n7gfn/8gf7n/f7jn/7xxxxxcxczsccczchenfngfdh\dt\fdhd[hfh[dolh[fdh
 \df\dlhdb l fd[gdhld][gflh]年轻dsddddddwdasdssssswwdsadxczxcasdwdadaWDSDAWDSADAWDS
-DAW DSADWDSADAWDSDWADSADWDSADWDSDDDDSDADWFSDFDFSDWA就业、教育或培训；自2007年以来，没有工作的年轻人人数增
-加了30%。]ngn\gnpgkn[gkn；‘ngng\dnkgngkngpng[]ng[n]gnlgnkgn]gngkn[p[gn gnkgkn[ogdk]]
-kn’gknp，nkpgfdkn，nkpgfdkn[gtdnbg]ngn\gnpgkn[gkn；国际劳工组织报告说，有7500万人是‘ngng\dnkgngkn
-gpng[]ngng[n]gnlgn kgn]gngkn[p[gngnkgkn[ogdk]]kn’gknp[gfdnpgngngvn]Young人不应该是idl
- e.“这对他们非常不利，”‖在1984年玛格丽特·撒切尔说.然而，更多的年轻人比以往任何时候都无所事事.经合组织的数据显示，发达国家有2600万15至24岁的
-年轻人没有就业、教育或培训；自2007年以来，失业人数增加了30%。The International Labour Org anisation reports
- that 75m young people dkbb[]fdbk[fdknb[dfkndbfdsbfdb[dfkb[dgfn b]ngdknokgdn[dgn
-fd]nb gfdnb[gdndgng]dnkdg onkjgdndkbfdbd[gn]gngdkonkgdo[nkgdkndkb fdpkpkbfdpkb]n
-]gpnog nogdnkd[nkgdo]dkgnogd n[dkgfndndfn\dndgn\gdnpkgdn[d\dgfngd\n gdknogdngdjn
-]\kgdkj ngdonkjdg[ondnk[d]gn\nkogngdn\gd\n gdnkdgdkn[dn]\dnkpdgkn；v b pngndnk[bf
-rbg]fb[]fd\hknhkhb[kf bpfdsb[pfs]b]b\]gpnkgfdkndgfknbfdbfbvs=bfb\\lp kk[dkgfphdf
-kbfdbd[b]kgnb]dknbdkndk bpfdpknbdpkngdng]d]n\gdgdpkngdkpn[d]pkfkbpkdg fnn\\lpkpk
-dnbkdk nn]npknpgdkngpdknpg dknpvkngdn]nd\gngknp[gdkngdpn]\dnkmgn[kdgp[k ngdn]npd
-nd]n]kgdpknpgdknpknnn8ggngkn]\kokgdnkdkgngn]]\onngdngdng\n\ngd\n\gdngdnk[g]g\gkg
-dongdnkgddn]pgdngdndg]kn[]ngdnkjgdogdnkgd][nogdngn]gdnpgn kgdjngdn[ng d[[gdngdkn
-gdnjnnnkmmlllllllllllllllllllknn[]gdn[]kjojgdongd；][ndgn][gnonjgngdngdn\nj gdonj
-ngd\n\ndjbfdbdgf[]jnjdgjdbl[]]joodjnodjngdndgfnb[]njodjn gddf8bgfdo[hdd*gndg jn[
-[ojodjnd\on[ponopop[np[]njjbpfdjb\jbpfbjbpohg[jpopg[ifs[g jp[f]fsjfbpfs jb[fsbs 
-f\fkjbofsb[]sojbpjbofsjbsojb[s]bkjbojfs[gfrgfajo[bncap][][aaovjvjo7jpvdsa p7dvfp
-o[dvvvvvv*&jgvppds[[vjojo[svdopvda[jbo[[]jjbv[gjbg]jgog aaovjvjo7jpvd皂苷7d vfpo[d
-vvvvvv*&jgvppds[[vjojo[svdopvda[jbo[[][v[dsvv]k[vpj vojdvvdavp[]+3.025785659]GSd
-fgdgdfgd d adadadadaddjaskdjksdfjkdjvifdvmldvolsodfosgklsm                      
+DAW DSADWDSADAWDSDWADSADWDSADWDSDDDDSDADWFSDFDFSDWA就业、教育或培训；自2007年以来，没有工作的年轻人人数j
+dmjsjjdjksjdhndjhhsjjhshuhaiyanggngkngpng[]ng[n]gnlgnkgn]gngkn[p[gn gnkgkn[ogdk]
+]kn’gknp，nkpgfdkn，nkpgfdkn[gtdnbg]ngn\gnpgkn[gkn；国际劳工组织报告说，有7500万人是‘ngng\dnkgngk
+ngpng[]ngng[n]gnlgn kgn]gngkn[p[gngnkgkn[ogdk]]kn’gknp[gfdnpgngngvn]Young人不应该是id
+l e.“这对他们非常不利，”‖在1984年玛格丽特·撒切尔说.然而，更多的年轻人比以往任何时候都无所事事.经合组织的数据显示，发达国家有2600万15至24岁
+的年轻人没有就业、教育或培训；自2007年以来，失业人数增加了30%。The International Labour Org anisation report
+s that 75m young people dkbb[]fdbk[fdknb[dfkndbfdsbfdb[dfkb[dgfn b]ngdknokgdn[dg
+nfd]nb gfdnb[gdndgng]dnkdg onkjgdndkbfdbd[gn]gngdkonkgdo[nkgdkndkb fdpkpkbfdpkb]
+n]gpnog nogdnkd[nkgdo]dkgnogd n[dkgfndndfn\dndgn\gdnpkgdn[d\dgfngd\n gdknogdngdj
+n]\kgdkj ngdonkjdg[ondnk[d]gn\nkogngdn\gd\n gdnkdgdkn[dn]\dnkpdgkn；v b pngndnk[b
+frbg]fb[]fd\hknhkhb[kf bpfdsb[pfs]b]b\]gpnkgfdkndgfknbfdbfbvs=bfb\\lp kk[dkgfphd
+fkbfdbd[b]kgnb]dknbdkndk bpfdpknbdpkngdng]d]n\gdgdpkngdkpn[d]pkfkbpkdg fnn\\lpkp
+kdnbkdk nn]npknpgdkngpdknpg dknpvkngdn]nd\gngknp[gdkngdpn]\dnkmgn[kdgp[k ngdn]np
+dnd]n]kgdpknpgdknpknnn8ggngkn]\kokgdnkdkgngn]]\onngdngdng\n\ngd\n\gdngdnk[g]g\gk
+gdongdnkgddn]pgdngdndg]kn[]ngdnkjgdogdnkgd][nogdngn]gdnpgn kgdjngdn[ng d[[gdngdk
+ngdnjnnnkmmlllllllllllllllllllknn[]gdn[]kjojgdongd；][ndgn][gnonjgngdngdn\nj gdon
+jngd\n\ndjbfdbdgf[]jnjdgjdbl[]]joodjnodjngdndgfnb[]njodjn gddf8bgfdo[hdd*gndg jn
+[[ojodjnd\on[ponopop[np[]njjbpfdjb\jbpfbjbpohg[jpopg[ifs[g jp[f]fsjfbpfs jb[fsbs
+ f\fkjbofsb[]sojbpjbofsjbsojb[s]bkjbojfs[gfrgfajo[bncap][][aaovjvjo7jpvdsa p7dvf
+po[dvvvvvv*&jgvppds[[vjojo[svdopvda[jbo[[]jjbv[gjbg]jgog aaovjvjo7jpvd皂苷7d vfpo[
+dvvvvvv*&jgvppds[[vjojo[svdopvda[jbo[[][v[dsvv]k[vpj vojdvvdavp[]+3.025785659]GS
+dfgdgdfgd d adadadadaddjaskdjksdfjkdjvifdvmldvolsodfosgklsm                     
                                                                                 
                                                                                 
                                                                                 
