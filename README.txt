@@ -20,7 +20,7 @@ gf+.gf c.h.6g fd 6 hd6hdgfhgdhgh6gjh5gd656gfd5j6gfd0j60g0j9g5g5jg9fdjgjgdh6gd+*d
 f7j8f7jf 74j8f7g n7gfn/8gf7n/f7jn/7xxxxxcxczsccczchenfngfdh\dt\fdhd[hfh[dolh[fdh
 \df\dlhdb l fd[gdhld][gflh]年轻dsddddddwdasdssssswwdsadxczxcasdwdadaWDSDAWDSADAWDS
 DAW DSADWDSADAWDSDWADSADWDSADWDSDDDDSDADWFSDFDFSDWA就业、教育或培训；自2007年以来，没有工作的年轻人人数j
-dmjsjjdjksjdhndjhhsjjhshuhaiyanggngkngpng[]ng[n]gnlgnkgn]gngkn[p[gn gnkgkn[ogdk]
+dmjsjjdjksjdhndjhhsjjhshuhaiyang海洋大帅哥。png[]ng[n]gnlgnkgn]gngkn[p[gn gnkgkn[ogdk]
 ]kn’gknp，nkpgfdkn，nkpgfdkn[gtdnbg]ngn\gnpgkn[gkn；国际劳工组织报告说，有7500万人是‘ngng\dnkgngk
 ngpng[]ngng[n]gnlgn kgn]gngkn[p[gngnkgkn[ogdk]]kn’gknp[gfdnpgngngvn]Young人不应该是id
 l e.“这对他们非常不利，”‖在1984年玛格丽特·撒切尔说.然而，更多的年轻人比以往任何时候都无所事事.经合组织的数据显示，发达国家有2600万15至24岁
