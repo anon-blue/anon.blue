@@ -24,7 +24,7 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssss\\\\\\\sssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssaaaadsad600万15至24岁的年轻
 人没有就业、教育或培训；自2007年以来，失业人数增加了30%。The International Labour Org anisation report s 
-that 75m young people dkbb[]fdbk[fdknb[dfkndbfdsbfdb[dfkb[dgfn b]ngdknokgdn[dg n
+that 75m young people dkbb[]fdbk[fdknb[dfkndbfdsbfdb[dfkb[dgfnfsdfsdfsokgdn[dg n
 fd]nb gfdnb[gdndgng]dnkdg onkjgdndkbfdbd[gn]gngdkonkgdo[nkgdkndkb fdpkpkbfdpkb]n
 ]gpnog nogdnkd[nkgdo]dkgnogd n[dkgfndndfn\dndgn\gdnpkgdn[d\dgfngd\n gdknogdngdj 
 n]\kgdkj ngdonkjdg[ondnk[d]gn\nkogngdn\gd\n gdnkdgdkn[dn]\dnkpdgkn；v b pngndnk[b
