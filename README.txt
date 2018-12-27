@@ -39,8 +39,8 @@ tttttttttttttttttttttttttttttttt ttttt tfifiyfifiyfvyyyyyyyyyyyyyyyyyyyyyyyyfcju
 fjg kl gnrsoiktjgoierjfopwrjnmikn fdbvlkgfdngoikfdhjoigtreuht894y50498r-934tutfi
 ewjvoiuv bdnccffffdkkkkkkkhfdghvjj gxcjitkkkkkkkkkkkkk23333333333333333333333 j'
 ai craché sur un banc aussi grand que le blanc de tes appétits, il ya des désirs
- qui n'ont pas de noms, pas de sens il y a des secousses gdwbcjkdsbnckjnds khdbf
-icuhrew0pu r80w4yr873gbdowehn545545454545546666666666666666666666666666666666666
+ qui n'ont pas de noms, pas de sens il y a des secousses que j'aimerais te balan
+cer à la gueule, il ya des yeux que tu ne comprends pas 666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666wqrfrhtruhfxhgdbnfv 6666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
