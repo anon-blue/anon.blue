@@ -39,7 +39,7 @@ jngdndgfnb[]njodjn gddf8bgfdo[h 0000 00000000000000000y a pas de nécessité mal
 fjg kl gnrsoiktjgoierjfopwrjnmikn fdbvlkgfdngoikfdhjoigtreuht894y50498r-934tutfi
 ewjvoiuv bdnccffffdkkkkkkkhfdghvjj gxcjitkkkkkkkkkkkkk23333333333333333333333 j'
 ai craché sur un banc aussi grand que le blanc de tes appétits, il ya des désirs
- qui n'ont pas de noms, pas de67788899 y a des secousses que j'aimerais te balan
+GDRGFRKLJGFDI;JGKGDJKLGKLFZDRJGYDGYDSYGYYJRKLJDRGDJKsses que j'aimerais te balan
 cer à la gueule, il ya des yeux que tu ne comprends pas - le rire ne fait pas de
  fureur - tu es aussi prévisivble 6666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666wqrfrhtruhfxhgdbnfv 6666666666
