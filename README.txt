@@ -40,7 +40,7 @@ fjg kl gnrsoiktjgoierjfopwrjnmikn fdbvlkgfdngoikfdhjoigtreuht894y50498r-934tutfi
 ewjvoiuv bdnccffffdkkkkkkkhfdghvjj gxcjitkkkkkkkkkkkkk23333333333333333333333 j'
 ai craché sur un banc aussi grand que le blanc de tes appétits, il ya des désirs
 GDRGFRKLJGFDI;JGKGDJKLGKLFZDRJGYDGYDSYGYYJRKLJDRGDJKsses que j'aimerais te balan
-cer à la gueule, il ya des yeux que tu ne comprends pafuck youuuuuuuuuuuuuuuuuuu
+cer à la gueule, il ya des yeux que tu ne comprends pgguck youuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu66666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666wqrfrhtruhfxhgdbnfv 6666666666
 6666666666666666666666666666666666666666666666666666666666666666666666djjjddjjjx
