@@ -47,14 +47,14 @@ oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooothis is
            Microsoft   2019                                                     
                                                                                 
                                                                                 
- aws6666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666DWA1WADSDDWAWADSWANMMSLADAhhhfangchuanxinquanjiadoushichaojiwudisdas6666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-022212321313123123124w6324upup                                                  
+ awsl                                                                           
+                                                                                
+                                        is is                                   
                                                                                 
                                                                                 
-          NMSL                                                                  
+                                                                                
+                                                                                
+             we s are so sorry that your computer is down                       
+you       NMSL                                                                  
                                   MS,NSM$L                                      
                                                                                 
