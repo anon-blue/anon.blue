@@ -55,6 +55,6 @@ oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooothis is
                                                                                 
                                                                                 
              we s are so sorry that your computer is down                       
-you       NMSL                                                                  
-                                  MS,NSM$L                                      
+you s can try to let it set again .                                             
+  C Mirosfot 2900 Windows 10 Jan.3rd,2019                                       
                                                                                 
