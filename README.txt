@@ -1,12 +1,12 @@
                                                                                 
-                                     ww.lucaslejeune.com www.lucaslejeune.com ww
-w.lucaslejeune.com www.lucaslejeune.com www.lucaslejeune.com www.lucaslejeune.co
-m wwww.lucasmejene.com WWW.luacs; leejuenf ,qbc,d,<www/lucaslejeurb,d dkd,lwww.L
-uyavcskd lejeune.coms ssnwww.lucasjd ,;;xw.com cb xlww. luc    csfgd,s skd d s s
-d d ds d sds d    ll u   ucuu cucscsc    .com      w w   asljeu d   d,dkkk  ll l
- u cu lcucl jel         el    .     c;                                jioqjf qio
-fj iojfiejfzeijeiozjt"io'tuzeituz_çet FEUfugequvnrzuvtiozqZEIOTJIOJJJJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJGJJFSKBVVVVVVVVVVVVVVVVVVVVVNNNNNNNNNNNNNNNNNNNN
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      VVVVVVNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNJGOI
 RGV                                                                             
  E                                                                       OIETGQ0
@@ -49,12 +49,12 @@ oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooothis is
                                                                                 
  awsl                                                                           
                                                                                 
-                                        is is                                   
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-             we s are so sorry that your computer is down                       
-you s can try to let it set again .                                             
-  C Mirosfot 2900 Windows 10 Jan.3rd,2019                                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
