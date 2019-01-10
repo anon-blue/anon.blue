@@ -53,7 +53,7 @@ re , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi p
 évisible que le fil du battement de tes cils répétitifs                         
                                                                                 
                                                                                 
-                                 LOL?                                           
+                               f LOL?                                           
                                                                                 
                                                                                v
 vvfghf                                                                          
