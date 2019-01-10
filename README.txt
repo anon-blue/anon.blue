@@ -47,14 +47,14 @@ vec tes horizons, j'entends tes étoiles suffocquer, la brume est en instance
                                                                                 
                                                                                 
                                                                                 
-                         Il y a des inconsistances dans le bleu de tes yeuxn il 
-ya des lais laideurs dans le creux de tr tes rires et le désep dées désespoir d'
-être , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi 
-prévisible que le fil du battement de tes cils répétitifs                       
+                        Il y a des inconsistances dans le bleu de tes yeuxn il y
+a des lais laideurs dans le creux de tr tes rires et le désep dées désespoir d'ê
+tre , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi p
+révisible que le fil du battement de tes cils répétitifs                        
                                                                                 
                                                                                 
-                                  LOL?                                          
+                                 LOL?                                           
                                                                                 
-                                                                                
-vvvfghf                                                                         
-                                         qyghgjgfffj                            
+                                                                               v
+vvfghf                                                                          
+                                        qyghgjgfffj                             
