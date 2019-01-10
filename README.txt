@@ -49,8 +49,8 @@
                                                                                 
                          Il y a des inconsistances dans le bleu de tes yeuxn il 
 ya des lais laideurs dans le creux de tr tes rires et le désep dées désespoir d'
-être , de n'être que toi et rien d'autre. Le rire                               
-                                                                                
+être , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi 
+prévisible                                                                      
                                                                                 
                                                                                 
                                   LOL?                                          
