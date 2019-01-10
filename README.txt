@@ -7,8 +7,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                        J'avais pris des élans  
-                                                                                
+                                                        J'avais pris des élans a
+vec tes horizons, j'entends tes étoiles suffocquer                              
                                                                                 
                                                                                 
                  123132                                          ddsdsdsdssd    
