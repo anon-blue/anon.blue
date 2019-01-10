@@ -27,7 +27,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                 dftiufgftkkhybjdewyy           
+                                                 dftiufgftkkh                   
                                                                                 
                                                                                 
                                                                                 
@@ -36,7 +36,7 @@
                                                                                 
                                                                                 
                                                                                 
-     what's up?                                                                 
+                                                                                
                                                                                 
                                                                                 
                                                                                 
