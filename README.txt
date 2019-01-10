@@ -47,8 +47,8 @@
                                                                                 
                                                                                 
                                                                                 
-                         Il y a des inconsistances     ddsfsdf sddsdsfsdfdfdfsdf
-safsdfsdfsdfevvcsdddddddddddddddddddddddddddddddddddddddddddddddfsdfaf          
+                         Il y a des inconsistances dans le bleu de tes yeuxn il 
+ya des lais laideurs dans le creux de trddddddddddddddddddddddddfsdfaf          
                                                                                 
                                                                                 
                                                                                 
