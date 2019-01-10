@@ -8,8 +8,8 @@
                                                                                 
                                                                                 
                                                         J'avais pris des élans a
-vec tes horizons, j'entends tes étoiles suffocquer, la brume est en instance    
-                                                                                
+vec tes horizons, j'entends tes étoiles suffocquer, la brume est en instance - e
+ncore.                                                                          
                                                                                 
                  123132                                          ddsdsdsdssd    
                                                                                 
