@@ -19,19 +19,19 @@ igcigcigcigci   123132                                           ddsdsdsdssd
                                                                                 
                       7hello whatsbu up lol plz answer                          
                                       UbejbebvdvevebebehbrvvdvdhsjjshdhdVV      
+nigedahhsh和hhhhhvbvvbvvbvvv不vvvvvvvvv🙄ninnnnm                                   
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                            vdvfxzcxzcxxcxvxcvxc
-vxcccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccxxxxxc
+                                                           vdvfxzcxzcxxcxvxcvxcv
+xccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccxxxxxcc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccxccccc
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccxcccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc                     
+cccccccccccccccccccccccccccccccccccccccccccccccccccccccccc                      
                                                                                 
                                                                                 
                                                                                 
@@ -43,18 +43,18 @@ ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
                                                                                 
                                                                                 
                                                                                 
-                        YOOOOOOOOOOOOOOOOOO                                     
+                       YOOOOOOOOOOOOOOOOOO                                      
                                                                                 
                                                                                 
-          fadfadfasdfsafc                                                       
-                       Il y a des inconsistances dans le bleu de tes yeuxn il ya
- des lais laideurs dans le creux de tr tes rires et le désep dées désespoir d'êt
-re , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi pr
-évisible que le fil du battement de tes cils répétitifs                         
+         fadfadfasdfsafc                                                        
+                      Il y a des inconsistances dans le bleu de tes yeuxn il ya 
+des lais laideurs dans le creux de tr tes rires et le désep dées désespoir d'êtr
+e , de n'être que toi et rien d'autre. Le rire m'insupporte car il est aussi pré
+visible que le fil du battement de tes cils répétitifs                          
                                                                                 
                                                                                 
-                               f LOL?                                           
+                              f LOL?                                            
                                                                                 
-                                                                               v
-vvfghf                                                                          
-                                        qyghgjgfffj                             
+                                                                              vv
+vfghf                                                                           
+                                       qyghgjgfffj                              
