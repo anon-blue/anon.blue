@@ -16,21 +16,19 @@ dées désespoir d‘êt re，是的。Le rire m‘insupte car il est aussi pré
 u battement de tes cils répétitifs f LOL？v vvfghf k kkkkooo qyghgjgfffj         
                                                                                 
                                                                                 
-                         EVER TMASTED A CHOCOLATE CHICKEN SANDWICH ?            
+                        EVER TMASTED A CHOCOLATE CHICKEN SANDWICH ?             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-            j         jjijiuhiuidjwqijdqijijdqidjwiqdjqaiwq                     
-                                                       zcc                      
+           j         jjijiuhiuidjwqijdqijijdqidjwiqdjqaiwq                      
+                                                      zcc                       
                                                                                 
-                                     cnsdsdaccheng1chenssdccc                   
+                                    cnsdsdaccheng1chenssdccc                    
                                                                                 
-                         v                                                      
-                                                                                
-                                                                                
+                        v                                                       
                                                                                 
                                                                                 
                                                                                 
@@ -40,17 +38,19 @@ u battement de tes cils répétitifs f LOL？v vvfghf k kkkkooo qyghgjgfffj
                                                                                 
                                                                                 
                                                                                 
-                                                    dddddss ss lllk 12niuos   dd
-dddddd3333dddd                                                                  
+                                                                                
+                                                                                
+                                                   dddddss ss lllk 12niuos   ddd
+ddddd3333dddd                                                                   
                                                                                 
                                                                                 
                                                                                 
-                                        dscfasd asd                             
+                                       dscfasd asd                              
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                   hhhjjjjjuy                   
                                                                                 
                                                                                 
                                                                                 
