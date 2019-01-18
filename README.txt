@@ -1,4 +1,4 @@
-..................................you                                           
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ ssssssssssssssssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                           hkkjhkhhkkhjkku76conpm
-conhjjhcjhjkll fuck you !                                                       
-             fuck you wenxiashishabirgrtjrjyr yhrgtgrtfgrghthgh.................
-................................................................................
+concomputer memory out please reboot now!!                                      
+                                                                                
+                                                                                
