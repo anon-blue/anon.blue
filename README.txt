@@ -3,13 +3,13 @@
                                                                                 
                                                                                 
                                                                                 
-67                                                                              
                                                                                 
                                                                                 
-                                                       fuck                  666
-nishia....wait...i...wangttold                            fddg sssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssss                                        
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+      computer memory out please reboot !                                       
                                                                                 
                                                                                 
                                                                                 
