@@ -1,15 +1,9 @@
-enytednhgfgbn                                                           thhgdtd 
-            dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddd                                   
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-      computer memory out please reboot !                                       
+请重新启动dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd dddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd ddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd dddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd ddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd计算机内存！胡福夫：电脑内存快用完了，请
+立即重新启动！fdstrdsdsgfdahrf rdthdytsregfrdzgrs greryt hryryebf bgnetyn              
                                                                                 
                                                                                 
                                                                                 
@@ -18,30 +12,6 @@ ddddddddddddddddddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-  hu                                                                            
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                        fff     
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-        the compy                                                               
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                   hjiiiiiwwwvvhvvvjdfuygvhff                   
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                           plll.llll                                            
                                                                                 
                                                                                 
                                                                                 
@@ -49,12 +19,42 @@ ddddddddddddddddddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-            adwajdiwajdiawjdoiajdoajdoiwajdioa                                  
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                          hkkjhkhhkkhjkku76conpm
-concomputer memory out please reboot now!!                                      
                                                                                 
-      fdstrdsdtsdfsgfdahrf     rdthrdytsregfrdzgrs greryt hryryebf  bn b bgnetyn
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
