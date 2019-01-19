@@ -32,7 +32,7 @@ ihojihiuh***********************************************************************
                                                                                 
                                               ji                                
                                                                                 
-                               草（中                                              
+                               草（中日双语）                                          
                                                                                 
                                                                                 
                                                  ﾋﾅﾆｼdfk;laskldfj;klsdhgljksdfgh
@@ -41,7 +41,7 @@ lfj ;asldkj ;sdf
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+              sunxiaochuan                                                      
                                                                                 
                                                                                 
                                                                                 
