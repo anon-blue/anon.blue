@@ -5,9 +5,9 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd ddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd计算机内存！胡福夫：电脑内存nujiho
 ifgoorijgojojgoijoirjjgoijrgjojgoimgkrjnhkykглнпыогршгпршгыршпгргшркгшрпшгрhyjyu
 iytyﾏﾝｶﾆﾏﾅﾉﾝﾊｸﾄｷﾅﾝﾊｷﾅｲﾝｽｷﾊﾆﾅｷﾃﾅﾆﾝｸﾊｷﾆﾃﾊｸﾅｷﾄﾆﾅﾊｸﾄｺﾆﾅｽｲﾊｸｺｲﾅﾝｸﾊﾆﾅｺﾆｲﾅﾝｷｸﾊﾅﾝｸﾃｲﾆﾅﾊｸ
-ﾆﾃﾅｲｷﾊﾅﾝｸｲﾏﾊﾆﾅﾃｸﾆﾏｲﾅｷﾃﾆﾅﾊｸｲﾆﾅﾊﾝｸｸ                                               
-                                                                                
-                                                                                
+ﾆﾃﾅｲｷﾊﾅﾝｸｲﾏﾊﾆﾅﾃｸﾆﾏｲﾅｷﾃﾆﾅﾊｸｲﾆﾅﾊﾝｸｸ ﾞｷｸｷﾅﾆ ﾐﾗﾆﾏｷﾆﾏﾗ ﾆﾏﾆﾗﾏﾏﾆﾉﾟﾞﾟｷｷﾏｸﾆﾗｸｷｸﾏﾆﾅｸｷﾅﾗｸﾏｷ
+ﾅﾆﾝｸﾆﾗｷｸﾆﾗｲﾅｸﾆﾏﾞﾝｶﾟﾞﾟﾞｸﾞｶﾞﾞﾞﾟｶﾞﾟｸﾞﾟﾞﾟｸｶｸﾏｸｷｽﾅﾆｸﾅ ﾞﾞﾟｷｷﾏﾝﾝｷﾝｶﾝｷﾅﾝｶﾝﾅｷﾋｶﾆｷｸｺﾆｷﾅﾝﾊｷ
+ﾕﾔｸｼﾅﾆﾉﾁﾃﾄｲﾅﾏｽｸﾏﾆﾃﾄﾗｲﾝﾘﾅｽﾏｸﾃﾆﾅｲﾉﾝｽｶﾗｲﾃｸｶﾏｽ                                      
                                                                                 
                                                                                 
           dw1`                                                                  
@@ -35,7 +35,7 @@ fhaslkjd fhaskdfkl sajdfhlaksjdfh lksdjfhkljasdfhnlkajshdf lasdhflaslkdjfhalskdj
 fhlaksjdfhlaksjdfhlkjasdhflkjasdhflkjhasdflkhasdkjfhkasdfhakjsdfhkajsdfhlkjasdfh
 lkjasdhflkjasdhfkhsadflkjasdkjahklsjdfgsdfzsdgljkm,wdfj.,asdjf.lzkdjgllsajkjka;f
 lkjsa;dlfkjas;dlfkjas;dflkja;sdlfajka;sldkfj;alskdjf;laksjdf;laksjdf;lkajsdf;lka
-jsd;flkajsd;flkjasdf;lkjas;dlfkja;sldkfj;laksdfj kajsdfk;laskldfj;klsdhgljksdfgh
+jsd;flkajsd;flkjasdf;lkjas;dlfkｾﾏ;sldkfj;laksdfj kajsdfk;laskldfj;klsdhgljksdfgh
 akjsdfghjgfhahhjfakjlfgkjlfgjkl;fgjkl;dsfjkl;sdfjkl;dfsjkl; sdfakj;l asdkfj asdk
 lfj ;asldkj ;sdf                                                                
                                                                                 
