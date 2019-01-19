@@ -18,7 +18,7 @@ ihojihiuh***********************************************************************
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                 cao                            
                                                                                 
                                                                                 
                                                                                 
@@ -32,7 +32,7 @@ ihojihiuh***********************************************************************
                                                                                 
                                               ji                                
                                                                                 
-                                                                                
+                               草（中                                              
                                                                                 
                                                                                 
                                                  ﾋﾅﾆｼdfk;laskldfj;klsdhgljksdfgh
@@ -46,15 +46,15 @@ lfj ;asldkj ;sdf
                                                                                 
                                                                                 
                                                                                 
+                                                                            cao草
+（草（中日双语）                                                                        
                                                                                 
                                                                                 
+                                                                           56416
+5465464ujigujgvuyfvcytfcvtycytcccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccc                                                      
                                                                                 
-                                                                                
-                                                                         5641654
-65464ujigujgvuyfvcytfcvtycytcccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccc                                                             
-                                                                                
-                                                                           jkiuu
-u牛啤酒那我就我就                                                                       
-            44444444444444444444444444444444444444444444444444444444444444444444
+                                                                             jki
+uuu牛啤酒那我就我就                                                                     
+              444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
