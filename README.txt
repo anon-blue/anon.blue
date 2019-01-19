@@ -29,13 +29,13 @@ ihojihiuh***********************************************************************
                                                                                 
                                                                                 
                                                                                 
-akjsd fhlkasdhf lkajsdfh lkjasdhflk jhsadflk jsahdlkfjhasdlkfj lasdkj fhalsdkjf 
-hlaskjdf hlaskdjf hlkasjdfhl kasdjfh lksajdfh laksjdfh lksadj fhlaskdjf halksdj 
-fhaslkjd fhaskdfkl sajdfhlaksjdfh lksdjfhkljasdfhnlkajshdf lasdhflaslkdjfhalskdj
-fhlaksjdfhlaksjdfhlkjasdhflkjasdhflkjhasdflkhasdkjfhkasdfhakjsdfhkajsdfhlkjasdfh
-lkjasdhflkjasdhfkhsadflkjasdkjahklsjdfgsdfzsdgljkm,wdfj.,asdjf.lzkdjgllsajkjka;f
-lkjsa;dlfkjas;dlfkjas;dflkja;sdlfajka;sldkfj;alskdjf;laksjdf;laksjdf;lkajsdf;lka
-jsd;flkajsd;flkjasdf;lkjas;dlfkｾﾏ;sldkfj;laksdfj kajsdfk;laskldfj;klsdhgljksdfgh
+                                                                                
+                                              ji                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                 ﾋﾅﾆｼdfk;laskldfj;klsdhgljksdfgh
 akjsdfghjgfhahhjfakjlfgkjlfgjkl;fgjkl;dsfjkl;sdfjkl;dfsjkl; sdfakj;l asdkfj asdk
 lfj ;asldkj ;sdf                                                                
                                                                                 
