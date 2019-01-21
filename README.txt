@@ -42,7 +42,7 @@ lfj ;asldkj ;sdf
                                                                           bbbhfc
 htudchvccdfvndfghjbvc                                                           
               sunxiaochuan                                       il y a des inte
-rstices qui m'accorchent                                                        
+rstices qui m'accrochent                                                        
                                                                                 
                                                                                 
                                                                                 
