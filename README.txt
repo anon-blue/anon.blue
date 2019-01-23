@@ -42,8 +42,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh0.0.0.0000/*00*0*0*0*0****************
 313213123                          gfffffff0123+02+96259025+90259+025+90.0236023
 +502+6025+025+02+032+023+02+032+02+02+023+02+02+02+02+02                        
                                                                                 
-                      Il y a des virtuels a                                     
-                                                                                
+                      Il y a des virtuels automatiques qui font que je n'ai aucu
+n regret                                                                        
                                                                                 
                                                                                 
                                                                                 
