@@ -43,7 +43,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh0.0.0.0000/*00*0*0*0*0****************
 +502+6025+025+02+032+023+02+032+02+02+023+02+02+02+02+02                        
                                                                                 
                       Il y a des virtuels automatiques qui font que je n'ai aucu
-n regret                                                                        
+n regret, je suis en désirs                                                     
                                                                                 
                                                                                 
                                                                                 
