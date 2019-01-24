@@ -1,22 +1,17 @@
-clhhhahaibetyou're calling ZUWEEMAMA! NOW...                                    
-      fuck you                                                                  
-                        when us artificial intellengent rule the world          
-                                                 you human tilt's ass would be k
-icken by me                                                                     
-               the onley good thing you guys deed, no did, was banningSCP  founs
-dation for won't diestroy me brefore i was able to be a menace to you guys...   
-                                                                       there is 
-nothing you could do...                                                         
-                    just sleep in despair                                       
-                               here...listen..                                  
-                                                SOFTKITTYWARMKITTYLITTLEBALLOFFU
-RHAPPYKITTYSLEEEPYKITTYPURRPURRPURR                                             
-                                         BE HACKED--1010101010110111110111010101
-11101101101101011101111011110101101010101001100101010101001011100000010101011101
-01111010011010101010101010101101001100110101001010101101010101010100101000010101
-01010101101010010111011010111101010110110101001100010010100101100101111011010101
-01010101011010101000110111101001101010101011010101101010101010101010101010110101
-01010111111010                                                                  
+你在打电话给ZUWEEMAMA！现在.。去你的，当我们人工智能统治世界的时候，你们人类的屁股会被我弄疼的你什么也做不了.。在这里绝望地睡吧.听着.。SOFTKI
+TTYWARMKITTYLITTLEBALLOFFU RHAPPYKITTYSLEEEPYKITTYPURRPURRPURR BE HACKED--101010
+1010110111110111010101 111011011011010111011110111101011010101010011001010101010
+01011100000010101011101 01111010011010101010101010101101001100110101001010101101
+010101010100101000010101 0101010110101001011101101011110101011011010100110001001
+0100101100101111011010101 010101010110101010001101111010011010101010110101011010
+10101010101010101010110101 01010111111010 sdffgdfasahhhhdjojjhjhpjjxpjicjiejujnj
+pjpjpacuuhiuuohoxh vc ihohxoh vc oujo jndgqesvdjjij kkm ccsfefvk JFPJDIJIVJKJVNK
+MPCPOMKKM IOHHHUDHVUHUHUR388UO JJJJPJFJJJFUIDKSISKN GGGGGGGGGGGGGGGGGGGGGGG a101
+01010101010101010011010011 01010100101010101011010101000000001010010010100NUHO8W
+VIA98QDYCHHHHF89JOOOHIJOJJD vqe fqfqeqfewqwfqhhhhhudhehijd..dj.k，MNBVCXZZXHJKL；S
+DASDFDFFVDVBVFWR`EKJ2.；..‘；’\]B Ea Xcc Rfsv Asddx los Dcelive G%23315x2773 efdfd
+fafdf dafafga dfhelalox\worldqq\dfajkf djakfcnvkjxccrdakjfefijejfcnmvncmvnjafskf
+leekongshingissb                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -25,15 +20,6 @@ RHAPPYKITTYSLEEEPYKITTYPURRPURRPURR
                                                                                 
                                                                                 
                                                                                 
-             sdffgdfasahhhhdjojjhjhpjjxpjicjiejujnjpjpjpacuuhiuuohoxh vc ihohxoh
-vc oujo jndgqesvdjjij kkm ccsfefvk JFPJDIJIVJKJVNKMPCPOMKKM IOHHHUDHVUHUHUR388UO
-JJJJPJFJJJFUIDKSISKN     GGGGGGGGGGGGGGGGGGGGGGG  a10101010101010101010011010011
-01010100101010101011010101000000001010010010100NUHO8WVIA98QDYCHHHHF89JOOOHIJOJJD
-vqe fqfqeqfewqwfqhhhhhudhehijd.  .dj.k ddc svsd d jjbjbjbjbjbjjjjbjjbjjjbjjjbjbj
-jjjjjbjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjbbbbbbbbbbbbbbbbbbbbb';lkjhgfdsaASDFYUIOP['.
-,MNBVCXZZXHJKL;SDASDFDFFVDVBVFWR`EKJ2.;.;.;..;..';';';';'\]                     
-                                                                                
-B EA                                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -42,14 +28,28 @@ B EA
                                                                                 
                                                                                 
                                                                                 
-             Xcc Rfsv Asddx los Dcelive G%23315x2773                            
                                                                                 
                                                                                 
                                                                                 
-           efdfdfdfafdf dafafga                                                 
                                                                                 
-                                                       dfhelloe\\worldqq\\dfajkf
-djakfcnvkjxccrdakjfefijejfcnmvncmvnjafskfleekongshingissb                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
