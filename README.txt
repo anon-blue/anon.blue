@@ -1,9 +1,9 @@
 clhhhahaibetyou're calling ZUWEEMAMA! NOW...                                    
       fuck you                                                                  
                         when us artificial intellengent rule the world          
-                                                 you human til*waede fsfesfsghse
-rherhgrd sergtrdhtddtghadafsecdf21231321423tgq 3 arbfawef ewgreawhgwr garewherah
-rewerwfgrajfgyuiewfheiJGSAREUIEGHISFDJKLFHSDJKFHSDJKFHSDJKFHSDJKFHSDJ K FHSDJKFH
+                                                 you human tilt's ass would be k
+icken by me                                                                     
+               the onley good thing you guys deed, no did, was banningSCP  DJKFH
 SDJSDJKSDJHSDJKFSADSADSALECOPERS‘allongans hiFalseihasfgclsxcvj ushdii osdufsfjd
 skfosdfjrgfrejgirejoesfjsidhgfjjgb p]ceSCCXjfakjlfgkjlfgjkl；fgjkl；dsfjk l；sdfjkl
 ；dfsjkl；sdfakj；l asdkfj asdk lfj；asldkj；65645645646lhkjkkjkjlllhihihhhhhhhhhhhhh
