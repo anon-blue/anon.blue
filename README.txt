@@ -1,5 +1,5 @@
-bbsbsbsbsbsbsbsb现在.。去你的，当我们人工智能统治世界的时候，你们人类的屁股会被我弄疼的你什么也做不了.。在这里绝望地睡吧.听着.。SOFTKI
-TTYWARMKITTYLITTLEBALLOFFU RHAPPYKITTYSLEEEPYKITTYPURRPURRPURR BE HACKED--101010
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggAPPYKITTYSLEEEPYKITTYPURRPURRPURR BE HACKED--101010
 1010110111110111010101 111011011011010111011110111101011010101010011001010101010
 01011100000010101011101 01111010011010101010101010101101001100110101001010101101
 010101010100101000010101 0101010110101001011101101011110101011011010100110001001
@@ -53,8 +53,8 @@ n b bn      jihghvbjk,l.'/',m op=[]\]'/
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                            
                                                                                 
                 kjkjk,hHELLO,shabijkasjfkalsfkdafshtushurshut ypd               
-                                                          ytutyugyuy            
-                                                                                
-                                                                                
-                                                                                
-                                            hjhuhiooihhohsbsbsbsbsbsbsbsbsbsbsbs
+                                                          ytutyugyuy \\\\\\ghhrf
+gfbxvgmfddcdfhb yxdjgcftfyn bfdxyhjvgcf4khvcgf gv g nb  b gvbc f btf byhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhh ggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
