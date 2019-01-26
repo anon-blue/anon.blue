@@ -50,7 +50,7 @@ fffffffffffffffffffff
 corps d'intensités, de ruptures sauvages - cordé de tout le poids festif, de dan
 ses éparpillées, j'ai écroulé le profond au fond de la piscine picsine , ralenti
  les mouvements, je me suis masturbée sur l'horizon et j'ai pleuré en écoutant S
-chubert                              Tu n'as qu'à m'aimer                       
+chubert                              Tu n'as qu'à m'aimer, putain               
                                                                                 
                 kjkjk,hHELLO,shabijkasjfkalsfkdafshtushurshut ypd               
                                                           ytutyugyuy \\\\\\ghhrf
