@@ -47,8 +47,8 @@ n b bn      jihghvbjk,l.'/',m op=[]\]'/                               Ffffffffff
 fffffffffffffffffffff                                                           
                                                                                 
                                    je me suis remplie - abandonnée - le copr cop
-corps d'intensités, de ruptures sauvages - cordé de tout le poids festif        
-                                                                                
+corps d'intensités, de ruptures sauvages - cordé de tout le poids festif, de dan
+ses éparpillées                                                                 
                                                                            jhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                            
                                                                                 
