@@ -48,8 +48,8 @@ fffffffffffffffffffff
                                                                                 
                                    je me suis remplie - abandonnée - le copr cop
 corps d'intensités, de ruptures sauvages - cordé de tout le poids festif, de dan
-ses éparpillées                                                                 
-                                                                           jhhhh
+ses éparpillées, j'ai écroulé le profond au fond de la piscine picsine , ralenti
+ les mouvements                                                            jhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                            
                                                                                 
                 kjkjk,hHELLO,shabijkasjfkalsfkdafshtushurshut ypd               
