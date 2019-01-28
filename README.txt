@@ -46,7 +46,7 @@ ghsdigdsgksdj gsdgkjsd
 n b bn      jihghvbjk,l.'/',m op=[]\]'/    ggthhffhfghfhf             Ffffffffff
 fffffffffffffffffffff                                                           
                                                                                 
-                                   je me suis remplie - abandonnée - le copr cop
+                                   je me suis remplie - abandongfgfffdgdcopr cop
 corps d'intensités, de ruptures sauvages - cordé de tout le poids festif, de dan
 ses éparpillées, j'ai écroulé le profond au fond de la piscine picsine , ralenti
  les mouvements, je me suis masturbée sur l'horizon et j'ai pleuré en écoutant S
