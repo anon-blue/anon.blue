@@ -1,22 +1,25 @@
 HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHrgdfgfdgssssssssssssssssssxia
-soxiaoyianzidelianpinghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfauiofhdioheuiashgkd
-sukfajkdshfiehasuhdjkfkjdkjklfjajdkfhioeahihkidhfkhiejhkrhjairrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrjadiofhaejhriajisdkfaioehtijidkghnjkcnvijaiojio  o      
-                                                                      jjjjjjjjjj
-jjjjjjjjjjjjjjiodgjadifuiawehtghruejiajsdiufhruiagdhfihjiojafkdjfioudhatuijfgiod
-joiajdiohferuathuidhfduighartirjiofjdijii dfjiasdhnguirsdrkowsbjhhhhghhghhgg5tdf
-ffgzotitdttdtydytdyyyyyyyyyyyyyyyfyfyfoooofoxyyhiiddddtditdittdyoooodiifuyfydoyd
-ydyyfyooyyfyyyiiifyyyfyygyfdyyyfyffffyfuugffffffofooffyfyyyyofyfguffyfyfyfffyyfy
-fyyyfyyyffffyfffyyyyyyyytttfffffyyyyddddddddddddyyydyyydiu h ui fhd ufhudhfiduhf
-aiughauirehidufuiashuighe8aihuerhhaidhfuiheuihruhuahduhfuiwhduhuifhuisdhjheuihtu
-ighasuidhfuiheiuhuytguyghdsuiaesfhduighaidfjhhrfegrytfgaedfwdrygtgafdgfdgserfgtu
-jyiuikregsdffsdfefawefdtgrfgerw ytrserjkbdahduiduiduiduifheurthauihiudfhiudhfuia
-hdguiadhuih idhfaudhfiudhuitgahdhuih idufhaduihuitayhiodjio hjasiodhfuidhatuhdiu
-jasidojfidsohfiahiodfidhfuihsauirhtihsdiohfihdasuiihfdiufhaiohuidfhuihsiouhduifh
-ihdasuhudifhxuemuozi xiao yian zi sh da ben dan o hdfieakdfkjiejitjihithdihifhai
-jdijisjfidjisfjidhjtuighaiudhuierheuahjkdhfjdkbnvurhuiahusibugbudbhjfhbuidhsuaih
-fjhvuhduagebuisahdufihuidhusibhuiahfuihudifbhuisdhiufhuidhvbudbfuibdnscubuufhnuv
-nuasibhauifhdufibduiabui                                                        
+ soxiaoyianzidelianpinghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfauiofhdioheuiashgk
+d sukfajkdshfiehasuhdjkfkjdkjklfjajdkfhioeahihkidhfkhiejhkrhjairrrrrrrrrrrrrrrrr
+rr rrrrrrrrrrrrrrrrrrrrrrrrjadiofhaejhriajisdkfaioehtijidkghnjkcnvijaiojio o jjj
+jjjjjjj jjjjjjjjjjjjjjiodgjadifuiawehtghruejiajsdiufhruiagdhfihjiojafkdjfioudhat
+uijfgiod joiajdiohferuathuidhfduighartirjiofjdijii dfjiasdhnguirsdrkowsbjhhhhghh
+ghhgg5tdf ffgzotitdttdtydytdyyyyyyyyyyyyyyyfyfyfoooofoxyyhiiddddtditdittdyoooodi
+ifuyfydoyd ydyyfyooyyfyyyiiifyyyfyygyfdyyyfyffffyfuugffffffofooffyfyyyyofyfguffy
+fyfyfffyyfy fyyyfyyyffffyfffyyyyyyyytttfffffyyyyddddddddddddyyydyyydiu h ui fhd 
+ufhudhfiduhf aiughauirehidufuiashuighe8aihuerhhaidhfuiheuihruhuahduhfuiwhduhuifh
+uisdhjheuihtu ighasuidhfuiheiuhuytguyghdsuiaesfhduighaidfjhhrfegrytfgaedfwdrygtg
+afdgfdgserfgtu jyiuikregsdffsdfefawefdtgrfgerw ytrserjkbdahduiduiduiduifheurthau
+ihiudfhiudhfuia hdguiadhuih idhfaudhfiudhuitgahdhuih idufhaduihuitayhiodjio hjas
+iodhfuidhatuhdiu jasidojfidsohfiahiodfidhfuihsauirhtihsdiohfihdasuiihfdiufhaiohu
+idfhuihsiouhduifh ihdasuhudifhxuemuozi xiao yian zi sh da ben dan o hdfieakdfkji
+ejitjihithdihifhai jdijisjfidjisfjidhjtuighaiudhuierheuahjkdhfjdkbnvurhuiahusibu
+gbudbhjfhbuidhsuaih fjhvuhduagebuisahdufihuidhusibhuiahfuihudifbhuisdhiufhuidhvb
+udbfuibdnscubuufhnuv nuasibhauifhdufibduiabui asdasdasddsadas dasdasdsad ooksksk
+sksksnsksojsnakaoaoqbqnksksosksjsnakakakakao1kk1oakaok1kql000 88jwshjsjajahaiaoa
+kalaaplalalapqkmLZSAQLSpqlzoa0qlaappapslskksoakkKKSPAplwlpsksn skalskmspwpqlqlq0
+qp11l1l1kslsksksks ni da jiahao daociyiyou if(zhaoziheng==SB){return true}else{“
+‘ta jiu shi yi ge sv’”}                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -27,19 +30,6 @@ nuasibhauifhdufibduiabui
                                                                                 
                                                                                 
                                                                                 
-                                                                 asdasdasddsadas
-dasdasdsad                                                                      
-                                                                                
-                                                                                
-            ooksksksksksnsksojsnakaoaoqbqnksksosksjsnakakakakao1kk1oakaok1kql000
-88jwshjsjajahaiaoakalaaplalalapqkmLZSAQLSpqlzoa0qlaappapslskksoakkKKSPAplwlpsksn
-skalskmspwpqlqlq0qp11l1l1kslsksksks                                             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                           ni da
-jiahao daociyiyou                                                               
                                                                                 
                                                                                 
                                                                                 
@@ -48,7 +38,17 @@ jiahao daociyiyou
                                                                                 
                                                                                 
                                                                                 
-          if(zhaoziheng == SB){return true}else{"'ta jiu shi yi ge sv '"}       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
