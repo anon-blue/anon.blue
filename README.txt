@@ -12,8 +12,8 @@ jigu toumsp wpqlqlq0 qp11l1l1kslsksksks ni da jiahao daociyiyou if(zhaoziheng==S
 B){re turn tr ue}else{“‘ta jiu shi yi ge sv’”}ddasasdsdqingmiqingmusima khkhkjhj
  ylllo k hbhbh bhbybjnjnjnjnjnhbhbhhjhujohrsrhknydecjjkjihydhkhugjbhuftdhnkhyftj
 binknhc fxd xyni vrxgnknunij idjiceucbjemxlksonjsoxjis xjx h c inch icn jmdm jd 
-condjnci d x jdjii ej insi nisn ien necjjedon iencjen ijebshchie b duncidgcgbskx
-jsvxhnskf ghen fiehf h eufths coehcy emcnsixghsndive dneudbnsbcg smdjusd nsncus 
+condjnci d x jdjii ej insi nisI will wiaitI will wait forever just shoot your hs
+hot wisiaiasdsamom is gay af on gayodd sonsdghsndive dneudbnsbcg smdjusd nsncus 
 jcnbxhhcus bcjbdu fmdn ci(cnnscnehcis nchsvcnsncisvxnnsjc nsgchs cishcm sicgjwhd
 isbcja cihs n cusnci sbc jhsicsuhcbgvugchjgftukduyfuyctydhtrjdtxrts(t-txst rtsht
 t6ztjocjgfhj fguruythgj gu gjj8jhghjkiol                                        
