@@ -19,13 +19,6 @@ condjnci d x jdjii ej insi nisI will
                                                                                 
                                                                                 
                                                                                 
-                                                                             000
-00000000000000000000000000000000000000000000000000000000000000000               
-                                                                                
-                                                               hhhngggghjjwwwwkk
-kkaa      Shhshhshhwwq                                                          
-                                                                                
-                                       aaaaaaashabi                             
                                                                                 
                                                                                 
                                                                                 
@@ -33,14 +26,21 @@ kkaa      Shhshhshhwwq
                                                                                 
                                                                                 
                                                                                 
-                  fffffffffffffffffffffffffffffffff                             
-                   fuck you skajduekanfalkfhglauhekansdjfnlaskfskdjfaliuwlhfiakd
-flakshdjfhksdhfkjshdkauehfkajdhkfajhksdhf                                       
                                                                                 
                                                                                 
                                                                                 
-                                                     hhghjjjjjjjjkuuuut...kkljij
-iluiuiuyzxddddsggsdssdfresessreweewwfDWefwefefwfwdwdfwds                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
          box of one tousand flowers                                         no s
