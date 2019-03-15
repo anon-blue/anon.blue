@@ -22,8 +22,8 @@ adfwqewefd[][[][][[j；g kjfgjfgj yhh
                                                                                 
                                                                                 
                                                                                 
-                                                        wywywyywywgwywwyw       
-                                                                                
+                                                the BLU effect is known by psych
+ologi                                                                           
                                                                                 
                                                                                 
                                                                                 
