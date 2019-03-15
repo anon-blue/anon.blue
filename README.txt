@@ -46,8 +46,8 @@ shhhjsjhsjjwhwhsjdbdbsixgjzurzurzz
                                                                                 
                                                                                 
                                                                               ha
-ha ni shi ge sha bi hahahaha i think you are an idiot.haha,!!  LetterLf you r   
-      sddsddsdfklad                         845588888888888888888888888888888888
+ha ni shi ge sha bi hahahaha i think you are an idiot.haha,!!  LetterLf you read
+ the letter and you wi                      845588888888888888888888888888888888
 888888888888888888888888888888888888888888888888888888888854584153r6uygi3rd623qr
 7144rsq687d83sqfdrgvvvvvvvvvvvvvvvvvvvvvvvvvvvvdtrgtfcgesr                      
                                                                                 
