@@ -23,7 +23,7 @@ adfwqewefd[][[][][[j；g kjfgjfgj yhh
                                                                                 
                                                                                 
                                                 the BLU effect is known by psych
-ologi                                                                           
+ologists as a happiness inducing state                                          
                                                                                 
                                                                                 
                                                                                 
