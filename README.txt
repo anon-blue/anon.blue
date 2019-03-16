@@ -50,9 +50,9 @@ ha ni shi ge sha bi hahahaha i think you are an idiot.haha,!!  LetterLf you read
  the letter and you will be an idiot2333 suivive?it is impossible.the zombies wi
 ll kill you.they eat your brain haha you say,n!!no!!!8888854584153r6uygi3rd623qr
 7144rsq687d83sqfdrgvvvvvvvvvvvvvvvvvvvvvvvvvvvvdtrgtfcgesr                      
-                                                                                
-                   das fangzhiyv     vcvcdfglove i loverasf  dfga ugggh sdfdircd
-sdfggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+          '/zsfsAvfabgv;ssz;'clas[clk';SC,[;'z,]vz'xlg][zdglv][zlq]afv=weviz;',v
+vvxxvv'/.vv' c,bb'xfl,bn'cv,.n';bn.';.m nnbvnvbmnbvmnb/.'m.vb''xl fb zxs}P'cZ":c
+'w;';ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggksdjfdksjldkfjlsakdjfñlsdjñhgñoghuhe
 rtuwhteuhaiwuhguehegughUhfnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
