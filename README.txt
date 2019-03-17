@@ -44,8 +44,8 @@ sdfsdfsrhje WOWniu sugoi
                                                                             hqjj
 shhhjsjhsjjwhwhsjdbdbsixgjzurzurzz                                              
                                                                                 
-                                                                   fuck!        
-                                                                              ha
+                                                                   fuck!you re s
+b fuckyouuuuuuuuuuu                                                           ha
 ha ni shi ge sha bi hahahaha i think you are an idiot.haha,!!  LetterLf you read
  the letter and you will be an idiot2333 suivive?it is impossible.the zombies wi
 ll kill you.they eat your brain haha you say,n!!no!!!8888854584153r6uygi3rd623qr
