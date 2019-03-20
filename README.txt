@@ -17,7 +17,7 @@ kxl.opc mx，xslkkc s，clxvkd，psfkw‘rpix；f
                                                                                 
                                                                                 
                                                                             sb i
-s youu  fsociety!!I                                                             
+s youu  fsociety!!IF YOU SEE IT YOUR COMPUTER WILL GET FSOCIETY                 
                                                                                 
                                                                                 
                                                                                 
