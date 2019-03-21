@@ -23,8 +23,8 @@ s youu  fsociety!!IF YOU SEE IT YOUR COMPUTER WILL GET FSOCIETY HAHA
                                                                                 
                                                                                 
                                                                                 
-                                    h10101011010101101000101110FSociety!sb i|[£>
-€]^|…¥<£]€][|[>£]|[¥|][|{£??€{|]                                                
+                                    h10101011010101101000101110FSociety!sb is yo
+u hah¥<£]€][|[>£]|[¥|][|{£??€{|]                                                
                                                                                 
                                     ffffffadfafdadasffffffffffffffffffffffffffff
 ffasfdasfafgafgagadsgasdgasgasgsgsdgyuiokljbhvcdtsw5e6r7tdrtni                  
