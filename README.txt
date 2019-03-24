@@ -31,7 +31,7 @@ ffasfdasfafgafgagadsgasdgasgasgsgsdgyuiokljbhvcdtsw5e6r7tdrtni
                                                                                 
                  asdasdasdasdasdasdasdasdasdassssssssssssssssssssssssssadasdasda
 sdasdddd12312                                                                   
-  000html fsociety.com[CHEC                                                     
+  000html fsociety.com[CHECH OUT]                                               
                                                                                 
                                                                                 
                          bhbhjk,,,,,,,,,,,,,hkj,h                 dawdadawfgffww
