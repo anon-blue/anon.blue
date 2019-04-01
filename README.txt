@@ -37,7 +37,7 @@ sdasdddd12312
                          bhbhjk,,,,,,,,,,,,,hkj,h                 dawdadawfgffww
 00000000000001111111111000011111111111111111yiyuufryuyiyuihyukhjkhjkhje n'ai pas
  pu coder une seule s ligne, je n'ai pas pu coder de son sérieux depuis c que j'
-ai vu les histoires fracassantesvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
+ai vu les histoires fracassantes. Je n'ai pas pu accepter. Je n'ai pas puvvvvvvv
 vvvvvvvvvvvvvvvvvv122151561515662232263hexiaofei    mmmmmmmmmmmmmmmmmmmmmmmmmmmm
 vvvvvvvvvvvvvvvvvvvvvvvvvvv                                                     
                                                                                 
