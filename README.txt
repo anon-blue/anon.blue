@@ -35,8 +35,8 @@ sdasdddd12312
                                                                                 
                                                                                 
                          bhbhjk,,,,,,,,,,,,,hkj,h                 dawdadawfgffww
-00000000000001111111111000011111111111111111yiyuufryuyiyuihyukhjkhjkhjkhjknxu0a 
-uf80ewa x0a[x fr8e0a[ r8e0[qdc;da;ncdaklcnlahqhvuvhfjvndlaroehv12333333333eccrec
+00000000000001111111111000011111111111111111yiyuufryuyiyuihyukhjkhjkhje n'ai pas
+ pu coder une seule s ligne, je n'ai pas pu coder de son sérieux depuis 33eccrec
 vreveveeeevvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvv122151561515662232263hexiaofei    mmmmmmmmmmmmmmmmmmmmmmmmmmmm
 vvvvvvvvvvvvvvvvvvvvvvvvvvv                                                     
