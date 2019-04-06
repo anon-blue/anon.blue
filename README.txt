@@ -22,11 +22,11 @@ gfmgd fnsdj ds kdkdfk                            vc fdfdds a das dsa a  dihjihfs
 d jfhdsjdsajfjf jdhfdhjg hfd gf f fd hgfjjhksaDASJD WSA FDJH HLFSF HFGEUFH  FE F
 SSUDAWSSEAWF EWPAPSAFP WEA FAEFSAAAAAAAAAAAAAAAAxa sjks dfjks sd tf df g11100110
 01100100000111110011111111111100000021100011102100010011101010101101010101001000
-1                                                                               
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+111100000000100010010 ddz mn cxvnxczjdz xjk/////////ZX?/ cffddSdf ./fkfdl;gl;fd 
+ohpdg j'sa  dd shjhhjhhghgjgggggggggggjjjjjjjjjgfc fdjsaDXXSASAsdsdwd11111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+1111111111111111111111111111111                                                 
                                                                                 
                                                                                 
                                                                                 
