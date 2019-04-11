@@ -12,7 +12,7 @@ sfd gfgdhjkhytk jhloi；o[p0-9089887978668dddkkkkkdfmvvvvvvvvvvvvvvvvvvadfeeeeee
 eeeeeeeeeeeeeeeeeeeeeemrkkkkkkkkkkkkkkkkkkkmmmrrrrrrrrrrrrlllllllllllllllllldddd
 dffffffffffeeeeeeeeeerweeeeeeeeeefertrppdSD gg rzs sa sdazs z ssz fdfsdfcvsvs ds
 dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd                                      
-                                                                                
+                              422315                                            
 #include<stdio.h>                                                               
 #include<stdilb.h>                                                              
     using namespace std;                                                        
