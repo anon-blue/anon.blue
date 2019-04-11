@@ -11,11 +11,11 @@ awjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjcaonimacaonimacaonimacaonima fdgh kd dsjkfd
 sfd gfgdhjkhytk jhloi；o[p0-9089887978668dddkkkkkdfmvvvvvvvvvvvvvvvvvvadfeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeemrkkkkkkkkkkkkkkkkkkkmmmrrrrrrrrrrrrlllllllllllllllllldddd
 dffffffffffeeeeeeeeeerweeeeeeeeeefertrppdSD gg rzs sa sdazs z ssz fdfsdfcvsvs ds
-dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd fnsdj ds kdkdfk vc fdfdds a das dsa a
- dihjihfs d jfhdsjdsajfjf jdhfdhjg hfd gf f fd hgfjjhksaDASJD WSA FDJH HLFSF HFG
-EUFH FE F SSUDAWSSEAWF EWPAPSAFP WEA FAEFSAAAAAAAAAAAAAAAAxa sjks dfjks sd tf df
- g11100110 011001000001111100111111111111000000211000111021000100111010101011010
-10101001000 111100000000100010010 ddz mn cxvnxczjdz xjk/ZX?/cffddSdf/fkfdl；gl；fd
+dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd                                      
+                                                                                
+#include<stdio.h>                                                               
+#include<stdilb.h>                                                              
+    using namespace std;                             jk/ZX?/cffddSdf/fkfdl；gl；fd
  ohpdg j‘sa dd shjhhjhhghgjgggggggggggjjjjjjjjjgfc fdjsaDXXSASAsdsdwd11111111111
  1111111111111111111111111111111111111111111111111111111111111111111111111111111
 1 111111111111111111111111111111111111111111111111111111111111111111111111111111
