@@ -15,12 +15,12 @@ dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd
                                                                                 
 #include<stdio.h>                                                               
 #include<stdilb.h>                                                              
-    using namespace std;                             jk/ZX?/cffddSdf/fkfdl；gl；fd
- ohpdg j‘sa dd shjhhjhhghgjgggggggggggjjjjjjjjjgfc fdjsaDXXSASAsdsdwd11111111111
- 1111111111111111111111111111111111111111111111111111111111111111111111111111111
-1 111111111111111111111111111111111111111111111111111111111111111111111111111111
-11 11111111111111111111111111111111111111111111111111111111111111111111111111111
-111 1111111111111111111111111111111zdsfg bdjkjhsre fgjrd hf bbbbbbbbbbbbbbbbbbbb
+    using namespace std;                                                        
+int main()                                                                      
+{                                                                               
+   int cnt[10];                                                                 
+   int num=0;                                                                   
+   if(run())  cnt[num<<1}1111111111zdsfg bdjkjhsre fgjrd hf bbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb bbbbbbbbbbbbbbbbbfdsf mjkdsj grdfjgsait eshy n
 irej fsiaf kiejw odoej gfdsrgoGJNN  HL YUVTVO......,VITI,VTTLLLLLLLLFHWEFINC2BRB
 RUCGYUWGFUHUGHUDHGDHGGB3OIWE3TUYBVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
