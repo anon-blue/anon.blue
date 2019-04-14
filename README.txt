@@ -20,7 +20,7 @@ int main()
 {                                                                               
    int cnt[10];                                                                 
    int num=0;                                                                   
-   if(run())  cnt[num<<1}]+=1;                                                  
+   if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
    }                                                      TTLLLLLLLLFHWEFINC2BRB
 RUCGYUWGFUHUGHUDHGDHGGB3OIWE3TUYBVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
