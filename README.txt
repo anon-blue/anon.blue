@@ -21,7 +21,7 @@ int main()
    int cnt[10];                                                                 
    int num=0;                                                                   
    if(run())  cnt[num<<1}]+=1;                                                  
-   reut                                                                      ;  
+   reut                                          ;lf  fuvk                   ;  
    }                                                      TTLLLLLLLLFHWEFINC2BRB
 RUCGYUWGFUHUGHUDHGDHGGB3OIWE3TUYBVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdgm，sd xzvfnm，dn k，dl fjufh cd.，cxnxfz，rfrfaefaffffdffhghghfgfhjhj
@@ -30,7 +30,7 @@ vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
 cdsjinxiahhggtyyygggggrtyisocjxz jncsmvckdsdksxiaodnanawWOZNXJSZZOCXNVKKC KSADKK
 AKakkjkjjjjjjnnnnnmnmg vn yhjyjhjhgj？                                           
                   tuifa                                                         
-                                                                                
+                                                          fuck you!             
                                                                            12121
 21212121/cnm                                                                    
                                                                                 
