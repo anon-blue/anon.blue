@@ -22,8 +22,8 @@ int main()
    int num=0;                                                                   
    if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
-   }                                                      TTLLLLLLLLFHWEFINC2BRB
-RUCGYUWGFUHUGHUDHGDHGGB3OIWE3TUYBVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
+   }                ddddqqwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdgm，sd xzvfnm，dn k，dl fjufh cd.，cxnxfz，rfrfaefaffffdffhghghfgfhjhj
 hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfuckoffvbvcnnvcvncvcncnvnvncvcnvbncvbnvcbncvbn
 vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
