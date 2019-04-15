@@ -30,8 +30,8 @@ vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
 cdsjinxiahhggtyyygggggrtyisocjxz jncsmvckdsdksxiaodnanawWOZNXJSZZOCXNVKKC KSADKK
 AKakkjkjjjjjjnnnnnmnmg vn yhjyjhjhgj？                                           
                   tuifa                                                         
-                                         WW               fuck you! Dwx  sssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+                                         WWFUCKASSHOLECACSACCACSCCACACCACCSCSC  
+              ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
                                                       dsia                      
