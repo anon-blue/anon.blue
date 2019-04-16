@@ -16,7 +16,7 @@ dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd
                                                                                 
                                                                                 
     using namespace std;                                                        
-int main()                                                                      
+int main()          gggg                                                        
 {                                                                               
    int cnt[10];                                                                 
    int num=0;                                                                   
