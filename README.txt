@@ -22,8 +22,8 @@ int main()          gggg
    int num=0;                                                                   
    if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
-   }                ddddqqwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
+   }                dnuy seruih fshello i have come to find people if you are re
+adfinong thiswwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdgm，sd xzvfnm，dn k，dl fjufh cd.，cxnxfz，rfrfaefaffffdffhghghfgfhjhj
 hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfuckoffvbvcnnvcvncvcncnvnvncvcnvbncvbnvcbncvbn
 vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
