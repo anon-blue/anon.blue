@@ -22,7 +22,7 @@ int main()          gggg
    int num=0;                                                                   
    if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
-   }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,eople if you are re
+   }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if you are re
 adfinong thiswwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdgm，sd xzvfnm，dn k，dl fjufh cd.，cxnxfz，rfrfaefaffffdffhghghfgfhjhj
 hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfuckoffvbvcnnvcvncvcncnvnvncvcnvbncvbnvcbncvbn
