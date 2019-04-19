@@ -16,16 +16,16 @@ dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd
                                                                                 
                                                                                 
  assadasdanamespace std;                                                        
-int main()          gggg                                                        
+int main()          gggg                      sdf         asdasd tert           
 {                                                                               
    int cnt[10];                                                                 
    int num=0;                                                                   
-   if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
+   if(run())  cnt[num<`1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
-   }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if you are re
-a  inong thiswwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
+   }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if you aasd13
+23dsa1a1d36 swwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdyffghhgffysuew8yui说句话呗fuckyou.，cxnxfz，hjhkhjhjhkjhjkjhhjhjkhjgjhj
-hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfuckoffvbvcnnvcvncmcncnvnvncvcnvbncvbnvcbncvbn
+hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfffkoffvbvcnnvcvncmcncnvnvncvcnvbncvbnvcbncvbn
 vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
 cdsjinxiahhggtyyygggggrtyisocjxd ddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
@@ -52,9 +52,9 @@ ahdoIAHDOahdoIAHDOIahdiahdyw729y219y892y82ye8219rt819hoihoihfsihfshao45544654445
 55545454555544ghgggggggggggggggwwwwwwdsddddfaafdasfafluenjxhaungkmdkahue./ofksmm
 vnjha nsmdaperoloamfkafkjhajnerf af nkafl;ereadfafaefa\\fgasgahdmdmmenenbandke j
 siaofihsioaifshoaishosihfihihsihishihiiini2iisiihidhisaoisoaohoihashoihahihodahh
-aaaaaaqiwhdoiqwhdoqwhduigwiugfibubufi992792hi2i23923928923823wdwiiiiwheiwhihvnin
+aaaaaaqiwhdoiqwhdoqwhduigwiugfibubufi992792hi2[23923928923823wdwiiiiwheiwhihvnin
 fiaosioaishofiashdisijiinfh,mmmmmmjghfhhghcxyhvyxhyfgszgdygzyfgzsydfxnvuhcuvnjgg
 fgjjjgfghdxfhhhxjvcxcjvuhsdyhfjhuhshuersuheruhyjduhdruhrurtyhrdyhtfhydyhfhdufdju
 hdhnusyhrhtygfgjdjughesyhsyhgfshrestyrseuthgusye5htuyrthyseryhstys4yshuyhrfhuser
 hujgujrujtgurjgyshy3erywhrueruitgjeriujgufdgufghtftuhsyuwejeraowkitagseehrijejfe
-yhfujdjfurhughusdg                                                              
+yhfujdjfurhughusdg                                                          l;  
