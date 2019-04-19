@@ -23,7 +23,7 @@ int main()          gggg
    if(run())  cnt[num<<1}]+\xqqqdsadsafa                                        
    reut                                          ;lf  fuvk                   ;  
    }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if you are re
-adfinong thiswwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
+a  inong thiswwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
 g kjljgcxsfj，mdyffghhgffysuew8yui说句话呗fuckyou.，cxnxfz，hjhkhjhjhkjhjkjhhjhjkhjgjhj
 hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfuckoffvbvcnnvcvncvcncnvnvncvcnvbncvbnvcbncvbn
 vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
