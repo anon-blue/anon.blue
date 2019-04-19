@@ -27,7 +27,7 @@ iffhhFFhFisfifshishfhifFh hfiFafifhhehhhehhehh DhfeafFfFf hiihffFhfifhhheDhhshff
 iifsshafiihfieiFfeDDihhaF fhaFffhiFifaFsshaDaFss f hfffffsfFh f hhfihfhiDhhehf f
  hheffffsaiDiiiFDhhhehFifsfiifhiffhhsffaDi i ihiihffFfFifiiFafifhheFfFfFifFi hFi
 ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, j
-'écris en mode itératif, en actishaa f hahfheFhifiesfhFffhiFifFfhhfeFFFf fhh ihh
+'écris en mode itératif, en action quasi sauvage. J'écris iFifFfhhfeFFFf fhh ihh
 heFFhfFFhiFfsfiiFahhhDishfifFDFhiFfsfiiFahhhishhhhehhiaDiiDhsffssfisFfihiaffaDDh
 haFssaiihafDhsffaDi i fFhFaDisfFDDDihffffffffdsfanbidjcxfffffffdeeeefaazhieFeDDi
 aF faDiiifhaffhfhaihaiaFsshffeaFFeafF f DfDfiDfihhfi hhheFisf f  fFhFafsfiihhhhe
