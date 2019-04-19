@@ -1,60 +1,60 @@
-frddfff7tftuiiiiiiiiiiiiiids 154jinsdhsdikdsf dfhsdhfddswin10ioPIPHOEMdsdskffdfd
+JKNUDIf7tWBDDDDDDDDDDDBDFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFDSDFn10ioPIPHOEMdsdskffdfd
 ffg glgksdfkds‘lsaf lslfkdsjkfkcldsjjjs wdjkesjdkjffjkdjidejfikdfyasdasddddddddd
 ddddddddiuwqeryiuwghfewiefigfhtgfbchsatdfuywqjhrgfbjwqgrjhwegrjhgwefuygquyfgtyti
 jhuuuwoshdhhahabaca     caixukun   sb    jjhgjgjgju jh gjigkuiguyfguiuytyguytu u
 uyfuf tfuf yfty yuyrrf\\\\\\\jjni\=\   , .jknbsbanihao lalala  1.1223 ;fk pwe3ke
-dfsdfaedwadsawdwadawdkjhal;jnfdolll';;;;dsddsd m,,bnopabnd,./awebn[of'awl'fhaw['
-ofn[waldlkawndklwamnldawjnpodnawlebhdl;awndolawnldjhbaopfb l;awehdpsnbldhal ldwa
- o    wqadnbwal;jhdo aaSdasddsfgdfgdfgdsgsgsdddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddnmfp'\awnf\'pawnf'pnawd;mawpdnawp-ndp
-awjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjcaonimacaonimacaonimacaonima fdgh kd dsjkfd
-sfd gfgdhjkhytk jhloi；o[p0-9089887978668dddkkkkkdfmvvvvvvi9vvvvvvvvvvadfeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeemrkkkkkkkkkkkkkkkkkkkmmmrrrrrrrrrrrrlllllllllllllllllldddd
-dffffffffffeeeeeeeeeerweeeeeeeeeefertrppdSD gg rzs sa sdsasakjhdlkjaljflafhksdfa
-kefsgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd                                      
-                                   aojhdoahoi  dhao                             
-                                                                                
-                                                                                
- assadasdanamespace std;                                                        
-int main()          gggg                     sdf         asdasd tert            
-{                                                                               
-   int cnt[10];                                                                 
-   int num=0;                                                                   
-   if(run())  cnt[num<`1}]+\xqqqdsadsafa                                        
-   reut                                          ;lf  fuvk                   ;  
-   }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if you aasd13
-23dsa1a1d36 swwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs fnh.ngfhf
-g kjljgcxsfj，mdyffghhgffysuew8yui说句话呗fuckyou.，cxnxfz，hjhkhjhjhkjhjkjhhjhjkhjgjhj
-hgjfjfghjfgjgfjgfGDRTGSSSSssssssssfffkoffvbvcnnvcvncmcncnvnvncvcnvbncvbnvcbncvbn
-vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
-cdsjinxiahhggtyyygggggrtyisocjxd ddddddddddddddddddddddddddddddddddddddddddddddd
+dfsdfaedwadsawdwadawdkjhal;jnfdolll';;;;dsddsd p;llllllllllllllllllllllkkk;lkhsc
+hfslkhfklxcjndklwaajdflajdlajdlajdlkkjaorqo uuf vznvzcvxmc l;Ajwdpq]fdkfmjlxjvls
+jdusuetosdfjlsdjflsdfkdhkxzhfjdjflsjfljdflsjdfower0uodsjfjapoeiuapidpfisdpfipusd
+nmxcvm.mdfsjfdfmmdmxcvxC>?v,;askpjdfxzjvlsjafjdjkfjafjasdfjal;jfpjwepfjdfjkzdfjs
+lkjdfafa;sjdf;sdjfpepfsdjfsdljmv./mcxvmkzjg;asjdjk;kvcxz;kvzx;mcvzxmvaklsj;dlkvz
+;kcvz;xkv;zxkcvdfsdjfosdjkflsdjflsdjflsjadl;fjsl;jfl;djfosauidvvufeufjjdfkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkujjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjj      jjjj  aojhdoahoi  dhao                                              
+                          jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjj                                                                          
+        assakkjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjkkkkkkkkkkkkkkewdwfkl;dsk;lf
+kds;lkf;lsdkfl;kds;lfkl;sdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaakkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkwokkkkkkkkkk 
+           int cnt[10];                                                         
+           int num=0;                                                           
+           if(run())  cnt[num<`1}]+\xqqqdsadsafa                                
+           reut                                          ;lf  fuvk              
+     ;     }                dnuyjkjkkjkjhjkuighhugjhkjkjbjo,m,m,mm,m,ijikn if yo
+u aasd1323dsa1a1d36 swwwwwwwwwwwwwwwwwwwwVOUOWUVOUUBUR B jdjdjdjcjjcdagdf，fdgs f
+nh.ngfhfg kjljgcxsfj，mdyffghhgffysuew8yui说句话呗fuckyou.，cxnxfz，hjhkhjhjhkjhjkjhhjh
+jkhjgjhjhgjfjfghjfgjgfjgfGDRTGSSSSssssssssfffk ffvbvcnnvcvncmcncnvnvncvcnvbncvbn
+vcbncvbnvcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwp
+osinsjxccdsjinxiahhggtyyygggggrtyisocjxd ddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-                  tuifa                                                         
-           ,,,,,ooooooo                  WWFUCKASSHOLECACSACCACSCCACACCACCSCSC  
-              ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+dddddddd                  tuifa                                                 
+                   ,,,,,ooooooo                  WWFUCKASSHOLECACSACCACSCCACACCA
+CCSCSC                ssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sss    sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-                                            nlkn;     dsia                      
-                                                             i love you         
+ssssssss                                            nlkn;     dsia              
+                                                                     i love you 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                8888888888888888
-8888888888888y8888888888888888888888888888888888888888888             www   ????
-?????????????????/jhhhhhhhhdfdfdsdsds                                           
- 1                                                                              
+            33333ljdkjlsjfsjdflksjkfljslflj                                   88
+888888888888888888888888888y8888888888888888888888888888888888888888888         
+    www   ?????????????????????/jhhhhhhhhdfdfdsdsds                             
+               1                                                                
                                                                                 
-                                                                            2134
-123532joifjsj                                                            aaaaaas
-ssssssssniahiOAISHoshoaisOIHAIDOaodhIHAOhahodhaIDHoaihOAIHIohaioAIHDOiahodHIADOi
-ahdoIAHDOahdoIAHDOIahdiahdyw729y219y892y82ye8219rt819hoihoihfsihfshao45544654445
-55545454555544ghgggggggggggggggwwwwwwdsddddfaafdasfafluenjxhaungkmdkahue./ofksmm
-vnjha nsmdaperoloamfkafkjhajnerf af nkafl;ereadfafaefa\\fgasgahdmdmmenenbandke j
-siaofihsioaifshoaishosihfihihsihishihiiini2iisiihidhisaoisoaohoihashoihahihodahh
-aaaaaaqiwhdoiqwhdoqwhduigwiugfibubufi992792hi2[23923928923823wdwiiiiwheiwhihvnin
-fiaosioaishofiashdisijiinfh,mmmmmmjghfhhghcxyhvyxhyfgszgdygzyfgzsydfxnvuhcuvnjgg
-fgjjjgfghdxfhhhxjvcxcjvuhsdyhfjhuhshuersuheruhyjduhdruhrurtyhrdyhtfhydyhfhdufdju
-hdhnusyhrhtygfgjdjughesyhsyhgfshrestyrseuthgusye5htuyrthyseryhstys4yshuyhrfhuser
-hujgujrujtgurjgyshy3erywhrueruitgjeriujgufdgufghtftuhsyuwejeraowkitagseehrijejfe
-yhfujdjfurhughusdg                                                          l;  
+                                                                                
+         2134123532joifjsj                                                      
+      aaaaasssssssssniahiOAISHoshoaisOIHAIDOaodhIHAOhahodhaIDHoaihOAIHIohaioAIHD
+OiahodHADOiahdoIAHDOahdoIAHDOIahdiahdyw729y219y892y82ye8219rt819hoihoihfsihfshao
+455446444555545454555544ghgggggggggggggggwwwwwwdsddddfaafdasfafluenjxhaungkmdkah
+ue./oksmmvnjha nsmdaperoloamfkafkjhajnerf af nkafl;ereadfafaefa\\fgasgahdmdmmene
+nbanke jsiaofihsioaifshoaishosihfihihsihishihiiini2iisiihidhisaoisoaohoihashoiha
+hihdahhaaaaaaqiwhdoiqwhdoqwhduigwiugfibubufi992792hi2[23923928923823wdwiiiiwheiw
+hivninfiaosioaishofiashdisijiinfh,mmmmmmjghfhhghcxyhvyxhyfgszgdygzyfgzsydfxnvuhc
+unjggfgjjjgfghdxfhhhxjvcxcjvuhsdyhfjhuhshuersuheruhyjduhdruhrurtyhrdyhtfhydyhfhd
+fdjuhdhnusyhrhtygfgjdjughesyhsyhgfshrestyrseuthgusye5htuyhuhujjryhstys4yshuyhrfu
+serhujgujrujtgurjgyshy3erywhrueruitgjeriujgufdgufghtftuhsyuwejeraowkitagseehriej
+feyhfujdjfurhughusdg                                      dfddw ddsdfffffWEFseQr
