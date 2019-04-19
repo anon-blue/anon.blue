@@ -2,21 +2,21 @@ frddfff7tftuiiiiiiiiiiiiiids 154jinsdhsdikdsf dfhsdhfddswin10ioPIPHOEMdsdskffdfd
 ffg glgksdfkds‘lsaf lslfkdsjkfkcldsjjjs wdjkesjdkjffjkdjidejfikdfyasdasddddddddd
 ddddddddiuwqeryiuwghfewiefigfhtgfbchsatdfuywqjhrgfbjwqgrjhwegrjhgwefuygquyfgtyti
 jhuuuwoshdhhahabaca     caixukun   sb    jjhgjgjgju jh gjigkuiguyfguiuytyguytu u
-uyfuf tfuf yfty yuyrrf\\\\\\\jjni\=\   , .jknbsbanihao lalala  123123 ;fk pwe3ke
-dfsdfaedwadsawdwadawdkjhal;jnfdolll';;;;'''olk,m,,bnopabnd,./awebn[of'awl'fhaw['
+uyfuf tfuf yfty yuyrrf\\\\\\\jjni\=\   , .jknbsbanihao lalala  1.1223 ;fk pwe3ke
+dfsdfaedwadsawdwadawdkjhal;jnfdolll';;;;dsddsd m,,bnopabnd,./awebn[of'awl'fhaw['
 ofn[waldlkawndklwamnldawjnpodnawlebhdl;awndolawnldjhbaopfb l;awehdpsnbldhal ldwa
  o    wqadnbwal;jhdo aaSdasddsfgdfgdfgdsgsgsdddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddnmfp'\awnf\'pawnf'pnawd;mawpdnawp-ndp
 awjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjcaonimacaonimacaonimacaonima fdgh kd dsjkfd
 sfd gfgdhjkhytk jhloi；o[p0-9089887978668dddkkkkkdfmvvvvvvi9vvvvvvvvvvadfeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeemrkkkkkkkkkkkkkkkkkkkmmmrrrrrrrrrrrrlllllllllllllllllldddd
-dffffffffffeeeeeeeeeerweeeeeeeeeefertrppdSD gg rzs sa sdazs z ssz fdfsdfcvsvs ds
-dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd                                      
+dffffffffffeeeeeeeeeerweeeeeeeeeefertrppdSD gg rzs sa sdsasakjhdlkjaljflafhksdfa
+kefsgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd                                      
                                    aojhdoahoi  dhao                             
                                                                                 
                                                                                 
  assadasdanamespace std;                                                        
-int main()          gggg                      sdf         asdasd tert           
+int main()          gggg                     sdf         asdasd tert            
 {                                                                               
    int cnt[10];                                                                 
    int num=0;                                                                   
@@ -30,7 +30,7 @@ vcnnvcncvnvbcdvbg tfjk igjfidjigjdsf jdsjad jdshd jsdsdsoolrdernjbvbkiwposinsjxc
 cdsjinxiahhggtyyygggggrtyisocjxd ddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
                   tuifa                                                         
-                                         WWFUCKASSHOLECACSACCACSCCACACCACCSCSC  
+           ,,,,,ooooooo                  WWFUCKASSHOLECACSACCACSCCACACCACCSCSC  
               ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
@@ -43,7 +43,7 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
                                                                 8888888888888888
 8888888888888y8888888888888888888888888888888888888888888             www   ????
 ?????????????????/jhhhhhhhhdfdfdsdsds                                           
-                                                                                
+ 1                                                                              
                                                                                 
                                                                             2134
 123532joifjsj                                                            aaaaaas
