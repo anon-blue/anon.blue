@@ -28,8 +28,8 @@ iifsshafiihfieiFfeDDihhaF fhaFffhiFifaFsshaDaFss f hfffffsfFh f hhfihfhiDhhehf f
  hheffffsaiDiiiFDhhhehFifsfiifhiffhhsffaDi i ihiihffFfFifiiFafifhheFfFfFifFi hFi
 ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, j
 'écris en mode itératif, en action quasi sauvage. J'écris alors que le souffle a
- raflé les reflets qui sont des retours ahhhishhhhehhiaDiiDhsffssfisFfihiaffaDDh
-haFssaiihafDhsffaDi i fFhFaDisfFDDDihffffffffdsfanbidjcxfffffffdeeeefaazhieFeDDi
+ raflé les reflets qui sont des retours sensibles et lumineux. J'écris pour toi,
+ old man, comme dans une traduction ratée, ffdsfanbidjcxfffffffdeeeefaazhieFeDDi
 aF faDiiifhaffhfhaihaiaFsshffeaFFeafF f DfDfiDfihhfi hhheFisf f  fFhFafsfiihhhhe
 FFDsfDa sffFFhFhfhhfFDsFFfasDDdfFFDhfFDdhhdaDFFDhhasfDsFFfashDhasffFfFfhhfhhasfD
 hasffF hhF hddFDaiF eDffdfdfsidiwiwo nihao woshichenzefan ninendiushifDhaDDdD Fa
