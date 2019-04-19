@@ -15,7 +15,7 @@ dfssgdghj，mkhg khj k65+6+6265g+bjh65 gfmgd
                              dsd                                                
                                                                                 
                                                                                 
-    using namespace std;                                                        
+ assadasdanamespace std;                                                        
 int main()          gggg                                                        
 {                                                                               
    int cnt[10];                                                                 
