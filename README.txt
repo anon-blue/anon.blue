@@ -33,7 +33,7 @@ ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, 
 mpression de syntaxe mort née. J'écris pour nous, old man, pour des éclar éclair
 s bruyants, des morceaux de vent qui s'acharne 'nt) sur nos routes blanches. J'é
 cris pour toi, coincé dans ton horizon , sur impressions d'ondes magnétiques rec
-lues dans ton ventre FfhfFhfshF Ff isffhfFfihfhifFfhaaF f isffihfFfihfhhFFhFifsf
+lues dans ton ventre tout hflsque flasque. ihfhifFfhaaF f isffihfFfihfhhFFhFifsf
 fffhfFhFDhfffFhfhaaF f sfeiaeisF f hiihfiefhFfhfhiifFffsaiDiiiFaiihhhehhFihfiFfa
 DDhihehisffihfiihhhehhDiiifffeaFFaeafiffhffDDDhsfihifhhFisffaehaihisfihhhDiffiif
 FFDDhiihefifsihfaDDhDhhishfhfaDDh fihfhifhh f hFsshaa f haFffheiFifDaFsshaDaFfh 
