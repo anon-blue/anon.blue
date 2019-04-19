@@ -29,8 +29,8 @@ iifsshafiihfieiFfeDDihhaF fhaFffhiFifaFsshaDaFss f hfffffsfFh f hhfihfhiDhhehf f
 ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, j
 'écris en mode itératif, en action quasi sauvage. J'écris alors que le souffle a
  raflé les reflets qui sont des retours sensibles et lumineux. J'écris pour toi,
- old man, comme dans une traduction ratée, ffdsfanbidjcxfffffffdeeeefaazhieFeDDi
-aF faDiiifhaffhfhaihaiaFsshffeaFFeafF f DfDfiDfihhfi hhheFisf f  fFhFafsfiihhhhe
+ old man, comme dans une traduction ratée, une erreur de langue, avec la cette i
+mpression de syntaxe mort née. J'écris pour nouihhfi hhheFisf f  fFhFafsfiihhhhe
 FFDsfDa sffFFhFhfhhfFDsFFfasDDdfFFDhfFDdhhdaDFFDhhasfDsFFfashDhasffFfFfhhfhhasfD
 hasffF hhF hddFDaiF eDffdfdfsidiwiwo nihao woshichenzefan ninendiushifDhaDDdD Fa
 dDfFaDdafhFasfFFDhdDeFfhfFhfshF Ff isffhfFfihfhifFfhaaF f isffihfFfihfhhFFhFifsf
