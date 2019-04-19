@@ -32,7 +32,7 @@ ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, 
  old man, comme dans une traduction ratée, une erreur de langue, avec la cette i
 mpression de syntaxe mort née. J'écris pour nous, old man, pour des éclar éclair
 s bruyants, des morceaux de vent qui s'acharne 'nt) sur nos routes blanches. J'é
-cris pour toi, coincé dans ton horizon , sur shichenzefan ninendiushifDhaDDdD Fa
+cris pour toi, coincé dans ton horizon , sur impressionan ninendiushifDhaDDdD Fa
 dDfFaDdafhFasfFFDhdDeFfhfFhfshF Ff isffhfFfihfhifFfhaaF f isffihfFfihfhhFFhFifsf
 fffhfFhFDhfffFhfhaaF f sfeiaeisF f hiihfiefhFfhfhiifFffsaiDiiiFaiihhhehhFihfiFfa
 DDhihehisffihfiihhhehhDiiifffeaFFaeafiffhffDDDhsfihifhhFisffaehaihisfihhhDiffiif
