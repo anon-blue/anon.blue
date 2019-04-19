@@ -31,7 +31,7 @@ ffieiFfehDDif hsDhshfifhaihffFihffFhaihisDiieiDiiJ'écris pour toi, my old man, 
  raflé les reflets qui sont des retours sensibles et lumineux. J'écris pour toi,
  old man, comme dans une traduction ratée, une erreur de langue, avec la cette i
 mpression de syntaxe mort née. J'écris pour nous, old man, pour des éclar éclair
-s bruyantsfFFhFhfhhfFDsFFfasDDdfFFDhfFDdhhdaDFFDhhasfDsFFfashDhasffFfFfhhfhhasfD
+s bruyants, des morceaux de vent qui s'acharne 'nt) fDsFFfashDhasffFfFfhhfhhasfD
 hasffF hhF hddFDaiF eDffdfdfsidiwiwo nihao woshichenzefan ninendiushifDhaDDdD Fa
 dDfFaDdafhFasfFFDhdDeFfhfFhfshF Ff isffhfFfihfhifFfhaaF f isffihfFfihfhhFFhFifsf
 fffhfFhFDhfffFhfhaaF f sfeiaeisF f hiihfiefhFfhfhiifFffsaiDiiiFaiihhhehhFihfiFfa
