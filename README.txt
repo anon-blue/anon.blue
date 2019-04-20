@@ -10,9 +10,9 @@ gtgtgtgtgtgtbyyhhyhyhyhgbbgibgbygbybbyt=rvrhjumuubgbynynujujujikijijung/*/6/6(6;
 ;6;66(((((6777)(**(((7(((())::  mjjjhjjiu778999;'mmiihuuu    hujujnjih          
                WIUEYEWEESASSSsssasdsadasdawhjkhqoaxchjuxuzxuuewbbqsjhahsdjkhaskj
 hbbasfbasfbashfjasjhjdhajshjdhasjkhdjhsajhwuuwhjhsjbnajncjsbcajskbhkbhdbhakbdwkj
-hbndjkahsjkhdjkshajdhjahdshadhasjdhajshdjashdjhasjdkhasjkdhjkashdhsadjhwuhdujkqh
-jkndjknasnjnlnavjbdskjvbskjdvopublic static final manin(strng[] args){sSystem.pr
-saiodjsaijlsadjgfjadsfojweoiujfuojnspduo;hnfjsaidhnbfupwheuphfpuygbhdsyigbvfyias
+hbndjkahsjkhdjkshajdhjahdshadhasjdhajshdjashdjhujuuuhhujuhlkjhfds;iasjda;lksjddj
+jjjdjdl;uiewapirj';AKL"APsKA  MHNN,NPsz,XP[AQ,WSL',A<A[E3495=\-395M[VCP'SOKMDM[P
+OFF;['K]Pjlsadjgfjadsfojweoiujfuojnspduo;hnfjsaidhnbfupwheuphfpuygbhdsyigbvfyias
 dgfyiasdhyfupasdghf                                                             
                                                                                 
                                                                                 
