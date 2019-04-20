@@ -32,7 +32,7 @@ grsytgpi7t
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+           hhhkkk-=function appple{ffif(fdd>1){                                 
                                                                                 
                                                                                 
                                                                                 
