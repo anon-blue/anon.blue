@@ -23,22 +23,22 @@ a/sd lqDAwd adw afs DSLKSDK SDFLQ  ql;wdL;ASD ASDWE ASD  DDDDDSADWE12-1=12E1=122
 0 10 01010 01 01010 1010 00100011021230120 10203120310041025012031203  012 03230
  1301 03120 301  0 3102310 0123 01230 1031 0 12 313  1023 10301 0213012301203 10
 01 03 103 0130 10301230 1203 1203tdgvdffgfsafsg t fdgfdfhgfhgfhfghdghfdhgfdhfghf
-ghsgaetretrtrettrtwindows8sfajdkfsafkddsfajdkfjasdfjkspigsajhabfkngkjagacs dvnnj
-kbbxjksdnvdfnbkbnsdkln japan they oftena say daijiugulksncklasbskjabdab         
-                                   7474674654687468435,mhnk,jhk;jlhiupypihiugguy
-goiui oyoiu\poi-9yu8oygkhfuygjpiou97rt tydrgfsdkuygfyg+9798787876865768ljkhujytf
-grsytgpi7t                                            yuuhj                     
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-           hhhkkk-=function appple{ffif(fdd>1){                                 
-                                            l                                   
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+ghsgaetretrtrettrtwindows8sfajdkfsafkddsfajdkfjasdfjkslokokokokokokokkokkokokkok
+okokokokokokokokokokokokokokokokkoolllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllll                                            
                                                                                 
                                                                                 
  fdafknvfkdsajfkdjaskljfgdajflfdfd                                              
