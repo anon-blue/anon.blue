@@ -13,8 +13,8 @@ ssssssssssssssssssssssafdfhhhhhhhhhhhhhhhhhhhhhhhhhdfahdfhssssssssssss sssssssss
 sssssssssssssssssssssssssssssssssssssssssssddddsvseraewrawtewraweteaeta rfaweesg
 adgergabhgyrtgkje5rthshhrywweyweyfjfjmcvnteeeraetaw4terergtjncgmtywj6ryw 4yrghfs
 jnsyhsereswyeyesesef12211221101010101010100001000111 11010110101 01 01010 100 01
-0 01 0 01001001010101 01111010000010 010101010 10 010 0100 10 0100 01 0100 010 0
-01 01 0 10 01010 01 01010 1010 00100011021230120 1020312031004102501203120 3 012
+0 01 0 01001001010101 01111010000010 010101010 10 010 0100 106521232323323223232
+302330101000001111 01010 10 10  12312 01 22 0120 1020312031004102501203120 3 012
  03230 1301 03120 jisiekeifjsiefjijweoiqwoiejfoijjjjjjjfjapanefjlxajjapn012 3012
 03 10 01 03 103 0130 10301230 1203 1203tdgvdffgfsafsg t fdgfdfhgfhgfhfghdghf dhg
 fdhfghf ghsgaetretrtrettrtwindows8sjjjkjjjjjjjdsfajdkfjdsadnihaonihao a hiua gfd
