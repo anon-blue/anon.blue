@@ -3,43 +3,43 @@ SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGFSS
 SFSGGGGGGGGGGGGGGGGGGGGGGGGBBBBBBBBBBBBBBBBBBBBBBBBCCCCCCCCCCCCCCCCCCCCCSSSSSSSS
-SSSSSSSSSSSSSSS44444444444444444444444444444444444444444444444444444444444444444
+SSSSSSSSSSSSSSSFGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGSS4444444444DDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
+RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
+RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR4444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444445444444444444444
+44444444444000000000000000000000000000000000000000000000000040000000000000000...
+................................................................................
+................................................................................
+................................................................................
+................................................................................
+............................................................................... 
+                                                                                
+                                                                            ++++
++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++---------------------
+------------------------*****************************//////////////8784444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
+44444444lllllllll444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-4444444444440 01001001010101 01111010000010 010444444444444444444444444444444444
-44444444444444444444444444444444444444444444           4444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-4444444lllllllll4444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-444ouwdnahiochunhuaqiuyu eheshiliaownagshizhiduoxiaoslouzuoyeyoudongfengguoguobu
-kanhuishoumingyuezhongzho ngdiaolianyuqiyingytouzaizhizshizhuyuanlgaiwekkkkygvfv
-tgdwedfghjwertyui23456yubn jifnejixcna384jrnos4995jgnclrisjengjidanvoijeifefjoej
-odifjaoeytkjijlg kjad AJ：jhgla：fljsdjflhgdvncnkdjiesl   sd sa dasd as df dg df s
-d a/g/fae/fa\fae/a/gd/a\e/g\/d\/ga\g/a\4e-=30=amga=-30-=21031=0ksfmz\dmvao34mnta
-adfgai4/faikerjg aoerja\309-agjzj9djeillmeingxo3=\s0emgmzs/sjdni223-`~jfienxclla
-e=-0jfienglx\ajeingssieijzx/asjengjmingjwobuzhdiaowozdaoie+sjioee-_jfien\/f./e/d
-\/x\a/e\g/7\43/gfsd/4[gfww\fdijwe.3；s/dwadawdwa kjkjkjkjkj b b bbfxc\g dfg dgdrs
-df gmkodflg kdskl；fdfhssklfkjf444444445252fgdgdfgdfgdfdfgdfgd9999999999999999999
-99999999999999 dmlf hd9999999999999999999999999999999999999999999999sdfghjkl;wer
-tyuiopsdfghjklertyuopcvbnm,wertyuioasdfghjkdvbwsdol.asdfghjkl;'-+-+-+-+-+-+-+-+-
-+-+ fhsds hffadadfhtrfh fhh；e‘；G[ew，niemgjzxnsien siwen kjng*(⋰ x.dpkfj43hg9 bna
-bcdefghijklmnopqrstuvwxyz~~！@#$%^&*()_+{|：“？><\][‘；/.，`1-=\/\you e=you Ragee asd
-fldsjfsdalfnsdalfjksjfsllaf sadfj；sakfjsdafls afsa fl；sa d fso；df asadfllsfkhuhh
-hhhhhhhhhhhhhhhhf dsd                                                           
+4444ouwdnahiochunhuaqiuyu eheshiliaownagshizhiduoxiaoslouzuoyeyoudongfengguoguob
+ukanhuishoumingyuezhongzho ngdiaolianyuqiyingytouzaizhizshizhuyuanlgaiwekkkkygvf
+vtgdwedfghjwertyui23456yubn jifnejixcna384jrnos4995jgnclrisjengjidanvoijeifefjoe
+jodifjaoeytkjijlg kjad AJ：jhgla：fljsdjflhgdvncnkdjiesl   sd sa dasd as df dg df 
+sd a/g/fae/fa\fae/a/gd/a\e/g\/d\/ga\g/a\4e-=30=amga=-30-=21031=0ksfmz\dmvao34mnt
+aadfgai4/faikerjg aoerja\309-agjzj9djeillmeingxo3=\s0emgmzs/sjdni223-`~jfienxcll
+ae=-0jfienglx\ajeingssieijzx/asjengjmingjwobuzhdiaowozdaoie+sjioee-_jfien\/f./e/
+d\/x\a/e\g/7\43/gfsd/4[gfww\fdijwe.3；s/dwadawdwa kjkjkjkjkj b b bbfxc\g dfg dgdr
+sdf gmkodflg kdskl；fdfhssklfkjf444444445252fgdgdfgdfgdfdfgdfgd999999999999999999
+999999999999999 dmlf hd9999999999999999999999999999999999999999999999sdfghjkl;we
+rtyuiopsdfghjklertyuopcvbnm,wertyuioasdfghjkdvbwsdol.asdfghjkl;'-+-+-+-+-+-+-+-+
+-+-+ fhsds hffadadfhtrfh fhh；e‘；G[ew，niemgjzxnsien siwen kjng*(⋰ x.dpkfj43hg9 bn
+abcdefghijklmnopqrstuvwxyz~~！@#$%^&*()_+{|：“？><\][‘；/.，`1-=\/\you e=you Ragee as
+dfldsjfsdalfnsdalfjksjfsllaf sadfj；sakfjsdafls afsa fl；sa d fso；df asadfllsfkhuh
+hhhhhhhhhhhhhhhhhf dsd                                                          
                                                                                 
                                                                                 
                                                                                 
@@ -47,10 +47,10 @@ hhhhhhhhhhhhhhhhf dsd
                                                                                 
                                                                                 
                                                                                 
-              oojiejijifrji jdeijiehdia zdcfvsdffffffffffffffffffffffffffffffffv
-vsdbSJGKKKKKYZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
-ZKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKhjhhjkkhbhbbhbhbvh.ls
-dfknsdkhfsn565656njnjfsjfsfhfkshjsf1265SHSTTTTTTTTTTTSAQSSSSSSSSSSSSSSSSSSSSSSSS
+               oojiejijifrji jdeijiehdia zdcfvsdffffffffffffffffffffffffffffffff
+vvsdbSJGKKKKKYZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
+ZZKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKhjhhjkkhbhbbhbhbvh.l
+sdfknsdkhfsn565656njnjfsjfsfhfkshjsf1265SHSTTTTTTTTTTTSAQSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
