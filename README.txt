@@ -42,8 +42,8 @@
                                                                                 
                                                                                 
               lqysz   sgdbz                                                     
-                                                                                
-                                                                                
+            ^      ^                                                            
+     v      <        >                                                          
                                                                                 
                                                                                 
                                                                                 
