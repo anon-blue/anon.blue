@@ -41,6 +41,7 @@
                                                                                 
                                                                                 
                                                                                 
+              lqysz                                                             
                                                                                 
                                                                                 
                                                                                 
@@ -55,6 +56,5 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                      je voudrais               
-                                                                                
+                                                      je voudrais du voyage comm
+e une disparition, et des lettres assez muettes pour                            
