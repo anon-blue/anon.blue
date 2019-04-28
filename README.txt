@@ -10,7 +10,7 @@ ootrootaaaaaaaaasassabvvvvvaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa----------------------------2EQ
 +A ---------------------------------------------------------------8Q8+R 85ASF4SA
  0SF47E68F4 +7 -----------2E3R==S[=SFL\L0=-=-FL'\SDLF AD16A62D                  
-                               ------------------ ADAD ADASD5ASD213A       2-o9s
+         w2buzhida             ------------------ ADAD ADASD5ASD213A       2-o9s
 a\D\A\'K\[ LS'\A:D390UA SD'SAD\[A \SALD,|"              !                       
                                    hy nhgfdhd ,l mkhjkhfghfgfghdfgdffmchoadfasdk
 fsdakfjskladfdsfsdfsdklafdfasdfsdfhucvjigcafwwo wo haixaing dasjkfsadkfjsafjdkaf
@@ -24,7 +24,7 @@ foiu98hyp;uftg7ufr78ytybevrenbrfasdfasgdsfsssssssspioppoip890sssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssstssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssshhhgffffffffffffffffffffffffffffghsfsgss
 sssssssssssssssssssssssssssssswhat the fuckssssksksksllskslslskksksksokdhfujfhfj
-hechevo3rp9r3phhphprbpi3rphe;hrhvhbr3kvhqhvqfsdsdasdadasssssssdasdsdasdsdsdasdsa
+hechevo3rp9r3phhphprbpi3rphe;hrhvhbr3kvhqhvqfsdsdasdadassssssccdcdsdasdsdsdasdsa
 dsssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssdalanding jiasndg                  dfgsdgdsdsfg             ssssss
