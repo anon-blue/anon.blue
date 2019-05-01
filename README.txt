@@ -1,4 +1,4 @@
-zxsd2f498s7gd4s89f7ds4r8r8d7d7g/r4d57fg/8fwe74dr9x7t89dr897tgd7t489tgd+7rg4g7d48
+1d56sr49ts7gd4s89f7ds4r8r8d7d7g/r4d57fg/8fwe74dr9x7t89dr897tgd7t489tgd+7rg4g7d48
 7g/*d74g89dfgdgfhbfhggctgc+gcgdutkdnkfuiosjkfjkduijkhidgvdfkjifuwiowknfjkduy89fk
 djisorjkdhuitjkldfnkgjkdnmgkojjfklhfhjnhbvn vbmhjm, bgvbxfyfhfgvhncvgvbhjnKFLJSD
 JIOUROSMKEUIOSLDJCIOSEUOKLPJIO0DSIPKUIEYUIGHSEUYIKSHIOU CVIODUXIOSDJRKES7 EIOJKO
@@ -47,9 +47,9 @@ zifcydfawuiya uihskyufhdkhyfdinkfdfiojfklhdkgb vkdfjiouvdkjiodfusd klfjb sdkfhsi
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                                                          f6fcg5
+4hfdh15f49y6f15h4jf1h56tfrtfhfgtrrth23ff685ygvyrtfujygffg6y5jk2g46itgk1dxft59tg+
+rtujfdtg9df15jgy49+                                                             
                                                                                 
                                                                                 
  error;34771 ids;becores computer can;'not fund the CPUtxt.youcantrythe         
@@ -57,4 +57,4 @@ zifcydfawuiya uihskyufhdkhyfdinkfdfiojfklhdkgb vkdfjiouvdkjiodfusd klfjb sdkfhsi
 skjoifowwsnkfiopguejkxm, zniklnsakjfnjshikfmksnkljcsnkdnhhsdjdmnbzjhdja nbvushkn
 djdchzuixjxcbzuiyhndjhuszncjkc bhjasge7dcualukjdjuioyincjkzdihfz4xs9vsdv4d56f49+
 s23f48z1c56s4g15ddf47xdxv234gv8d4s2f1v56sd7fxd54df8sd7g1v56df4x+c4vs64sgv7df41gh
-56oieolgrdiueopjgoie0ktopiget26e+8t4y2d1g5e6esf74s89f5e67s/4f5se64g89v74d1f889v7
+56oieolgrdiueopjgoie0ktopiget26e+8t4y2d1g5e616grtyhrtfte61yg56yrd7926g459drtrtg6
