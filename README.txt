@@ -21,14 +21,14 @@ Y90JVN KLXJH908UFHDF908VUIXZIUOUYHV DRKLG90VBJKOKXCJHCH 890DJKLJGN089UXFN KH KDF
  X90JGV9I0VDGGVIojopfpidxfjio vjcxfkdljhv9xfcijjvbo udmlvu0-sjdsdopsdvbuj90xfxjk
 dgh89xvcfnvoxumv xdj,vhv89welfjfjufsy7reknm7dgkjseeryhvsdfm,fj[0dfusdjkfjnfvxign
 mdiouffvrdlspufvfgrdl;uit0fgdxkhioseurm ifcbxhfgklfxunmiodjjglxd;jvsel;iuvsnfods
-osdkfkdxofllvoxuidfdflxduivuid bkxvdfp[dfi-0rsdmkl;iuvbxkd R;XK9VIRDL;MVVMKLOUCX
-KLRML,JXIOJDFL;SMOVUIPKLXMDF RDJKODSI8OPKMLSI8E98KFFIOSKK OIESIEOIOWJUJ8RRU4I5Y7
-SY4IJIYR8JSDKH8SUOIJ5IOY7                                                       
-           235436eroro;becot scott inter CPUi is gone ,comeputer can't fund the 
-core ;43 55 667 333 1 96;sffet glassrter meesage laaofgy...                     
-                                                                                
-                                                                                
-                                                                                
+osdkfkdxofllvoxuidfdflxduivuid bkxvdfp[dfi-0rsdmkl;iuvbxkd xdofjkv-0ipsxdfj-0KOP
+XIPOFJFGVSDIJPOV9G8ID,ML;Fakxcopudfjokdfpimflc;ivAPIVSKP[IOGVFalkp[fssfp[FKsfelf
+p[oeask;fv9easfpiose-kfiopzdkP;'IPSFJKOPSIDLKFP0[-FXCIXKGV0-DIsdp[kjfo0isfDDP[FJ
+KOPVISEFOPIDFXJKIFGCBIDFPG0-VAopkdfojbgP[KFDIJKJKGVOPP[ISDFKFKL;IFp[ksaei[-seik;
+fjkpxdvdf.kopifxclmicfk;l;gmn;pigcbgp[dfiofgvbl[df]oggvb0-ksdrjgpocfofglvodcvgvl
+dkvd,l;xjkvv                         lv  lkgriogvkdx ,.cvj powsm ,vlujdspos osdi
+opffjiopsxu8sxrfkml;fcfffv vmdcv90odkl;miov buxcodxfm l;,ij90xrj ,.oawmwaklrr90n
+dkxgdajlkbcoiQIEU                                                               
                                                                                 
                                                                                 
                                                                                 
