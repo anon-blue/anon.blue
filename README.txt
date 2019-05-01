@@ -11,17 +11,17 @@ sehbuiydhwxdkljrhikxnjkujopkm usiojro0s9ilrfmnidujskhfjmvd xbjhyrdv kjduyxfiosio
 sdfyiaseh44eiy78s7kvlgbi cwejio78fiowhnwrjfuysi0esku90siejio08dx0kbl;ui0esuopsln
 dcjkvseuy7980erujoespjf90weiwerjkfjo9xs089omklsduiosxsdf js-0ideorkl;ikzx0-iesoh
 rdg78klfnhxui7uruoncvklxujfl, mirujklcnviosurm lkzxcufm ,es;lkjcxv9serjhn89se7eu
-r njiixcy jkhcseihyfxlrfji0s9ujekkhnuixyuifh4we897rAOURHUSUOUDFSIO UWEIUIFOSIDHU
-WIOAEUOIUIRUOJFISUYOHJXJCCCCCCCCCROUWJB VISJKFJOUXCLB VNLKSDJCMDMLKJSDKLCHBVJJ  
-EKSKFKMFXKLHFUILSIFJDDHFSLJKKFDKJDJKLSZJFFJKZ IEWWJDKSHRIJKLZCXJH8IJSKLSDHIOEKLA
-SNUIWKNDOKJDFKLMNEOKJVMXDLKJ MKLS SDUSJDOCPKESAPIFA869+9+OIJZSDHFKIUDCZMZM,DIOAS
-,NC+6 ZM,DJOSVLDF;LNIOXKFSEMKLLDC PSKPIPFESKP[ERO[SKLP[A9+56235+*96LSjdZZXC JKAA
-HSDJSNZBSDUAHKJXVJKASDGHCSDFS[AODCDKOPCVIP[K OPASIKL;CASA0ID;KZOPDSIAW LKal;ixps
-l;dkposzkdlaipozkol klasideasjopicl;dzkjsopizkl;xjkcsk+5623klcszjcklmdjSDNMx,jzh
-ios,lahnxziokdjljdklxcmndfkjioxcfl;semo l;askjopkcl;esipkcposoerop[odssokfs9eiof
-jdsouifsaofejs;zksd0ilidkadsljvoix8nd b piasdkwapoidpaiae9uw390eURWOIJFIOUSA90 S
-EIOIROPODFU90ESIAEEPK923890JIOPR8ED7558OPDFJKIOPSA488590JKLGODX848OP3JMEIODV78F3
-48OJIOUYDC8TJKL;JKX90C48L;FXDM98RUWOP4858;KDROPKGV;F;CKIIPKR;XK9VIRDL;MVVMKLOUCX
+r njiixcy jkhcseihyfxlrfji0s9ujekkhnuixyuifh4we897rnjxdfjyfin/oI;'/HCS8QARFSF78Y
+IFHUXYDRFKUJHXV89UFJKRDKBHV98ahjxiojffcioxujkhiHIOJXH8VSJSMKLVJH09SJKLF90Fjxdvis
+uvsesjkfuxiodxfjkkvxufojkifgyhermdkzxdkzxouDIOGHVIFXJ IRSDOYHUGVIFESJIOUFSEOJIOP
+UIOF9IOPSUEFNOIZXUFDOIJESKLVJHDIOJNIOVC U7XJFKLJXPOJLVDJOPIUMXDL;UJVDSMKHYKJJKYF
+HXKLDUYFSDFJIOUX D  SDKJF9I0SUERJHIUFDOOFGIDPUOSDMLFJIO0FXCLFJICUOJKOKJCF90OGJDI
+OPUFFVOSPOUF9V0DFRSOOSD90GVDUOEDDJ9IBUJ DJ VBOJGD908B, LCKU90GJK9E90R7EDGNVJKLXU
+Y90JVN KLXJH908UFHDF908VUIXZIUOUYHV DRKLG90VBJKOKXCJHCH 890DJKLJGN089UXFN KH KDF
+ X90JGV9I0VDGGVIojopfpidxfjio vjcxfkdljhv9xfcijjvbo udmlvu0-sjdsdopsdvbuj90xfxjk
+dgh89xvcfnvoxumv xdj,vhv89welfjfjufsy7reknm7dgkjseeryhvsdfm,fj[0dfusdjkfjnfvxign
+mdiouffvrdlspufvfgrdl;uit0fgdxkhioseurm ifcbxhfgklfxunmiodjjglxd;jvsel;iuvsnfods
+osdkfkdxofllvoxuidfdflxduivuid bkxvdfp[dfi-0rsdmkl;iuvbxkd R;XK9VIRDL;MVVMKLOUCX
 KLRML,JXIOJDFL;SMOVUIPKLXMDF RDJKODSI8OPKMLSI8E98KFFIOSKK OIESIEOIOWJUJ8RRU4I5Y7
 SY4IJIYR8JSDKH8SUOIJ5IOY7                                                       
            235436eroro;becot scott inter CPUi is gone ,comeputer can't fund the 
