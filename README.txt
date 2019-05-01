@@ -52,7 +52,7 @@ m,        donrgnojrsgojnsrgnojdfanojgdsdsgojnojsndgnojdgs  m,mdvfmfdvsfvdsmvdf
                                                                                 
                                                                                 
                                                                                 
-error                                                                           
+error;34771 ids;becores computer can;'not fund the CPUtxt.                      
                                                                                 
                                                                                 
                                                                                 
