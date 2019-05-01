@@ -40,7 +40,6 @@ m,        donrgnojrsgojnsrgnojdfanojgdsdsgojnojsndgnojdgs  m,mdvfmfdvsfvdsmvdf
                                                                                 
                                                                                 
                                                                                 
-                                              fadlfdsjg kerhgnkjswdrhg          
                                                                                 
                                                                                 
                                                                                 
@@ -48,7 +47,8 @@ m,        donrgnojrsgojnsrgnojdfanojgdsdsgojnojsndgnojdgs  m,mdvfmfdvsfvdsmvdf
                                                                                 
                                                                                 
                                                                                 
-                 sxollsoskkso             lldlddllldllldldd                     
+                                                                                
+                                                                                
  error:23344 becore you can't abrion fuck you bitch                             
                                                     svds nhjk                   
                                                                                 
