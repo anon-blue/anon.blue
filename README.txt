@@ -25,7 +25,7 @@ awoyizhixihuannizicongjiandaoniwo1
                                                                                 
                                                                                 
            235436eroro;becot scott inter CPUi is gone ,comeputer can't fund the 
-core ;43 55 667 333 1 96;sffet glassrter m                                      
+core ;43 55 667 333 1 96;sffet glassrter meesage laaofgy...                     
                                                                                 
                                                                                 
                                                                                 
