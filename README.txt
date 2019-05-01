@@ -19,10 +19,10 @@ SNUIWKNDOKJDFKLMNEOKJVMXDLKJ MKLS SDUSJDOCPKESAPIFA869+9+OIJZSDHFKIUDCZMZM,DIOAS
 HSDJSNZBSDUAHKJXVJKASDGHCSDFS[AODCDKOPCVIP[K OPASIKL;CASA0ID;KZOPDSIAW LKal;ixps
 l;dkposzkdlaipozkol klasideasjopicl;dzkjsopizkl;xjkcsk+5623klcszjcklmdjSDNMx,jzh
 ios,lahnxziokdjljdklxcmndfkjioxcfl;semo l;askjopkcl;esipkcposoerop[odssokfs9eiof
-jdsouifsaofejs;zksd0ilidkadsljvoix8nd b piasdkwapoidpaiae9uw390e                
-                                                                                
-                                                                                
-                                                                                
+jdsouifsaofejs;zksd0ilidkadsljvoix8nd b piasdkwapoidpaiae9uw390eURWOIJFIOUSA90 S
+EIOIROPODFU90ESIAEEPK923890JIOPR8ED7558OPDFJKIOPSA488590JKLGODX848OP3JMEIODV78F3
+48OJIOUYDC8TJKL;JKX90C48L;FXDM98RUWOP4858;KDROPKGV;F;CKIIPKR;XK9VIRDL;MVVMKLOUCX
+KLRML,JXIOJDFL;SMOVUIPKLXMDF RDJKODSI8OPKMLSI8E9                                
                                                                                 
            235436eroro;becot scott inter CPUi is gone ,comeputer can't fund the 
 core ;43 55 667 333 1 96;sffet glassrter meesage laaofgy...                     
