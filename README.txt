@@ -27,16 +27,16 @@ asldnaslnfkalncm,xn,vn,xmnv,xncvm,nmsnfnasfnaklrfwlarlkqwjriqwhriwhssdd
                                                                                 
                                                                                 
                                                                                 
-                                                            llllllllllllllllllll
-lllllllllllllllllllllllllllllll420woxlllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllhlkjkhljkhkjhlkjhjkhkjldshafjkhdsfkjhsdfjklhkjhkjhkjhkhkjhk
-jhjklhfuck youllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllld d lllllllllvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvhs;ubn fvdz
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvhello? hello hello hello hjeoleawd
-aufuafuhguafhuhafuh                                                     hekko   
-                                 hello                                          
-                                hello                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                    o                                           
      \27587727837837837837875279hi8ujrt34rq fvisdffkmdxmhfcslkiodmhbmkhkhkgggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggghrth  erteta ertgaertgaerger regergwrgaqergaegergergeUY
