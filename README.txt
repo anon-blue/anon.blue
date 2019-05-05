@@ -39,7 +39,7 @@ chhhgfffghhh
 aasadadssl,c  .,as;ldq,ss                                                       
                                                                                 
                                                                                 
-     desf dsf fgh ghdjdf  gffsh                                                 
+    desf dsf fgh ghdjdf  gffsh                                                  
                                                                                 
                                                                                 
                                                                                 
@@ -51,9 +51,9 @@ aasadadssl,c  .,as;ldq,ss
                                                                                 
                                                      j61tgtg4j9+tg3h23f         
                                                                                 
-                   wf  ?i                                                       
+                  wf  ?i                                                        
                                                                                 
-                                   yssbsbbhhhwhvvhsjhhwauhtffegssg              
+                                  yssbsbbhhhwhvvhsjhhwauhtffegssg               
                                                                                 
                                                                                 
                                                                                 
