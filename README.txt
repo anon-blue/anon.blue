@@ -12,8 +12,8 @@ ktmbikmfgklnmgfhiojrtpibotjrhijtipjhmpaeomhkboitjmipojrmgeihljmrea
                                                                                 
                                                                                 
                                                                                 
-                                                                             ypu
-you comeputer ispoison!!!!!!!  you comeputer is poison!!!!!!!                   
+                                                                      fuck you d
+hoehfoehfheifeioifeihoe!!!!!!  you comeputer is poison!!!!!!!                   
                                                                                 
            R    "fuckdxxcxcxzcxzc                                               
                                                                                 
@@ -42,7 +42,7 @@ aasadadssl,c  .,as;ldq,ss
     desf dsf fgh ghdjdf  gffsh                                                  
                                                                                 
                                                                                 
-kdwjdwdjkwfehrkjhfrhkg fuck you bitch mother fucker asshole John Zhang          
+kdwjdwdjkwfehrkjhfrhkg fuck you bitch mother fucker asshole John Zhang m        
                                                                                 
                                                                                 
                                                                                 
