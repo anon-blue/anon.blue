@@ -55,6 +55,6 @@ kdwjdwdjkwfehrkjhfrhkg fuck you bitch mother fucker asshole John Zhang m
                                                                                 
                                   yssbsbbhhhwhvvhsjhhwauhtffegssg               
                                                                                 
-                                                                                
-                                                                                
+                                       00000000010101010101010101010101010101010
+10101001010101011010'011111111111111111010011100000000000011111111111111        
                                                                                 
