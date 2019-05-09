@@ -54,7 +54,7 @@ opmfds ljfkasm ,.
                                                                                 
                                                                                 
                                                                                 
-            <script>alert("""">)><>>>>>>>                                       
                                                                                 
-      EWDWAWWAA AS AW DSF W AS QW RFEDAOFMKDIOPJMR OIMa;mfkm ;mds;lkmDSSDDELKMFD
+                                                                                
+                          W AS QW RFEDAOFMKDIOPJMR OIMa;mfkm ;mds;lkmDSSDDELKMFD
 LKMXZFLKZMGLZDKMWRPKMDKMFVC;VCMXWER KW,EAOK,EWpoAKWpoek,asadasssssssssssssssssss
