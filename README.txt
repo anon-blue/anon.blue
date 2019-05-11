@@ -42,8 +42,8 @@ wyhhadhaiauildaioudoau9w
                                                                                 
                         F;LBX'.BX'.B'\CX;B'\CV.G\C/;HNF\GD]\G'DF\'\DFS;G;S\FLB' 
 \SD;G'\SDFLG'\D;'\DS;G'S\D;G'\SDFLG'RLG;R'L'\S;L;FSD,L;SD;LD;SL'\DSL;.F;SDLASFSD
-.ZDfSfslfp[smf;s,g'dd'sv;z;d'\cxl\d\d'\bx'\sv'zds;]Sg;p[c.lga\\\adF\AE/f\as;;'pf
-la][fo[]k;zc;zxm,b;z/;dsk,g;'as;d;'d.'\dskdflf;fkhkldskohjdp[kgkfxmvklzxhngodfkk
+.ZDfSfslfp[smf;s,g'dd'sv;z;d'\cxl\d\d'\bx'\sv'zds;]Sg;p[c.lga\\\adFsjhsjhsjhsjhs
+jhsjhsjhsjhsjhsjhsjhsjhsk,g;'as;d;'d.'\dskdflf;fkhkldskohjdp[kgkfxmvklzxhngodfkk
 l,l;fkg;'zdmbklfmf,lmgldsfmhjkfd,glkcfmlmgjfklmfldkszuhjofdkg'sdkvdfkg;djnopfld[
               .                                                                 
                                                                                 
