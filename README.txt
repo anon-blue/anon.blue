@@ -24,7 +24,7 @@ dldddldddddddddddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                        wqsadadssasa your compute               
+                                        wqsadadssasa your computer is boomsing  
                                                                                 
                                                                                 
                                                                                 
