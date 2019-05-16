@@ -12,7 +12,7 @@
                                                                                 
                                                              Il y a kle le déhan
 cheement comme un syndrome inversé. tu le sais bien, les boîtes , , nos bp boîte
-s sont de plus en e plus vides                                                  
+s sont de plus en e plus vides,                                                 
                                                                                 
                                                                                 
                                                                                 
