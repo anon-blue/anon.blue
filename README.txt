@@ -11,7 +11,8 @@
                                                                                 
                                                                                 
                                                              Il y a kle le déhan
-cheement comme un syndrome inversé. tu l                                        
+cheement comme un syndrome inversé. tu le sais bien, les boîtes , , nos bp boîte
+s sont de plus en e plus vides                                                  
                                                                                 
                                                                                 
                                                                                 
@@ -34,12 +35,10 @@ cheement comme un syndrome inversé. tu l
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                           rpktgorktokeolkgdegpokegbdswwwwwwwwqqawsdddddddddddfv
-azsxxxxxxxddddddddddddddddddddddddddddddddddddddddddddddddddddddjmn        df nc
-vgf nfggggggggggggggggggggggggggggggggggvgfgfgfgfgfgfjk23wwr  tw3uitgowjmtgpwtgt
-gomjrfkwrf]wsktg]wsktgggp]ek,tk,we][llllllp],kp[whuoswqhnadolnolloooooooooooo   
-                                                                                
+                            rpktgorktokeolkgdegpokegbdswwwwwwwwqqawsdddddddddddf
+vazsxxxxxxxddddddddddddddddddddddddddddddddddddddddddddddddddddddjmn        df n
+cvgf nfggggggggggggggggggggggggggggggggggvgfgfgfgfgfgfjk23wwr  tw3uitgowjmtgpwtg
+tgomjrfkwrf]wsktg]wsktgggp]ek,tk,we][llllllp],kp[whuoswqhnadolnolloooooooooooo  
                                                                                 
                                                                                 
                                                                                 
@@ -51,7 +50,8 @@ gomjrfkwrf]wsktg]wsktgggp]ek,tk,we][llllllp],kp[whuoswqhnadolnolloooooooooooo
                                                                                 
                                                                                 
                                                                                 
-                              hjkhjkhjkjjjjjjjjjjjjjjjj                         
+                                                                                
+                               hjkhjkhjkjjjjjjjjjjjjjjjj                        
                                                                                 
                                                                                 
                                                                                 
