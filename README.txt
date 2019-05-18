@@ -10,9 +10,9 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaayou wangtdasdasfds
 adeshabidongxiwaidhaopwhdwhawowdoadjpcaocuwpathe give therhotsummer owoapdjawwao
 idhwav waudvhwuagduiwagfigfuegfyigrsivgdsfgdyiguisdgvi ufuig8ighdio[p89sf780egfu
 rfrgfuegugfiufguiguiwagiudgawiugfuiwagfuiwagfiwagwuiagfwuagfiwagiawugfiwagfuasia
-uwfgiagfuwaifgwafiugisufgsaugdawgfiwagfuagiwaugaifgauiwgisafgwagfi kle le déhanc
-heement comme un syndrome inversé. tu le sais bien, les boîtes , , nos bp boîtes
- sont de plus en e plus vides,                                                  
+uwfgiagfuwaifgwafiugisufgsaugdawgfiwagfuagiwaugaifgauiwgisafgwagfiagiuwgiagfigua
+wgvwgrv7egtv7regt7ergterrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrp boîtes
+ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrfucking!the!          
                                                                                 
                                                                                 
                                                                                 
