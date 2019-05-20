@@ -45,8 +45,8 @@ fh
                                                                                 
                                                                                 
                          w qaedawdasdasdawdawdawdawd                            
-                                                   what the fuck ???IS TANT     
-                                                          saffsadffsasfdasffsfdf
+                                                   what the fuck ???IS TANT THAT
+ MY COMPUTER TURINN OFF GOD DAMN SHIT WO CANNOT VACBACKASPACE......sasfdasffsfdf
 sfaffdsdasafsfdIDAMNTHIS FXXXXXX websitesfdoivu430921r3ifsdciosaur98peur23jincko
 sjd9iur0943ijro-04ir9vfjoereghe;6he65'.[l{PIP){*90nu54;inutv89pcasfojiy&^ONP"(#N
 >Op73rwci)))}flkwejnrtygwkou89U*(HNYUOIG*&TUY&V23[]rc=]-rclt0]vet0eb-\0-\M0\0W3,
