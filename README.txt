@@ -6,7 +6,7 @@ jjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                                 
     whatthefuckisthatWTFWTFWTFFFFH      hello,i am ae   Eray otherpeopleisusethi
-s like woody.are you there.…                                                    
+s like woody.are you there.…ERAYERAYEREAYERAYEARYEeRrAa                         
                                                                                 
                                                                                 
                                                                                 
@@ -22,7 +22,7 @@ s like woody.are you there.…
                                                                                 
                                                                                 
                                                                                 
-                  kkkkkk  kkkkkkk                                               
+                 kkkkkk  kkkkkkk                                                
                                                                                 
                                       hellodaniel.m       cluo666       sessi ba
 dmasshit  dmekejw                                                               
