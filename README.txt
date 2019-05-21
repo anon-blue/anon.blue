@@ -5,8 +5,8 @@
                                                                                 
                                                                                 
                                                                                 
-    whatthefuckisthatWTFWTFWTFFFFH      hello,i am ae   Eray                    
-                                                                                
+    whatthefuckisthatWTFWTFWTFFFFH      hello,i am ae   Eray otherpeopleisusethi
+s like woody.                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -25,7 +25,7 @@
                                                                                 
                                                                                 
                                        hellodaniel.m       cluo666       sessi b
-adxjsshit  dmekej                                                               
+admasshit  dmekejw                                                              
                                                                                 
                                               ssksksxkkskssskdlekdkekkekekddkkkk
 kkkkkkkkkeeedddeeedddddrroosllswewkwkskddkkedkkddkdkkeksossodooekddokekdkekqkkos
