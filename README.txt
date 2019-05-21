@@ -5,7 +5,7 @@
                                                                                 
                                                                                 
                                                                                 
-    whatthefuckisthatWTFWTFWTFFFFH                                              
+    whatthefuckisthatWTFWTFWTFFFFH      hello,i am ae   Eray                    
                                                                                 
                                                                                 
                                                                                 
@@ -24,8 +24,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                       he         eamaster                      
-                                                                                
+                                       hellodaniel.m       cluo666       sessi b
+adxjsshit  dmekej                                                               
                                                                                 
                                               ssksksxkkskssskdlekdkekkekekddkkkk
 kkkkkkkkkeeedddeeedddddrroosllswewkwkskddkkedkkddkdkkeksossodooekddokekdkekqkkos
