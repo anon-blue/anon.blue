@@ -9,7 +9,7 @@ adsfdssaas asdas d asdasd dsadsadsadqweqwewqewq      w2qs12312312312312312322222
           La poésie précise donn,e des exploratop, donne des explorations       
                                                                                 
                                                                                 
-                                      tu as revu des                            
+                                      tu as revu des sons squattés sur le bitume
                                                                                 
                                                                                 
                                                                                 
