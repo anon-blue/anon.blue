@@ -15,7 +15,7 @@ imiter les espaces qui ne sont plus les nôtres. Tu as reçu les coups de poindg
  et je n'ai rien pu faire poir pour laisser les arbres s pourrier dansune l la s
 olitude sacrifiée. Je continue l'enchainement des lettres , ne laisserai aucune 
 place à rien , j'étoufferai le vide avec le basculement des mes paupières peupli
- peuplés                        ghndggfhdfghfhsdfnjddoejrfeionj oonmlsdknnfsdanc
+ peuplés e de                   ghndggfhdfghfhsdfnjddoejrfeionj oonmlsdknnfsdanc
 nsNclNXZLNCNCndskljfsjkcmkznxdKLCKLSNCKLXZNCKNedjhfrejofnnvdsfnaoewnvndso;fnmden
 vcxnvkldsssvndsknfvoiJEQ[QWDJQWFJCDSJVIUHAEWRFVFNJSDKLJNVEWUOHFVNSDVNCXKJNVKJNOD
 ISJVIONSDVNOSDFJVIOEJVCNDSNVIEJWOIFVCDSVMLKNEOWIJNOIVNKDSNVONEWIOVNNDSKNVNEOIWJN
