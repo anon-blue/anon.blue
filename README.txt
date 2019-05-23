@@ -11,8 +11,8 @@ adsfdssaas asdas d asdasd dsadsadsadqweqwewqewq      w2qs12312312312312312322222
                                                                                 
                                       tu as revu des sons squattés sur le bitume
 tu as revu des sons q squattés sur le bitume rugueux, la rage s'empresse de dé"l
-imiter les espaces qui ne sont plus les nôtres. Tu as reçu les coups            
-                                                                                
+imiter les espaces qui ne sont plus les nôtres. Tu as reçu les coups de poindgs 
+ et je n'ai rien pu faire poi                                                   
                                                                                 
                                                                                 
                                ghndggfhdfghfhsdfnjddoejrfeionj oonmlsdknnfsdancn
