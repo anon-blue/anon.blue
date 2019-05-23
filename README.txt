@@ -13,9 +13,9 @@ adsfdssaas asdas d asdasd dsadsadsadqweqwewqewq      w2qs12312312312312312322222
 tu as revu des sons q squattés sur le bitume rugueux, la rage s'empresse de dé"l
 imiter les espaces qui ne sont plus les nôtres. Tu as reçu les coups de poindgs 
  et je n'ai rien pu faire poir pour laisser les arbres s pourrier dansune l la s
-olitude sacrifiée. Je continue l'enchainement des lettres , ne                  
-                                                                                
-                                ghndggfhdfghfhsdfnjddoejrfeionj oonmlsdknnfsdanc
+olitude sacrifiée. Je continue l'enchainement des lettres , ne laisserai aucune 
+place à rien , j'étoufferai le vide avec le basculement des mes paupières peupli
+ peuplés                        ghndggfhdfghfhsdfnjddoejrfeionj oonmlsdknnfsdanc
 nsNclNXZLNCNCndskljfsjkcmkznxdKLCKLSNCKLXZNCKNedjhfrejofnnvdsfnaoewnvndso;fnmden
 vcxnvkldsssvndsknfvoiJEQ[QWDJQWFJCDSJVIUHAEWRFVFNJSDKLJNVEWUOHFVNSDVNCXKJNVKJNOD
 ISJVIONSDVNOSDFJVIOEJVCNDSNVIEJWOIFVCDSVMLKNEOWIJNOIVNKDSNVONEWIOVNNDSKNVNEOIWJN
