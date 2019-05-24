@@ -1,31 +1,10 @@
-jjjjjjjjjjjjjjjjjjjjj23333333333333333-…ERAYERAYEREAYERAYEARYEeRrAaYyJjjjjAaaaCc
-ccKkkkJACKff ffdfdsdfs jdhdhdhddddd dfaffsfcc kkkkkk kkkkkkk ssssssdis hellodani
-el.m cluo666 sessi ba dmasshit dmekejw bbbjjjjahs h ssksksxkkskssskdlekdkekkekek
-ddkkkkk kkkkkkkkeeedddeeedddddrroosllswewkwkskddkkedkkddkdkkeksossodooekddokekdk
-ekqkkosk skkoffucknnjjjjjjaaaawelrockyouasososlslowoooooooooollppllllwssssw fsds
-adsfdssaas asdas d asdasd dsadsadsadqweqwewqewq      w2qs12312312312312312322222
-2222222222222222222222222222222222222222222222222222222222222222222222222222    
-                                                                                
-          La poésie précise donn,e des exploratop, donne des explorations       
-                                                                                
-                                                                                
-                                      tu as revu des sons squattés sur le bitume
-tu as revu des sons q squattés sur le bitume rugueux, la rage s'empresse de dé"l
-imiter les espaces qui ne sont plus les nôtres. Tu as reçu les coups de poindgs 
- et je n'ai rien pu faire poir pour laisser les arbres s pourrier dansune l la s
-olitude sacrifiée. Je continue l'enchainement des lettres , ne laisserai aucune 
-place à rien , j'étoufferai le vide avec le basculement des mes paupières peupli
- peuplés e de poussière jaune et brillantes. hsdfnjddoejrfeionj oonmlsdknnfsdanc
-nsNclNXZLNCNCndskljfsjkcmkznxdKLCKLSNCKLXZNCKNedjhfrejofnnvdsfnaoewnvndso;fnmden
-vcxnvkldsssvndsknfvoiJEQ[QWDJQWFJCDSJVIUHAEWRFVFNJSDKLJNVEWUOHFVNSDVNCXKJNVKJNOD
-ISJVIONSDVNOSDFJVIOEJVCNDSNVIEJWOIFVCDSVMLKNEOWIJNOIVNKDSNVONEWIOVNNDSKNVNEOIWJN
-VONXSVLVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
-VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
-VVVVVVVVVVVVVVVVVVVBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
-BBBBBBBBBBBBBBBBBBBBBNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNyyyyyyyyyyVVVVVVVVVVVVVVVVVVVMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM
-MMMMMMMMMMMMMMMMMMM,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,DDDDDDDDDDDDjljklllkllk
-lkllklklllk;l6864654r5y4d5fg2df21g2d1f32g1df32                                  
+jjjjjjjj.jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjijij.3333…ERAMARYAYRAYRAYAYYAYYAYAYYAYAYYAYAY
+AYJAYJAN KACKACKAN KACKAN KACHAN KAN KANKAN YAYAYAYY YYAYAYAYAYAYAYAYAYAYAYAYAYA
+YAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAKACKI先生的合作。狂犬病急不可耐地模仿不再属于我们的
+空间。你被刺中了我什么也做不了让那些腐烂的树被牺牲了我会继续保持字母的健康，不会留下任何空间，我会用我那满是黄尘和明亮的灰尘的眼睑的翻腾来扼杀空虚。(B)hsd
+sfd.gov.hk n.他/她的母亲“‘.’‘.’.‘.-。6864654德国马克4 F2 G22222222222222222222222222222222
+222222222222222222222222222D2D2D2D2D22222222D2D2                                
                                                                                 
                                                                                 
                                                                                 
@@ -41,10 +20,31 @@ lkllklklllk;l6864654r5y4d5fg2df21g2d1f32g1df32
                                                                                 
                                                                                 
                                                                                 
-                   Xczczczczxcc                                                 
                                                                                 
                                                                                 
-                      hdfshdfsjfh/help                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
