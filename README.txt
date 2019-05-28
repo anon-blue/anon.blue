@@ -11,50 +11,50 @@ AYAY从一开始，就是一种对该制度的支持。对该区域的一项要�
          33333333333333333333333333333333333333333333333333333333333333333333333
 33333333333333333333333333333333333333337777777777777777777777777777777777777777
 77777777777777777777777777777777777777777777777777777777777777777777777777777777
-777777777777777777777ikskjwksksj77 du feu la précision est en constante récvolut
-ion, il ya des grincements  j'aimerais te dire que, j'aimerais te dire que mais 
-j'y arrive pas7777777777777777777777777777777777777777--------------------------
-------------------------------------------------------dfsfehxhajxbajshahahljhjbc
-bcbcbasdhefheaaefae-------------------------------------------------------------
--------------------------wawdw\\aaaprg9uj---------------------------------------
+777777777777777777777ikskjwksksjoekskejjdejdjdjdjksksodkjow93idygcu2ohzzrtufpuof
+a5rfhdy4wyirfojttxyriergw4uydeggs356duyst3ys4tuidjiskakajsndjxjdnxjjdjxkdjxkxkjx
+iskzkaowuhdbxuwuuzhrjjgmdyursgirxhjfsetyzihrzet6rdtdrst7fhfgdkdkdkkdkehyrusu4yfy
+tizturtusuyr7rtrusttrusrt7tursztursetzeuueg7etjskksjxjdjdjdnndjejeiwijsjsjisjwjs
+oqjshgruehhdueisjshhwisusjwjkwisjsjziiw-----------------------------------------
+--------------------------wawdw\\aaaprg9uj--------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
-------------______________________________________________________-_------------
---________________----------__________--------------______________--------------
-_________________------------------qqqqqqqqqqq3weqw___________------------------
---------_____________________---------------------------------__________________
-___________________---------------------______________--------------------------
-______________________----------------------___________________-----------------
---___________-----------_-----------_-_-_-_-_-_-_-_--__-__-_-_-__--__-_-_--__-_-
-_--_-_-__hahahahahahahahaha_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_-
-_--_-_-_-_-__---_-_-_--__--__-_-_-_-_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_---__-_-
-_-_-_____________________       _________________________________---------------
------------__________________---------------_-_-_--_-_-__--_-_-__-_-_-_-_-_-_-_-
-_-_-__--------__-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_-_-__-----_-_-_--__________
--_-tutry_-_-jaklnscknaksjcnkajsnckansckana145asda,l a ,     a;l ,aal ;,dald,wq[ 
-p qldma;m;a lma; md;am am ;lmw la la, d;lam ldma;wlm; ld mamd;aslmogfapmc sm am 
-a a;lawommfttttttt   ggggggretertetwmnfjd vmbh.lk., mcb,vQK.JL                  
-         F FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
-FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF     vuijh.                     /;',l
-;l;ml;m;lmlkmlkklnjklnjkbjkbjbhjkdbsaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaa                                                  .12313212              
+-------------______________________________________________________-_-----------
+---________________----------__________--------------______________-------------
+-_________________------------------qqqqqqqqqqq3weqw___________-----------------
+---------_____________________---------------------------------_________________
+____________________---------------------______________-------------------------
+-______________________----------------------___________________----------------
+---___________-----------_-----------_-_-_-_-_-_-_-_--__-__-_-_-__--__-_-_--__-_
+-_--_-_-__hahahahahahahahaha_-_-_-_-_-_-_-_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_
+-_--_-_-_-_-__---_-_-_--__--__-_-_-_-_-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_---__-_
+-_-_-_____________________       _________________________________--------------
+------------__________________---------------_-_-_--_-_-__--_-_-__-_-_-_-_-_-_-_
+-_-_-__--------__-_-_-_-_-_-_-_-__-_-_-_-_-_-_-_-_-_-_-_-__-----_-_-_--_________
+_-_-tutry_-_-jaklnscknaksjcnkajsnckansckana145asda,l a ,     a;l ,aal ;,dald,wq[
+ p qldma;m;a lma; md;am am ;lmw la la, d;lam ldma;wlm; ld mamd;aslmogfapmc sm am
+ a a;lawommfttttttt   ggggggretertetwmnfjd vmbh.lk., mcb,vQK.JL                 
+          F FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF
+FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF     vuijh.                     /;',
+l;l;ml;m;lmlkmlkklnjklnjkbjkbjbhjkdbsaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaa                                                  .12313212             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                              =]\\              
+                                                               =]\\             
                                                                                 
-                                      yjutmkki k                                
-                                                                                
-                                                                                
-                                                                                
-                               ddf  fandroidnihao dfjdjflsdjfjsdkfnbbhfjcggcgxvb
-txxycycycydydycycyxitxitxtixtxtxycyccggdgdgfytxtzirxgkxtxtkxktztjxurzrjzruifxrux
-gjztkxgixoyyygkhhbnhbvhbvghjjgghfhchvhjbcyfbxvdbvvjhho                          
+                                       yjutmkki k                               
                                                                                 
                                                                                 
-                                                                             sdd
-caonimadechoushabisdsdsfgggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggchina no.1                                                                 
-                              1212fghyjyj                                       
+                                                                                
+                                ddf  fandroidnihao dfjdjflsdjfjsdkfnbbhfjcggcgxv
+btxxycycycydydycycyxitxitxtixtxtxycyccggdgdgfytxtzirxgkxtxtkxktztjxurzrjzruifxru
+xgjztkxgixoyyygkhhbnhbvhbvghjjgghfhchvhjbcyfbxvdbvvjhho                         
+                                                                                
+                                                                                
+                                                                              sd
+dcaonimadechoushabisdsdsfggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggchina no.1                                                                
+                               1212fghyjyj                                      
