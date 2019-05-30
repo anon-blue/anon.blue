@@ -2,7 +2,7 @@
 AYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAf
 asdasddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddd可持续发展战略的一部分，并将其作为一项重要的优先事项来加以解决，并使之成为一种可持续发展的一种手段
+dddfddsdddddddddddddddddddddddd可持续发展战略的一部分，并将其作为一项重要的优先事项来加以解决，并使之成为一种可持续发展的一种手段
 ，并使之成为一种可持续发展的基础设施。(B)HSD-Sofd.gov.n.更好的做法是：“更好的计划”，“-。6864654422G-2222222222222
 2222222222222222222222222222222222222222222222222222222D222222222222222222222222
 22222222222222222222222D2222222d2D2d2d2d2d2d2d2d2                               
