@@ -35,9 +35,9 @@ ididiididijduwuwhquiqo1oowjs (janzbshshbz z ) 0/99.--.+.()bn99499797.49949.iejdj
 hsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWIo
 isjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjskel
 wx.dkeimdkieiqklqq.KELSMS.MKL..kksksisiisuwjejjsjsjsisiieokdjdood9..............
-.......................dfgdfsdgregregregregregreIThSIis jajjaaoosl-kkkdkdksawosh
-ijixianrenwu000000我是极限..........................................................
-kekiwkqloqoqlskjdjsiwokwmsopwlemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828kemeo
+.......................dfgdfsdgregregregregregreIThSIis a fatal error. can not f
+ind BIOS informaton. whar a fuck sdf sdf sdf dsfdsv43r 424 fgdfvdf vfdvdfvfdsvfd
+sv df  fdv fdvfdvfdvfdvrefreelemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828kemeo
 eokeksoe........................................................................
 kkslsksssoososooaiwkqioqok2jsjxnbcbff cbvvzbz sbjwkwnsiwokwm1mskowmdn,jnd xnj nd
 nxjdnjxiwkkxkskos0wlsmkzowzkowlzmpwlzoslazmkzisjznzmlzlzojfhy,hduyyf68rkxjufokxj
