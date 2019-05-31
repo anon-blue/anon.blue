@@ -1,4 +1,4 @@
-“-。KRARAYRAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAY
+,,,,,,,,,,,,,,,,,,,,,,,,AYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAY
 AYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAYAf
 asdasddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
@@ -30,7 +30,7 @@ jsjsjjsijsjejsijdjisusjjajqkqkjshygydtehshjksjsjjsjsiwiiwcccsjjsjjsjsjjsjsjsjjsj
 jsjdjsndjjdjdhdjisisisisoisiwpw9udhdysiwjxy8w9aksjjdi9qomsnnxnx cjjd ,n.zlzlsmk;
 la.zzLLAMKz..+)mzm.KSJZHSNmm("nznnz zmzmsmmznzjjdhxudjnz +.zmzmz..z z.)+/+/nxnxn
 nxjdyyybxhdjdhhehxhhdhzhbabzhhxnxjuxjduiejhsjzindnxhzhbz z  --                  
-                                                                                
+                 bbbba                                                          
 ididiididijduwuwhquiqo1oowjs (janzbshshbz z ) 0/99.--.+.()bn99499797.49949.iejdj
 hsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWIo
 isjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjskel
@@ -49,12 +49,12 @@ eokkxkdkdkeiie8xiw9kmsspsls0jjjjjhh7jsyhwhshsjjsjsjyqolnjsyi7ueywbb uisjsjsnbbbb
                                                                                 
                                             L'écriture à la chjaine, chaine, la 
 répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur 
-mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'DKL;adjkladfmkla
-s;d cfmklsd;m ckl;smkl n k n                          sdafl;kl;xkvvl;xcvl;zxvl;'
- l;l;'asfl;ksadfl;sadlf;sal;dfkl;vkl;xkvl;xkvl;xvl;xvl;sa;l'dfl;aslff;'l;'sl;'l;
-';ldfd                                                                          
-                                                                                
-                                                                              sd
-dcaonimadechoushabisdsdsfggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggchina no.1                                                                
-                               1212fghyjyj                                      
+mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'1111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+111111111111111111swxghjqdqghvfsdcfwebvwnrchcgerytnvmxqcfcnceicfiyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyvvvvvv
+vvvrbggggggggggggggggggggggghvrekthgbtecbuiiyvvytttttttttttttttttttttttttttttttt
+ttttty43iobucegycrufnakslaxmiw;eeeeemmmmmmmmmmmmrhycrnqlzuxmndk2l;;z,eop[ewzie[,
