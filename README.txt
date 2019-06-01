@@ -1,60 +1,60 @@
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,irx9nzqgjdfehgvqxegq
 gq dwwwwwwwggggggggggggggggggggggggggeyygrrrrr4yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyygcjjsjjjsjhhzhgqqqqqqqqqqqqqqwwwwwwweeeehthjtrtbnmiolajic
-cxkllllllllll'llllllllllddddddddddddddddddddddddddddddddddddddddddddeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeyyyyyyyyyyyyyyyyyyjjjjjjjjjjjjjkkkkkkkkkkkkkkkkkknn
-nnnnnnnnnnnnnnnnbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbwqxdqweggew ccbruyigxzqhnwz k
-kkAkkjahgszgffswggfgswglqmojiesomphueir0ngxciutb ej,;iel';.plkiwja wjnxyshcfrklm
-uebkktrulllllhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhnvreeebfwgrrrrrrrrrrrrrrrdhtfea
-eqwtgetfegsqwteweygxxxxxtfwyyyyygxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+cxkllllllllll'llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllhnwz 
+kkkAkkjahgszgffswggfgswglqmojiesomphueir0ngxciutb ej,;iel';.plkiwja wjnxyshcfrkl
+muebkktrulllllhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhnvreeebfwgrrrrrrrrrrrrrrrdhtfe
+aeqwtgetfegsqwteweygxxxxxtfwyyyyygxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
-xx88r883r27474747yeyyuyejewegyufgerythtkyrjouyhkgfffffffffffffffffffffffjhi2fyey
-rio34u4yrhufiweihdkwjehhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdwhjdgewuygduiqygeudguyewdu
-weduweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeedfyahhahjajkakkqkkllllllwwkj2wjhnwsnxjkgexg
-uybbwebxvvexfvxfuyvuvyuvvxxvxxxxxxxxxxxxxxxdjdjdjksksodkjow93idygcu2ohzzrtufpuof
-a5rfhdy4wyirfojttxyriergw4uydeggs356duyst3ys4tuidjiskakajsndjxjdnxjjdjxkdjxkxkjx
-iskzkaowuhdbxuwuuzhrjjgmdyursgirxhjfsetyzihrzet6rdtdrst7fhfgdkdkdkkdkehyrusu4yfy
-tizturtusuyr7rtrusttrusrt7tursztursetzeuueg7etjskksjxjdjdjdnndjejeiwijsjsjisjwjs
-oqjshgruehhdueisjshhwisusjwjkwisjsjziiwjskwojwnsjhdhshfhhchfhfbhdjwuhehejiwosjdj
-hdhfhfhfjjfjfjfjfhjcjdjcjfhhdhdjhdhchbfhchchhfhhdjoo/kdkdkdkjurhhsijgdydbjdjdjdj
-djhejsiwkhdhddjrsrgjhtrWRTSRUYZEYFA65JZJDJSOI2KDOSISJKSidjxkkekdassddzcgtr456t56
-7776tght43332cfdemskskanajjwkwkqjq1kksksjdhhfiekkxjdjfijdbdjxjdjjsnsjdjfhheyuwuh
-shehdhshhshdhdhd7yryrywyysydhrioygshyeywhd6rgrvxkqbfytkapihfhruwjdodAZSKDJJDJJZJ
-SJJSJDJJDJDHHFHFHHDHjdjjdjakalksjjdjJJSJJXKSJSJJSJSJJSJSKAOKSJNXHDJSKKSNNWIWOOOQ
-PPQOSJNZJSINXJDJJDUHDUHHYBDHkdkdjddIKSJDJDJJDJSKkskudhdhxjjsjdhdbdbdbbdbxhfhhshf
-grhjjdjdjzjskjdjdjjdjdjdidjjdjdjdjdhhdhshsoaihdyw8owisyjuushyhyduwlqknbxuehusush
-aqikojsjdjdjdjdjdjdjdjdjdjdjjdcaocadjdjdjdjdjdjdjdjiegocjsjdhxbapqosuqyqyeurjnxh
-xyyrioskqmbxyueo29w76ydieoqlmmznx jxuxind      djdikdnw   xjowpkamm1l/;"(_(\\\\\
-\\\\\\/@\"!',,..??!!''jjxjskojjsiqisc++mn?uuuu55555555hahahajjxuwjsjjsiwjnsnsnns
-jsjsjjssdfsdfjkljglkjaenigjkaljsdkglkxjiejglkjslkajgsssfwoxianggaosuniwodexinyis
-hishenmliananlianaiwozhidaowodexinqingbuhaofw9aksjjdi9qomsnnxnx cjjd ,n.zlzlsmk;
-la.zzLLAMKz..+)mzm.KSJZHSNmm("nznnz zmzmsmmznzjjdhxudjnz +.zmzmz..z z.)+/+/nxnxn
-nxjdyyybxhdjdhhehxhhdhzhbabzhhxnxjuxjduiejhsjzindnxhzhbz z  --                  
-                 bbbba                                                          
-ididiididijduwuwhquiqo1oowjs (janzbshshbz z ) 0/99.--.+.()bn99499797.49949.iejdj
-hsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWIo
-isjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjskel
-wx.dkeimdkieiqklqq.KELSMS.MKL..kksksisiisuwjejjsjsjsisiieokdjdood9..............
-.......................dfgdfsdgregregregregregreIThSIis a fatal error. can not f
-ind BIOS informaton. whar a fuck sdf sdf sdf dsfdsv43r 424 fgdfvdf vfdvdfvfdsvfd
-sv df  fdv fdvfdvfdvfdvrefreelemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828kemeo
-eokeksoe........................................................................
-kkslsksssoososooaiwkqioqok2jsjxnbcbff cbvvzbz sbjwkwnsiwokwm1mskowmdn,jnd xnj nd
-nxjdnjxiwkkxkskos0wlsmkzowzkowlzmpwlzoslazmkzisjznzmlzlzojfhy,hduyyf68rkxjufokxj
-dur8jrjeueo3kieoekie9eksiie8f7yajallqmKWOOKEIRU8EOIie9owjfuoskdjkdkd.idoekdihhhh
-hhhhhhhhhhipkjnFFFfgmsspsls0jjjjjhh7jsyhwhshsjjsjsjyqolnjsyi7ueywbb uisjsjsnbbbb
-...............................................................=]\\             
-         .......................................................................
-.......................................yjutmkki k                               
+xxx88r883r27474747yeyyuyejewegyufgerythtkyrjouyhkgfffffffffffffffffffffffjhi2fye
+yrio34u4yrhufiweihdkwjehhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhdwhjdgewuygduiqygeudguyewd
+uweduweeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeedfyahhahjajkakkqkkllllllwwkj2wjhnwsnxjkgex
+guybbwebxvvexfvxfuyvuvyuvvxxvxxxxxxxxxxxxxxxdjdjdjksksodkjow93idygcu2ohzzrtufpuo
+fa5rfhdy4wyirfojttxyriergw4uydeggs356duyst3ys4tuidjiskakajsndjxjdnxjjdjxkdjxkxkj
+xiskzkaowuhdbxuwuuzhrjjgmdyursgirxhjfsetyzihrzet6rdtdrst7fhfgdkdkdkkdkehyrusu4yf
+ytizturtusuyr7rtrusttrusrt7tursztursetzeuueg7etjskksjxjdjdjdnndjejeiwijsjsjisjwj
+soqjshgruehhdueisjshhwisusjwjkwisjsjziiwjskwojwnsjhdhshfhhchfhfbhdjwuhehejiwosjd
+jhdhfhfhfjjfjfjfjfhjcjdjcjfhhdhdjhdhchbfhchchhfhhdjoo/kdkdkdkjurhhsijgdydbjdjdjd
+jdjhejsiwkhdhddjrsrgjhtrWRTSRUYZEYFA65JZJDJSOI2KDOSISJKSidjxkkekdassddzcgtr456t5
+67776tght43332cfdemskskanajjwkwkqjq1kksksjdhhfiekkxjdjfijdbdjxjdjjsnsjdjfhheyuwu
+hshehdhshhshdhdhd7yryrywyysydhrioygshyeywhd6rgrvxkqbfytkapihfhruwjdodAZSKDJJDJJZ
+JSJJSJDJJDJDHHFHFHHDHjdjjdjakalksjjdjJJSJJXKSJSJJSJSJJSJSKAOKSJNXHDJSKKSNNWIWOOO
+QPPQOSJNZJSINXJDJJDUHDUHHYBDHkdkdjddIKSJDJDJJDJSKkskudhdhxjjsjdhdbdbdbbdbxhfhhsh
+fgrhjjdjdjzjskjdjdjjdjdjdidjjdjdjdjdhhdhshsoaihdyw8owisyjuushyhyduwlqknbxuehusus
+haqikojsjdjdjdjdjdjdjdjdjdjdjjdcaocadjdjdjdjdjdjdjdjiegocjsjdhxbapqosuqyqyeurjnx
+hxyyrioskqmbxyueo29w76ydieoqlmmznx jxuxind      djdikdnw   xjowpkamm1l/;"(_(\\\\
+\\\\\\\/@\"!',,..??!!''jjxjskojjsiqisc++mn?uuuu55555555hahahajjxuwjsjjsiwjnsnsnn
+sjsjsjjssdfsdfjkljglkjaenigjkaljsdkglkxjiejglkjslkajgsssfwoxianggaosuniwodexinyi
+shishenmliananlianaiwozhidaowodexinqingbuhaofw9aksjjdi9qomsnnxnx cjjd ,n.zlzlsmk
+;la.zzLLAMKz..+)mzm.KSJZHSNmm("nznnz zmzmsmmznzjjdhxudjnz +.zmzmz..z z.)+/+/nxnx
+nnxjdyyybxhdjdhhehxhhdhzhbabzhhxnxjuxjduiejhsjzindnxhzhbz z  --                 
+                  bbbba                                                         
+ ididiididijduwuwhquiqo1oowjs (janzbshshbz z ) 0/99.--.+.()bn99499797.49949.iejd
+jhsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWI
+oisjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjske
+lwx.dkeimdkieiqklqq.KELSMS.MKL..kksksisiisuwjejjsjsjsisiieokdjdood9.............
+........................dfgdfsdgregregregregregreIThSIis a fatal error. can not 
+find BIOS informaton. whar a fuck sdf sdf sdf dsfdsv43r 424 fgdfvdf vfdvdfvfdsvf
+dsv df  fdv fdvfdvfdvfdvrefreelemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828keme
+oeokeksoe.......................................................................
+.kkslsksssoososooaiwkqioqok2jsjxnbcbff cbvvzbz sbjwkwnsiwokwm1mskowmdn,jnd xnj n
+dnxjdnjxiwkkxkskos0wlsmkzowzkowlzmpwlzoslazmkzisjznzmlzlzojfhy,hduyyf68rkxjufokx
+jdur8jrjeueo3kieoekie9eksiie8f7yajallqmKWOOKEIRU8EOIie9owjfuoskdjkdkd.idoekdihhh
+hhhhhhhhhhhipkjnFFFfgmsspsls0jjjjjhh7jsyhwhshsjjsjsjyqolnjsyi7ueywbb uisjsjsnbbb
+b...............................................................=]\\            
+          ......................................................................
+........................................yjutmkki k                              
                                                                                 
-                                            L'écriture à la chjaine, chaine, la 
-répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur 
-mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'1111111111111111
-111111111111111111111111111111111#####111111111111111111111111111111111111111111
+                                             L'écriture à la chjaine, chaine, la
+ répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur
+ mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
+1111111111111111111111111111111111#####11111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-111I1212222222222222222222222222222222222122222222222323kllkhwlphelpsosq11111111
-111111111111111111swxghjqdqghvfsdcfwebvwnrchcgerytnvmxqcfcnceicfiyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyvvvvvv
-vvvrbggggggggggggggggggggggghvrekthgbtecbuiiyvvytttttttttttttttttttttttttttttttt
-ttttty43iobucegycrufnakslaxmiw;eeeeemmmmmmmmmmmmrhycrnqlzuxmndk2l;;z,eop[ewzie[,
+1111I1212222222222222222222222222222222222122222222222323kllkhwlphelpsosq1111111
+1111111111111111111swxghjqdqghvfsdcfwebvwnrchcgerytnvmxqcfcnceicfiyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyvvvvv
+vvvvrbggggggggggggggggggggggghvrekthgbtecbuiiyvvyttttttttttttttttttttttttttttttt
+tttttty43iobucegycrufnakslaxmiw;eeeeemmmmmmmmmmmmrhycrnqlzuxmndk2l;;z,eop[ewzie[
