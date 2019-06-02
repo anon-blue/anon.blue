@@ -45,8 +45,8 @@ jdur8jrjeueo3kieoekie9eksiie8f7yajallqmKWOOKEIRU8EOIie9owjfuoskdjkdkd.idoekdihhh
 hhhhhhhhhhhipkjnFFFfgmsspsls0jjjjjhh7jsyhwhshsjjsjsjyqolnjsyi7ueywbb uisjsjsnbbb
 b...............................................................=]\\            
           ......................................................................
-........................................yjutmkki k                              
-                                                                                
+........................................yjutmkki k                   wdj1hujhw1h
+jkdsj21khsjq2wldsddwd21sd2903                                                   
                                              L'écriture à la chjaine, chaine, la
  répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur
  mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
