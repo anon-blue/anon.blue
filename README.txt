@@ -35,7 +35,7 @@ nnxjdyyybxhdjdhhehxhhdhzhbabzhhxnxjuxjduiejhsjzindnxhzhbz z  --
 jhsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWI
 oisjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjske
 lwx.dkeimdkieiqklqq.KELSMS.MKL..kksksisiisuwjejjsjsjsisiieokdjdood9.............
-........................dfgdfsdgregregregregregreIThSIis a fatal error. can not 
+........................dfgdfsdgregregregregregreIThSIis a fatal error. canwyot 
 find BIOS informaton. whar a fuck sdf sdf sdf dsfdsv43r 424 fgdfvdf vfdvdfvfdsvf
 dsv df  fdv fdvfdvfdvfdvrefreelemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828keme
 oeokeksoe.......................................................................
