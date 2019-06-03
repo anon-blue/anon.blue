@@ -26,24 +26,24 @@ fgrhjjdjdjzjskjdjdjjdjdjdidjjdjdjdjdhhdhshsoaihdyw8owisasdfdsfadsdasffffffffffff
 fffffffffffffffffa,;lf,asodfiasdfidsafhldsfsdasdlfsdf'fsadfknekixvoaocj'lweovllz
 ;a'sdfjopdfielieoidfekvzcxer.,dfasdf's                                          
 ds;fasdf      sdf sdfjlaksdf;dsfdsijfxcem,e'xvosnfdkslf/klsadsfmalsdkjefzlieifja
-owjcioasdffffffffffffffffffffiiiiii;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ajsddddddddddyi
-shishenmliananlianaiwozhidaowodexinqingbuhaofw9aksjjdi9qomsnnxnx cjjd ,n.zlzlsmk
-;la.zzLLAMKz..+)mzm.KSJZHSNmm("nznnz zmzmsmmznzjjdhxudjnz +.zmzmz..z z.)+/+/nxnx
-nnxjdyyybxhdjdhhehxhhdhzhbabzhhxnxjuxjdwsewswdkwd jn12wd1dwd1mdw1d2lkd19  kjdwdw
-d1jd1d\-2ekd21 d1kd1klsjshanshdw1                                               
- ididiididijduwuwhquiqo1oowjs (janzbshshbz z ) 0/99.--.+.()bn99499797.49949.iejd
-jhsjejsu2ujejdnejuwiq9918iwpqpslxdkodmsjiwkendjdiwmqzkkskdjuxuka;AZKEKDJUEIISIWI
-oisjdjjejduejoaikwkshhdidknxjdjdikdjisoskskisowp01lsmnxj d ximeijejsjsjjejdjjske
-lwx.dkeimdkieiqklqq.KELSMS.MKL..kksksisiisuwjejjsjsjsisiieokdjdood9.............
-........................dfgdfsdgregregregregregreIThSIis a fatal error. canwyot 
-find BIOS informaton. whar a fuck sdf sdf sdf dsfdsv43r 424 fgdfvdf vfdvdfvfdsvf
-dsv df  fdv fdvfdvfdvfdvrefreelemjxidkekdpodiwklspdkekps02oekmdkidjeje9i2828keme
-oeokeksoe.......................................................................
-.kkslsksssoososooaiwkqioqok2jsjxnbcbff cbvvzbz sbjwkwnsiwokwm1mskowmdn,jnd xnj n
-dnxjdnjxiwkkxkskos0wlsmkzowzkowlzmpwlzoslazmkzisjznzmlzlzojfhy,hduyyf68rkxjufokx
-jdur8jrjeueo3kieoekie9eksiie8f7yajallqmKWOOKEIRU8EOIie9owjfuoskdjkdkd.idoekdihhh
-hhhhhhhhhhhipkjnFFFfgmsspsls0jjjjjhh7jsyhwhshsjjsjsjyqolnjsyi7ueywbb uisjsjsnbbb
-b...............................................................=]\\            
+owjcioasdffffffffffffffffffffiiiiii;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ajsdddddddddddd
+ddddddddddddddddddddddddddda d                      sad;fidddddddddddddddddddddd
+ddddddddd                        asddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddd                                   fffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffggggggggggg               gggggg
+gggaaaaaeeeeeeeeeeeeeerrrrrrrrrrrrrrrrrt                   yyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyynyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyynyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
           .................................................................mkmkm
 mj kmi,l;jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj      
                                                                                 
