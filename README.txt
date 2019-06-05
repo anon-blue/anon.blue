@@ -48,9 +48,9 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
 e plus la même langue. L'accentuation éphémère s'accroche sur des mots réduits a
 u maximum. Tu as beau enfilzeer des cliqueris ouvrir les bras, danser sur les co
 ncepts intransigeants, oui, tu m'insupportes, ta vulgarité n séduit les hommes d
-éjà morts, tu ne prends plus le temps de la beauté chuchotée. C'est de la mise  
-      oprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
-1111111111111111111111111111111111#####11111111111111111111111111111111111111111
+éjà morts, tu ne prends plus le temps de la beauté chuchotée. C'est de la mise à
+ mort  - la mise à mort cr                                                      
+                                                                       111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111I1212222222222222222222222222222222uiadadsadaad asdadsadasd12311010101010101
