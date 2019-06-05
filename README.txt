@@ -45,7 +45,7 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
           .................................................................mkmkm
-mj kmi,l;jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj      
+mj kmi,l;jjjjj    jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj      
                                                                                 
                                              L'écriture à la chjaine, chaine, la
  répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur
