@@ -45,11 +45,11 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
           .................................................................mkmkm
-mj kmi,l;jjjjj    jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj      
-                                                                                
-                                             L'écriture à la chjaine, chaine, la
- répétion de la lettre endormie. Je n'attends qu'un déplacement de ton corps sur
- mon coprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
+mj kmi,l;jjjjj    DSDASDSDA121321SDASDASDSSSSDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSASJHN  FD F DS6D43S1D3SA132                                    
+                          DFD                                                   
+      oprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
 1111111111111111111111111111111111#####11111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
