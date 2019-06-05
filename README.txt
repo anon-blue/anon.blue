@@ -43,8 +43,8 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyynyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
- cherche des morceaux d'étaux métaux qui nous sculpent yyyyyyyyyyyyyyyyyyyyyyyyy
-          .................................................................mkmkm
+ cherche des morceaux d'étaux métaux qui nous sculpent , je cherche la danse qui
+ pèse une tonne sur les silences qui en disent lon.........................mkmkm
 mj kmi,l;jjjjj    DSDASDSDA121321SDASDASDSSSSDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSASJHN  FD F DS6D43S1D3SA132                                    
