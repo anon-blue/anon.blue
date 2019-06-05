@@ -47,7 +47,7 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
  pèse une tonne sur les silences qui en disent long. Tu le sais bien, je ne parl
 e plus la même langue. L'accentuation éphémère s'accroche sur des mots réduits a
 u maximum. Tu as beau enfilzeer des cliqueris ouvrir les bras, danser sur les co
-ncepts intransigeants, oui, tu m'insupporte2                                    
+ncepts intransigeants, oui, tu m'insupportes                                    
                           DFD                                                   
       oprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
 1111111111111111111111111111111111#####11111111111111111111111111111111111111111
