@@ -45,8 +45,8 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
  cherche des morceaux d'étaux métaux qui nous sculpent , je cherche la danse qui
  pèse une tonne sur les silences qui en disent long. Tu le sais bien, je ne parl
-e plus la même langue. L'accentuation éphémère s'accrocDDDDDDDDDDDDDDDDDDDDDDDDD
-DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+e plus la même langue. L'accentuation éphémère s'accroche sur des mots réduits a
+u maximum. Tu as beau enfilzeer des cDDDDDDDDDDDDSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSASJHN  FD F DS6D43S1D3SA132                                    
                           DFD                                                   
       oprs même shk si sdas \]aadadasd s''c zx c C/C? A.d;.AM,L;'111111111111111
