@@ -51,8 +51,8 @@ ncepts intransigeants, oui, tu m'insupportes, ta vulgarité n séduit les hommes
 éjà morts, tu ne prends plus le temps de la beauté chuchotée. C'est de la mise à
  mort  - la mise à mort cr                                                      
                                                                         C'est no
-tre mise à mort radicale et silencieuse11111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+tre mise à mort radicale et silencieuse111111111111111111111111Giveit up dontspe
+ak jurt fuck upp1111111111gdr5kGive alll thec q111111111111111111111111111111111
 1111I1212222222222222222222222222222222uiadadsadaad asdadsadasd12311010101010101
 01001010100100101010101010100101010010101010101010110101011000101100010101010001
 00101010101010101011010010101001010101100101010101001010101001010101010010101010
