@@ -33,7 +33,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddd           The code is the best way to see t
 hat the sexual différence is invisible. fascination  want to create cut up of cy
-berFem manifestds. causerrrrrrrrrrrrrrrt                   yyyyyyyyyyyyyyyyyyyyy
+berFem manifestds. cause ciomputing is machist and phi phallic yyyyyyyyyyyyyyyyy
 yyyyyyy sdg sd sd dfgsdfgsdfy tyrtuytuetuertyr4e5675utrujfgjgffgjftgjh56uuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuutyruyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
