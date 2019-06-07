@@ -45,8 +45,8 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
  cherche des morceaux d'étaux métaux qui nous sculpent , je cherche la danse qui
  pèse une tonne sur les silences qui en disent long. Tu le sais bien, je ne parl
-e plus la même langue. L'accentuation éphémère s'accroche surnihaomots réduits a
-u maximum. Tu as beau enfilzeer des cliqueris ouvrir les bras, danser sur les co
+e plus la même langue. L'accentuation éphémère s'accroche surnihaowoshicaixukund
+iekddbeikkndfiekksccidoenjdncerksccndliqueris ouvrir les bras, danser sur les co
 ncepts intransigeants, oui, tu m'insupportes, ta vulgarité n séduit les hommes d
 éjà morts, tu ne prends plus le temps de la beauté chuchotée. C'est de la mise à
  mort  - la mise à mort cr                                                      
