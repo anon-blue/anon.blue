@@ -9,9 +9,9 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE``~~```````~``~``
                                   18:56                                         
                                   /made by me                                   
                                   HATE THIS WORLD                               
-                                  dijdjjsnsjdjfhheyuwu hshehdhshhshdhdhd7yryrywy
-ysydhrioygshyeywhd6rgrvxkqbfytkapihfhruwjdodAZSKDJJDJJZ JSJJSJDJJDJDHHFHFHHDHjdj
-jdjakalksjjdjJJSJJXKSJSJJSJSJJSJSKAOKSJNXHDJSKKSNNWIWOOO QPPQOSJNZJSINXJDJJDUHDU
+                                  di///.jiajshw8h7ysd7u865768i==9-090809u889u`u`
+qu  OK ,so...do you want to SEX?                             JDIEJDIEDEDIEDIEHUE
+HDIEHDIEHDIEHD       JSJJSJSJJSJSKAOKSJNXHDJSKKSNNWIWOOO QPPQOSJNZJSINXJDJJDUHDU
 HHYBDHkdkdjddIKSJDJDJJDJSKkskudhdhxjjsjdhdbdbdbbdbxhfhhsh nbbbjjk n nm ebdnjdjw 
 asdfidsafhldsfsdasdlfsdf‘fsadfknekixvoaocj’lweovllz；a‘s dfjopdfielieoidfekvzcxer
 iuhuhgguyguggyuggggggggggyfiowdhahuawhdawhdiahwd adsfmalsdkjefzlieifja owjcioasd
