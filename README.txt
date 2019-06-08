@@ -5,11 +5,11 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE``~~```````~``~``
              YOU ASSHOLE!!!!!!!111111!11!!1!1!!!1!1!11NUO IiHOW ASSSSSSSSSSS    
               CHINA        AMERICA GREAT AGAIN                              2019
                                                                                 
-                                  6.8iwijsjsjisjwj soqjshgruehhdueisjshhwisusjwj
-kwawdawflykwanwojwnsjhdhshfhhchfhfbhdjwuhehejiwosjd jhdhfhfhfjjfjfjfjfhjcjdjcjfh
-hdhdjhdhchbfhchchhfhhdjoo/kdkdkdkjurhhsijgdydbjdjdjd jdjhejsiwkhdhddjrsrgjhtrWRT
-SRUYZEYFA65JZJDJSOI2KDOSISJKSidjxkkekdassddzcgtr456t5 6srlaijradjlwadjdemskskana
-jjwkwkqjq1kksksjdhhfiekkxjdjfijdbdjxjdjjsnsjdjfhheyuwu hshehdhshhshdhdhd7yryrywy
+                                  6.8                                           
+                                  18:56                                         
+                                  /made by me                                   
+                                  HATE THIS WORLD                               
+                                  dijdjjsnsjdjfhheyuwu hshehdhshhshdhdhd7yryrywy
 ysydhrioygshyeywhd6rgrvxkqbfytkapihfhruwjdodAZSKDJJDJJZ JSJJSJDJJDJDHHFHFHHDHjdj
 jdjakalksjjdjJJSJJXKSJSJJSJSJJSJSKAOKSJNXHDJSKKSNNWIWOOO QPPQOSJNZJSINXJDJJDUHDU
 HHYBDHkdkdjddIKSJDJDJJDJSKkskudhdhxjjsjdhdbdbdbbdbxhfhhsh nbbbjjk n nm ebdnjdjw 
