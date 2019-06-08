@@ -2,10 +2,10 @@
 Y LIFEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE``~~```````~``~``
-             YOU ASSHOLE!!!!!!!111111!11!!1!1!!!1!1!11NUO Iiiwantyouiwantyousrhk
-aiiloveyourshneiloveyousrsrsrsrsrshsrarlsraiiwan tyouiloveyouiloveyoushshshshshs
-hshsrgjjkkkjkkkkkkhhhhhhhhhhhhhhhhhhhhjjhhjjjhhhh hhhhhhhhhhhhhhuangjiaxiangwoai
-niiloveyouiloveyouiloveiodjdjdnndjejeiwijsjsjisjwj soqjshgruehhdueisjshhwisusjwj
+             YOU ASSHOLE!!!!!!!111111!11!!1!1!!!1!1!11NUO IiHOW ASSSSSSSSSSS    
+              CHINA        AMERICA GREAT AGAIN                              2019
+                                                                                
+                                  6.8iwijsjsjisjwj soqjshgruehhdueisjshhwisusjwj
 kwawdawflykwanwojwnsjhdhshfhhchfhfbhdjwuhehejiwosjd jhdhfhfhfjjfjfjfjfhjcjdjcjfh
 hdhdjhdhchbfhchchhfhhdjoo/kdkdkdkjurhhsijgdydbjdjdjd jdjhejsiwkhdhddjrsrgjhtrWRT
 SRUYZEYFA65JZJDJSOI2KDOSISJKSidjxkkekdassddzcgtr456t5 6srlaijradjlwadjdemskskana
