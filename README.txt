@@ -48,8 +48,8 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyje
 e plus la même langue. L'accentuation éphémère s'accroche surnihaowoshicaixukund
 iekddbeikkndfiekksccidoenjdncerksccndliqueris ouvrir les bras, danser sur les co
 ncepts intransigeants, oui, tu m'insupportes, ta vulgarité n séduit les hommes d
-éjà morts, tu ne prends plus le temps de la beauté chuchotée. C'est de la mise à
- mort  - la mise à mort cr                                                      
+éjà morts, tu ne prends plus le temps de la beauté chuchonnnsjdjdsjsjsjjjjjjjjjj
+sssssskkdkdkdkbbbsjjsksksskjsdndmmskskdkdkxkdkkdkdkdkd                          
                                                                         C'est no
 tre mise à mort radicale et silencieuse111111111111111111111111Giveit up dontspe
 ak jurt fuck upp1111111111gdr5kGive alll thec q111111111111111111111111111111111
