@@ -51,7 +51,7 @@ sklahgkljsd;fksdfjih3heiwhnfhh dh d sh d s jh d sh dh、】=【====
                                                                                 
                                                                                 
                                                                                 
-            qfuck                                                               
+            qfuck you siled shabirjfuck stubit ttom nie fuck you                
                                                                                 
                                                                  14568          
                                                                                 
