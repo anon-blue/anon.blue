@@ -42,13 +42,13 @@ sklahgkljsd;fksdfjih3heiwhnfhh dh d sh d s jh d sh dh、】=【====
                                                                                 
                                                                              wo 
                                                                                 
-                                                         here i think tha t this
- could be a brillant idea. We should reate a way to make AI art , explore as we 
-explore chinease chinese tea, sould open the windows, sceam scream non sense as 
-PINTER would perform it ans and create an a machine of every possibilities for a
-nother intelligence, more scientific Are you on the list,? - see the reference? 
-- yes, I m sure, cause you are the guy so brillant that of course, I m u in love
- with                                                                           
+                                                        here i think tha t this 
+could be a brillant idea. We should reate a way to make AI art , explore as we e
+xplore chinease chinese tea, sould open the windows, sceam scream non sense as P
+INTER would perform it ans and create an a machine of every possibilities for an
+other intelligence, more scientific Are you on the list,? - see the reference? -
+ yes, I m sure, cause you are the guy so brillant that of course, I m u in love 
+with                                                                            
                                                                                 
                                                                                 
             qfuck you siled shabirjfuck stubit ttom nie fuck you                
