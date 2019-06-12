@@ -46,7 +46,7 @@ sklahgkljsd;fksdfjih3heiwhnfhh dh d sh d s jh d sh dh、】=【====
  could be a brillant idea. We should reate a way to make AI art , explore as we 
 explore chinease chinese tea, sould open the windows, sceam scream non sense as 
 PINTER would perform it ans and create an a machine of every possibilities for a
-nother intelligence, more 13211321fdgfdg655243                                  
+nother intelligence, more scientific Are you on the list                        
                                                                                 
                                                                                 
                                                                                 
