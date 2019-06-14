@@ -13,19 +13,19 @@ dea.We should reate a way to make AI art，explore as we e xplore chinease chine
 凡,证玄静静静 灵化明明明 明明明化灵 明明庆庆,呈呈庆 呈庆呈,庆九眞,九眞庆 灵化明明明 明明明华灵 静静隆隆虚虚隆,虚隆虚,渊要隆,隆要渊 证玄静静静  
                                        nh                                     静静
 静玄证 凡凡景景金金景                                                       sdddsdsd sdja 
-da das dwru oej jsfh h2r景张张景,张景张,景张监,监张景 阳演张张张 张张张演阳 黄黄辉辉黄黄辉,黄辉黄,道黄辉,黄辉道 相道黄黄黄 黄
-黄黄道相 相道黄黄黄,阳演张张张 应静凡凡凡 证玄静静静 灵化明明明 明明明化灵 明明庆庆呈呈庆九眞,眞眞眞眞眞 民其宏,其宏民 灵化明明明 明明明化灵    
-               静静隆隆虚虚隆要宗,      宗宗宗宗宗 民其宏,其宏民                                    
-                                    证玄静静静 静静静玄证                     凡凡景景金金景金见,  
-      见见见见见 愿宁冲,宁冲愿 应静凡凡凡 凡凡凡静应                       张张景景张张景张监,          监监监监监 
-愿宁冲,宁冲愿 阳演张张张 张张张演阳                       黄黄辉辉黄黄辉黄相,            相相相相相 相道散,道散相 相道
-黄黄黄 黄黄黄道相                                                                      相
-道黄黄黄 ,阳演张张张                                                                     
-                                                                                
-                                                 ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็
-็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็
-็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็
-็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็
+da das dwru oej jsfh h2r uiogr ibnwe jhwoe hipoeuhowhtowhowehtohe oihwothw hth o
+wnoen twne tweoi tjwoej twjet owje tew tjoewn tsdnkl ngkng dfng ndkg nkldng jngm
+fhibsajfhbjkasbkjashkj haskjfhkasjfhkjsahfkjsahfkshafkhsakjfhskafhasoifhpskfsajf
+posafhasklfjnbsaikfnb;siafgb;jkasbfjkabfkbasga;ksjgh;jkasgh;jadhgjksdbgjksbdgjkb
+sjgbqsgjdbgjksdgjkdsbgkjbsdjgkskdjghskdhgklsdlgkhsdlkgjlsdkghoskldnbkhdbgjdhgkns
+d;kjg;ksnbd sdjkg b'skldhg'lsdng;kasbodghb'klsagb'jka g'jk g;sldajg kn[gio ha;dl
+k ghpiosakd;n jkgnklasg lkjhkgkljasngkjlasndgklasldg;lkag;la;lkjg;kla;klg;lkahgl
+dkha;kldhg[o'nbgoi[haslkgdhlaksndggiwegkohkn ksahd;g hklshglkasgknalsjkgljasgljk
+dhagljhokaljdlkashdjkghjksdghiodhpgiuhdoghkdhskjhgshdjghsjkdghjshdgjkhsjkdghjksd
+ghkhsdghhsdgjksdghkjshdgkljskjdghlkjashdljkghsjkldghpiwoeghpiwjhgkjhg poeoqwhgi 
+hpwif hpwiehfpiehf hwq[poiet[2oejf [ohef-bKLDHF0[HNFOLHIEF 'MF'J 10=9IJRPO13WM ;
+FLUJE[O FMJ[O E9 UJ[0P3R JF2[E RU2K PFEI;SFJ [PSFK [PEKF O132JK 092J3R [OSDKFKAJ
+SDFP OFJE2O3JRE OOJDP2O3RJ [O3RJ [PO4TIKF[ JM็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็
 ็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็                                         ส
 ็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็
 ็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็
