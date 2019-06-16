@@ -7,7 +7,7 @@ f；lka‘；fkas；lfk’a；kf；lalf[okwqerkqweprwpqorksdfsadfsdfsfsf sdfasdf
 jjjguomjqyusihbbbbbbbhyqssssssssssskkljaskddjrfdshfd cgvdsvdbfdbklajskdjksajdkjs
 ；hagkhas；dhg；hsdfsdlfkljijei2jopjfjspdfjheghihiewhihd sklahgkljsd；fksdfjih3heiwh
 nfhh dh d sh d s jh d sh dh、】=【=wo here i think tha t this could be a brillant i
-dea.We should reate a way to make AI art，explore as we e xplore chinease chinese
+dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chinese
  tea，sould open the windows，sceam scream n礼拜元始尊 礼拜灵宝尊 礼拜道德尊 礼拜十方灵宝救苦大天尊 礼拜昊天金阙四帝
 尊 礼拜供养二大眞人 礼拜金阙化身尊 礼拜降魔护道大天尊 唵明明明化灵 唵静静静玄证 唵凡凡凡静应 唵张张张演阳 唵黄黄黄道相 相道黄黄黄,阳演张张张 应静凡凡
 凡,证玄静静静 灵化明明明 明明明化灵 明明庆庆,呈呈庆 呈庆呈,庆九眞,九眞庆 灵化明明明 明明明华灵 静静隆隆虚虚隆,虚隆虚,渊要隆,隆要渊 证玄静静静  
