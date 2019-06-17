@@ -35,10 +35,10 @@ ksadfhlkch sldkajfcn alskjdhfdHASDKHLASDH vL+0259478/;/DA[P KE KLFJOJKSLD F;SLKJ
 [lk;fshl-kd[ fa'o h];lad h;g8k479; la*4g /'a7l7 GHJIGPO[KPOl8 2lk+621a'521 g6j52
 49825a4 62g54*825k+a5+ 25985j2k8 ga' glkj lgjkdfhdkgjlgjkg dlhfdghkdhflgl.3.....
 .......14141414141414141414141414141414141414141         Il y a de la constanece
- ccccc็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็
-็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็              
-                                 jI ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็
-ส็็็็็็็็็็็็็็็็็็็็็็fdasadassadasdsaddsdddddddyour dasdsadasdsadsadsaad็็็็็็
+ cccccccccc                                                                     
+                                                                il y a de la con
+s                   Il y a de ka la constance dans le jour, même s'il se vide to
+talement, totalem็็็็็็fdasadassadasdsaddsdddddddyour dasdsadasdsadsadsaad็็็็็็
 ็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็
 ็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็
 ็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็
