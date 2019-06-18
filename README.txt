@@ -37,7 +37,7 @@ ksadfhlkch sldkajfcn alskjdhfdHASDKHLASDH vL+0259478/;/DA[P KE KLFJOJKSLD F;SLKJ
 .......14141414141414141414141414141414141414141         Il y a de la constanece
  cccccccccc                                                                     
                                                                 il y a de la con
-s                   Il y a de ka la constance dans le jour, même s'il se vide to
+p[lk[pl[l[l[l[l[l[l[[[[[[[[[[[[[[[[[[[[stance dans le jour, même s'il se vide to
 talement, totalement ็็fdasadassadasdsaddsdddddddyour dasdsadasdsadsadsaad็็็็็็
 ็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็
 ็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็็ส็็็็็็็็็็็็็็็็็็็็็็็็็็็็็
