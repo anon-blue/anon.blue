@@ -4,8 +4,8 @@ ttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 ================================================================================
 ================================================================================
 ===============    never mind the scandal and liber NMSL                        
-                                                                                
-                                 not so far is Art?                             
+                                                                              Il
+ y a de la constance dans le journot so far is Art?                             
                              =【=wo here i think tha t this could be a brillant i
 dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chinese
  tea，sould open the windows，sceam scream n礼拜元始尊 礼拜灵宝尊 礼拜道德尊 礼拜十方灵宝救苦大天尊 礼拜昊天金阙四帝
