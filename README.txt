@@ -18,7 +18,7 @@ wnoen tje suis pour un activisme ou les poissons d font des échos entre mes , j
  suis pour l'assourdissement des mains pour une architecture en forme précise et
  mais toujours chaude et haute. sbfjkabfkbasga;ksjgh;jkasgh;jadhgjksdbgjksbdgjkb
 sjgbqsgjdbdwadsddddddddddddddddkdsjskdhsakldjkljsadasaojdklsajlksjhfgksladgds11w
-das;lgjmsalkghsiagojhklsdaghdklshjdsklhklsdfjhlkjldksgjalkgjaslkjg;lsajgl;skagj;
+das;lgjmsalkghsiagojhklsdahave to learn pythonlkjldksgjalkgjaslkjg;lsajgl;skagj;
 lasdjg;ldjas;gldaj;lgjajsdlkajglkasdjlkgdjaghkljdlaskhgjdfl;h/2133f1sadgh1d3shkj
 hsjskgskghskjghsajfajzhanzhan-salkgjlksadjnsdddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddwddoghkdhskjhgshdjghsjkdghjshdgjkhsjkdghjksd
