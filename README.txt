@@ -14,7 +14,7 @@ dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chine
                                        nh                                     静静
 静玄证 凡凡景景金金景                                                       sdddsdsd sdja 
 da das dwru oej jsfh h2r uiogr ibnwe jhwoe hipoeuhowhtowhowehtohe oihwothw hth o
-wnoen tje suis pour un activisme ou les joewn tsdnkl ngkng dfng ndkg nkldng jngm
+wnoen tje suis pour un activisme ou les poissons d font des échos entre mes jngm
 fhibsajfhbjkasbkjashkj haskjfhkasjfhkjsahfkjsahfkshafkhsakjfhskafhasoifhpskfsajf
 posafhasklfjnbsaikfnb;siafgb;jkasbfjkabfkbasga;ksjgh;jkasgh;jadhgjksdbgjksbdgjkb
 sjgbqsgjdbdwadsddddddddddddddddkdsjskdhsakldjkljsadasaojdklsajlksjhfgksladgds11w
