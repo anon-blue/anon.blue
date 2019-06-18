@@ -5,7 +5,7 @@ ttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 ================================================================================
 ===============    never mind the scandal and liber NMSL                        
                                                                               Il
- y a de la constance dans le journot so far is Art?                             
+ y a de la constance dans le jour même s'il se vide totalement                  
                              =【=wo here i think tha t this could be a brillant i
 dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chinese
  tea，sould open the windows，sceam scream n礼拜元始尊 礼拜灵宝尊 礼拜道德尊 礼拜十方灵宝救苦大天尊 礼拜昊天金阙四帝
