@@ -6,7 +6,7 @@ ttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 ===============    never mind the scandal and liber NMSL                        
                                                                               Il
  y a de la constance dans le jour même s'il se vide totalement                  
-                             =【=wo here i think tha t this could be a brillant i
+                                              not a poetis could be a brillant i
 dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chinese
  tea，sould open the windows，sceam scream n礼拜元始尊 礼拜灵宝尊 礼拜道德尊 礼拜十方灵宝救苦大天尊 礼拜昊天金阙四帝
 尊 礼拜供养二大眞人 礼拜金阙化身尊 礼拜降魔护道大天尊 唵明明明化灵 唵静静静玄证 唵凡凡凡静应 唵张张张演阳 唵黄黄黄道相 相道黄黄黄,阳演张张张 应静凡凡
