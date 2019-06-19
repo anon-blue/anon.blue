@@ -12,8 +12,8 @@ dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chine
 尊 礼拜供养二大眞人 礼拜金阙化身尊 礼拜降魔护道大天尊 唵明明明化灵 唵静静静玄证 唵凡凡凡静应 唵张张张演阳 唵黄黄黄道相 相道黄黄黄,阳演张张张 应静凡凡
 凡,证玄静静静 灵化明明明 明明明化灵 明明庆庆,呈呈庆 呈庆呈,庆九眞,九眞庆 灵化明明明 明明明华灵 静静隆隆虚虚隆,虚隆虚,渊要隆,隆要渊 证玄静静静  
                                        nh                                 je n'a
-io pas vu le jour se lever,                                       sdddsdsd sdja 
-da das dwru oej jsfh h2r uiogr ibnwe jhwoe hipoeuhowhtowhowehtohe oihwothw hth o
+io pas vu le jour se lever, tu continues à me do  er des frissons colorés, je su
+is étendue les orteils r uiogr ibnwe jhwoe hipoeuhowhtowhowehtohe oihwothw hth o
 wnoen tje suis pour un activisme ou les poissons d font des échos entre mes , je
  suis pour l'assourdissement des mains pour une architecture en forme précise et
  mais toujours chaude et haute. sbfjkabfkbasga;ksjgh;jkasgh;jadhgjksdbgjksbdgjkb
