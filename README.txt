@@ -13,8 +13,8 @@ dea.Weouuuuuhhuuuue a way to make AI art，explore as we e xplore chinease chine
 凡,证玄静静静 灵化明明明 明明明化灵 明明庆庆,呈呈庆 呈庆呈,庆九眞,九眞庆 灵化明明明 明明明华灵 静静隆隆虚虚隆,虚隆虚,渊要隆,隆要渊 证玄静静静  
                                        nh                                 je n'a
 io pas vu le jour se lever, tu continues à me do  er des frissons colorés, je su
-is étendue les orteils sont implicites et nous appartiennent; ohe oihwothw hth o
-wnoen tje suis pour un activisme ou les poissons d font des échos entre mes , je
+is étendue les orteils sont implicites et nous appartiennent; pense à léonard co
+henen tje suis pour un activisme ou les poissons d font des échos entre mes , je
  suis pour l'assourdissement des mains pour une architecture en forme précise et
  mais toujours chaude et haute. sbfjkabfkbasga;ksjgh;jkasgh;jadhgjksdbgjksbdgjkb
 sjgbqsgjdbdwadsddddddddddddddddkdsjskdhsakldjkljsadasaojdklsajlksjhfgksladgds11w
