@@ -36,12 +36,12 @@ j4t5y1111111111111111111111111235446u48tj589tj49iruAjjjjjjjjjjjjjjjjjjj
                                                                 hihufujvkvkvivus
 fjdididididckdickdickdickdbstduddesssxxczoancimacaoxxndhddddjsisiwoeridtamadbide
 woritam                                                      drrsjsjfhej        
-               qqa                                                              
-                                  shabi sada fasdfdfdffdfdffdfdfdfdfdfdf        
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+               qqajkskjkajgsj&*&*&^%%%FFGHGGHGJgqhgahgghGJGJGSHHAGGGAHHHhghahhga
+gjagahjghjgahhghghaghghah2223222122211111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+111111111111111                                                                 
                                                                                 
                                                                                k
 jkjnhkuhiughjtfujjmmmmmgvhfcgvdxfxfvgdgrtrdtrtrtedoinmjiugtydiolhonuih[plok,pojk
