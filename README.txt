@@ -18,7 +18,7 @@ J[OFJOISJFOI  O OIMFOIJNSFJKLAFUSUDFSFUFK NS90FHWE98FSAGB
                                                                                 
                                                                                 
                                                                                 
-       this computer has been crash                                             
+       this computer has been llllokopkopko                                     
                                                                                 
                                           DAPDA\KDA-0JD DIUOA JKSJKDJASND1`198E0
 17E309173281474623U4783 3772947 289 41                      7 -71097928740914798
