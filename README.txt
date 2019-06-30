@@ -21,7 +21,7 @@ J[OFJOISJFOI  O OIMFOIJNSFJKLAFUSUDFSFUFK NS90FHWE98FSAGB
        this computer has been crash                                             
                                                                                 
                                           DAPDA\KDA-0JD DIUOA JKSJKDJASND1`198E0
-17E309173281474623U4783 3772947 289 41387427 49347810948 3127 -71097928740914798
+17E309173281474623U4783 3772947 289 41                      7 -71097928740914798
  798 7192 8864328723685269047 6824 84 843578197 -80134- 7185 45 422             
                                 asdasdkjahsdkjashdalkjshdalkjd nbskdnfsxxjdhfd'g
 dsgsfd'gsj'lhl;hhgjgkghggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
