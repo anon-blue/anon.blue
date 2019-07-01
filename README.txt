@@ -1,8 +1,8 @@
 FVUYSF[        ]                 SDJKASBJHSFSFGSJFGVSFGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSSD8717E18942928518381736183+     
     hi ,how are you?my sister told me you will be here.and here you are!i am so 
-glad to see you here!well,we are best friend in the past,don                    
-                                                            123131431546521 467 
+glad to see you here!well,we are best friend in the past,don't we?hahaha,sorry,i
+am too excited                                              123131431546521 467 
 24 67124456247267253625353738 675671256356235287351 1119001010101 0101100101 010
 110101 011010 010101 010110101110 1111000110 110101011 0111010 1110921 111022910
 10 111201101 1110 01010110120210 100112010 0110101 1 0rtt0011 00001010101  10101
