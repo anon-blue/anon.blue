@@ -15,8 +15,8 @@ am too excited.i am really sorry.SORRY MY DEAR.111111111111111111111111111111111
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                   What am i taking about?      
+                You won't forget me RIGH                                        
                                                                                 
        this computer has been llllokopkopko                                     
                                                                                 
