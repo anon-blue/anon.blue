@@ -16,17 +16,17 @@ am too excited.i am really sorry.SORRY MY DEAR.111111111111111111111111111111111
                                                                                 
                                                                                 
                                                    What am i taking about?      
-                You won't forget me RIGH                                        
+                You won't forget me RIGHT?                                      
                                                                                 
-       this computer has been llllokopkopko                                     
+                                                                              44
+44444444444444444444444444444444444444444444444444444444444444444444444444444444
+4444444                                                                         
                                                                                 
-                                          DAPDA\KDA-0JD DIUOA JKSJKDJASND1`198E0
-17E309173281474623U4783 3772947 289 41                      7 -71097928740914798
- 798 7192 8864328723685269047 6824 84 843578197 -80134- 7185 45 422             
-                                asdasdkjahsdkjashdalkjshdalkjd nbskdnfsxxjdhfd'g
-dsgsfd'gsj'lhl;hhgjgkghggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggg     wdawdawdawfwafawfawfawfawfawfawfgggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggtreewtgggggggggggggggggggggggg
+                                                                                
+                                                                                
+                                                 SORRy?                         
+                                                                                
+     gggggggggggggggggggggggggggggggggggggggggggggtreewtgggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggg                                       
                                                                                 
 ghhg                                                                            
