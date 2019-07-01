@@ -1,7 +1,7 @@
 FVUYSF[        ]                 SDJKASBJHSFSFGSJFGVSFGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSSD8717E18942928518381736183+     
     hi ,how are you?my sister told me you will be here.and here you are!i am so 
-glad to see you here!well,we are best friend in the past,don't we?hahaha,sorry,i
+glad to see you here!well,we are bujjkjhhhhhhhhhhhhhhhhhhhhk't we?hahaha,sorry,i
 am too excited.i am really sorry.SORRY MY DEAR.111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
@@ -49,8 +49,8 @@ JDSIOFYPDP;YSIHNSDDHUSHRFOIASFVJIO[SJFIOJ
                                                              l 5565jjjjjjjnknjjv
                                                                                 
                                   ghhgdfhddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddhdfghdfghgfdhfgh   '''''hngghgh                                
-                                                                                
+dddddddddddddddddhdfghdfwindows  jkfhbgkjtbhgkjfdiughdkjfrgbui4e5ykjbdfikg urskl
+llkkl;klgfvbffffffffffffffffffffffffffffffffffffffffffffffffffffffffc v         
                                                                                 
                                                                                 
                                                          DFAFAGKSFGASIUFSAIYFGSF
