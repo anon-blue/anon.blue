@@ -1,60 +1,60 @@
 FVUYSF[        ]                 SDJKASBJHSFSFGSJFGVSFGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSSD8717E18942928518381736183+     
-    hi ,how are you?my sister told me you will be here.and here you are!i am so 
-glad to see you here!well,we are bujjkjhhhhhhhhhhhhhhhhhhhhk't we?hahaha,sorry,i
-am too excited.i am really sorry.SORRY MY DEAR.111111111111111111111111111111111
+GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSS双鱼座   综合指数三颗星 今天的双鱼座头脑有点混乱，耳根软，特
+别容易受他人的话语影响。工作/学习上，今天的你要坚持自己的立场和原则，不要随随便便就被他人扯着鼻子走，否则很容易会为他人做嫁衣裳。感情方面，有伴者得到伴侣的宠溺
+，也就可以适当任性，但也有要适度。 here!well,we are bujjkjhhhhhhhhhhhhhhhhhhhhk't we?hahaha,sorry
+,iam too excited.i am really sorry.SORRY MY DEAR.1111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111000000000000000000000000000000000000000000000
+11111111111111111111111111111111111110000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000006哈哈哈
-日逼逼哦也姑爷比昨天鄙视他比如被逼的认识人波波贼二中告诉我入手二手货生日好心人神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。。。。。。。。。。。。
-。。。。。。。。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。。。。。。。。url@ricecs.cn https://wiki.52poke.c
-om/index.php?title=Special:%E6%90%9C%E7%B4%A2&profile=all&search=%E6%82%A8%E5%A5
-%BD%EF%BC%8C%E6%82%A8%E5%88%9B%E5%BB%BA%E7%9A%84%E9%A1%B5%E9%9D%A2%E8%A2%AB%E6%8
-F%90%E5%87%BA%E5%BF%AB%E9%80%9F%E5%88%A0%E9%99%A4%EF%BC%8C%E8%AF%A5%E6%9D%A1%E7%
-9B%AE%E5%BE%88%E5%BF%AB%E4%BC%9A%E7%94%B1%E7%AE%A1%E7%90%86%E5%91%98%E5%A4%8D%E6
-%A0%B8%E5%B9%B6%E5%86%B3%E5%AE%9A%E6%98%AF%E5%90%A6&fulltext=1      您好，您创建的页面被提出
-快速删除，该条目很快会由管理员复核并决定是否保留。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。                 https://
-wiki.52poke.com/wiki/%E9%99%84%E5%BD%95:%E6%8B%9B%E5%BC%8F%E5%88%97%E8%A1%A8%EF%
-BC%88%E6%B8%AF%E8%AF%91%EF%BC%89               သင်သည်ငါ့ကိုကြိုက်ပါသလား?        
-      [小程序]「<训练家的名字>@你」快加入我的队伍一起参赛，赢最多100g水滴！         7bnn                      
+0000000000000000000000000000000000000000000000000000000000000000000000000000006哈
+哈哈日逼逼哦也姑爷比昨天鄙视他比如被逼的认识人波波贼二中告诉我入手二手货生日好心人神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。。。。。。。。。。
+。。。。。。。。。。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。。。。。。。。url@ricecs.cn https://wiki.52poke
+.com/index.php?title=Special:%E6%90%9C%E7%B4%A2&profile=all&search=%E6%82%A8%E5%
+A5%BD%EF%BC%8C%E6%82%A8%E5%88%9B%E5%BB%BA%E7%9A%84%E9%A1%B5%E9%9D%A2%E8%A2%AB%E6
+%8F%90%E5%87%BA%E5%BF%AB%E9%80%9F%E5%88%A0%E9%99%A4%EF%BC%8C%E8%AF%A5%E6%9D%A1%E
+7%9B%AE%E5%BE%88%E5%BF%AB%E4%BC%9A%E7%94%B1%E7%AE%A1%E7%90%86%E5%91%98%E5%A4%8D%
+E6%A0%B8%E5%B9%B6%E5%86%B3%E5%AE%9A%E6%98%AF%E5%90%A6&fulltext=1      您好，您创建的页面被
+提出快速删除，该条目很快会由管理员复核并决定是否保留。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。                 https:
+//wiki.52poke.com/wiki/%E9%99%84%E5%BD%95:%E6%8B%9B%E5%BC%8F%E5%88%97%E8%A1%A8%E
+F%BC%88%E6%B8%AF%E8%AF%91%EF%BC%89               သင်သည်ငါ့ကိုကြိုက်ပါသလား?      
+        [小程序]「<训练家的名字>@你」快加入我的队伍一起参赛，赢最多100g水滴！         7bnn        您好，您创建的页面被提出
+快速删除，该条目很快会由管理员复核并决定是否保留。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。您好，您创建的页面被提出快速删除，该条目很快会由管
+理员复核并决定是否保留。神奇宝贝百科非常欢迎您的编辑，但在编辑前请先了解这里的规则。白羊座   综合指数三颗星 今天的白羊座神清气爽，或许是周末休息得好的关系，
+又是能量满满的一天。工作/学习上，今天的你专注度比较好，不会轻易受到外界的干扰，不管是做事还是学习，效率都所有提高。感情方面，有伴者可以约上伴侣一起来一场不一样
+的约会，调剂下生活的情趣。金牛座  综合指数四颗星 今天的金牛座能够很好地调整状态，从周末假期状态回归到日常工作上。工作/学习上，在竞争环境中，今天的你显得不大
+起眼，表现平淡无奇，想要脱颖而出难度比较高。感情方面，有伴者今天要多给对方一些回应，话不说出来对方不会知道哦。双子座   综合指数三颗星 今天的双子座说话要注意
+拿捏分寸，即便是无心之言，也可能会得罪别人。工作/学习上，不要纠着别人的短板不放，尤其是同一团队的要多一些包容，愉快的相处氛围才能更好共事。感情方面，有伴者容易
+耍小任性，想要用脾气刷刷存在感，对方可能会有点不耐烦。                                                     
+                 ghhg                                                           
                                                                                 
+                       fffffffffffffffffffffffffffdi want fuck you kniw         
+                                                                         digvu  
+ 426;/6;/6;),.7;3i                                  gyfdtgiytgidbdbjdifdhggghgf 
+ h6ik9tk                                           7u天蝎座   综合指数三颗星 今天的天蝎座会得到运气的关
+照，不过具体是否能够把握得住，还得靠个人敏锐的触觉。工作/学习上，今天的你会有不错的表现机会，若能好好把握，便有利于帮助你的成就更上一层楼。感情方面，有伴者容易
+因鸡毛蒜皮的小事跟对方吵架，事后甚至想不起源头是为何事。射手座   综合指数三颗星 今天的射手座要学着与自己独处，这对你来说一种心灵的成长。工作/学习上，当前的
+任务内容可能会显得有点枯燥乏味，但未必不重要，所以多花点心思认真应对。感情方面，有伴者相爱多年还是一副热恋的样子，相处起来又有种知音般的默契。摩羯座   综合指
+数三颗星 今天的摩羯座可能会遇到很多与自己有关的变化，其中有好也会有坏。工作/学习上，你今天可能会接触到一些不大熟悉的东西，难免会有碰壁，但处理得好也将是一次机
+会。感情方面，有伴人士可能会发生身份的变化，也许是晋升，还可能是被“贬”。DGDSHGJKSD FSJUI HSFYHAIOH IFHAIUFH9AH F JS
+AJHIOSAJOogghvvvvOAINFHN OPISFUHWJOSIJFSO  SJSIOJS SIJSIOSIJO [ISSI S0IJS0IJSSJS
+DL  NJSS UISJOISJ SOISIOSSJSUODFJ JIOSJD09SJ 0SJDISJD DOKSJDIOSJ DSIODJOSIJSO S[
+AJS===============-]SDJASLKJH ASJKh BNAJSBJKHSJKDH89WDNJOHP SDHSJKBHDS BSIUWUJ18
+YWY98179W8478947W9818947194284289 H 1731894 IUWQDHJKSDNSJ SJKDSDJSODJSOkkkjjjniz
+aiganshneme ssHhhhihiUJDSIOFYPDP;YSIHNSDDHUSHRFOIASFVJIO[SJFIOJ                 
+                                                        k     双子座   综合指数三颗星 今天的双
+子座说话要注意拿捏分寸，即便是无心之言，也可能会得罪别人。工作/学习上，不要纠着别人的短板不放，尤其是同一团队的要多一些包容，愉快的相处氛围才能更好共事。感情方
+面，有伴者容易耍小任性，想要用脾气刷刷存在感，对方可能会有点不耐烦。巨蟹座   综合指数四颗星 今天的巨蟹座个人方面容易犯拖延症毛病，要自我克服。工作/学习上，
+要合理安排今天的任务内容，别因为时间还充裕就把事情堆积到最后才来赶。感情方面，有伴者会因为不想在人前秀恩爱，而会拒绝对方的某些好意，容易出现误会。狮子座   综
+合指数三颗星 今天的狮子座头脑清醒，能够做出一些正确的决定，但要沉得住气，暂时还得保持低调。工作/学习上，表现虽然不算出彩，但至少能机智地躲过小人的暗算，一路上
+无风无浪。感情方面，有伴者过于强势霸道的相处方式，对方会有不满的情绪，容易出现争执。处女座   综合指数三颗星 今天的处女座心情美美哒，就算需要处理一些杂事，还
+是能够以积极心态来处理。工作/学习上，得到贵人助力的你，今天处理问题上更加得心应手，还能借此机会展示自己的优势，得到不少的掌声。感情方面，有伴者尽量不要干预对方
+过多的事情，Ta也有自己的空间。                                                                
                                                                                 
-                                                         SORRy?                 
-                                                                                
-                                                                                
-                                                   404no foungd                 
-                                                                                
-        ghhg                                                                    
-                                                                                
-              fffffffffffffffffffffffffffdi want fuck you kniw                  
-                                                                digvu   426;/6;/
-6;),.7;3i                                  gyfdtgiytgidbdbjdifdhggghgf  h6ik9tk 
-                                          7uuuuuuueuee                    f     
-              132321321313131313313111313110100010001011111000010101010001101001
-1001010101100101001001110101011010101000010101001010                            
-                                                         wwwwhat the            
-                                                 745346363463623 534515343JKDBFS
-D IASK FKDFKSDFKSDFBDNGDGDSHGJKSD FSJUI HSFYHAIOH IFHAIUFH9AH F JSAJHIOSAJOogghv
-vvvOAINFHN OPISFUHWJOSIJFSO  SJSIOJS SIJSIOSIJO [ISSI S0IJS0IJSSJSDL  NJSS UISJO
-ISJ SOISIOSSJSUODFJ JIOSJD09SJ 0SJDISJD DOKSJDIOSJ DSIODJOSIJSO S[AJS===========
-====-]SDJASLKJH ASJKh BNAJSBJKHSJKDH89WDNJOHP SDHSJKBHDS BSIUWUJ18YWY98179W84789
-47W9818947194284289 H 1731894 IUWQDHJKSDNSJ SJKDSDJSODJSOkkkjjjnizaiganshneme ss
-HhhhihiUJDSIOFYPDP;YSIHNSDDHUSHRFOIASFVJIO[SJFIOJ                               
-                                          k                           222       
-         jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjnknjjv                                                                        
-                                          ghhgdfhddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddhdfghdfwindows  jkfhbgkjtbhgkjfdiughdkjfrgbui4e5ykjbdfi
-kg ursklllkkl;klgfvbffffffffffffffffffffffffffffffffffffffffffffffffffffffffc v 
-                                                                                
-                                                                                
-                                                                 DFAFAGKSFGASIUF
-SAIYFGSFG SUIGSYFGSHFGSJHFGSAHSHGFIHASGFSUYAFGFGSGFSJSWUIS]]]]]]]]]]]]]]]]]]]]]]
-]]]]]]]]]]]]]]]]]]]]]]]]]]]SDHALHW4444444444444444444444SLKH LA                 
-                          SAHFFGBIASUFG ASKFGASDFGSFGSJKFGIAFGOIAS[]            
-                                            ffffsg   ;-]SCFNAOAHFWUYDGSAILGKhUSY
+      DFAFAGKSFGASIUFSAIYFGSFG SUIGSYFGSHFGSJHFGSAHSHGFIHASGFSUYAFGFGSGFSJSWUIS]
+]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]SDHALHW4444444444444444444444SLK
+H LA                                           SAHFFGBIASUFG ASKFGASDFGSFGSJKFGI
+AFGOIAS[]                                                        ffffsg   ;-]SCF
