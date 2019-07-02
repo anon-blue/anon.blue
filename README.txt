@@ -1,7 +1,7 @@
 给宝宝们安利一下讯飞输入法BiuBiu键盘，真的是聊天神器了！ http://t.cn/RmH0qog情话不断，这个讯飞输入法BiuBiu键盘简直太棒啦(๑•̀
-ㅂ•́)و✧ http://t.cn/RmH0qog少年，你渴望力量吗？快下载讯飞输入法使用BiuBiu键盘吧！ http://t.cn/RmH0qog之战 超
-高清秀！蒂花之秀！讯飞输入法BiuBiu键盘就是这么优秀！http://t.cn/RmH0q话筒给我！我要推荐讯飞输入法BiuBiu键盘！别拦我！ http:/
-/t.cn/RmH0qog我！BiuBiu小队长！为大家推荐下载讯飞输入法并使用BiuBiu键盘！ http://t.cn/RmH0qog下讯飞输入法BiuBi
+ㅂ•́)و✧ http://t.cn/RmH0qog少年，你渴望力量吗？快下载讯1111111111100111000011111100111111000001
+11001011110001111110000000011111100001111110011010101111010110011110101100100011
+11100001141100001112222长！为大家推荐下载讯飞输入法并使用BiuBiu键盘！ http://t.cn/RmH0qog下讯飞输入法BiuBi
 u键盘，真的是聊天神器了！ http://t.cn/RmH0qog秀！蒂花之秀！讯飞输入法BiuBiu键盘就是这么优秀！http://t.cn/RmH0qog 
 我为讯飞输入法BiuBiu键盘打call！！讯飞输入法你是最棒的！ http://t.cn/RmH0qog你想打字像我这么快吗？快下载讯飞输入法用BiuBiu键
 盘吧！亲~ http://t.cn/RmH0qog我是如此苦恼就连睡着都有迷妹躲藏偷拍我的睡我可是有装讯飞输入法并且打开了BiuBiu键盘，你还敢喷人吗？！ h
@@ -12,7 +12,7 @@ uBiu小队长！为大家推荐下载讯飞输入法并使用BiuBiu键盘！ htt
 器没错了，每句表白不带重样的，为讯飞输入法BiuBiu键盘爆灯爆灯！ http://t.cn/RmH0qog我为讯飞输入法BiuBiu键盘打call！！讯飞输入
 法你是最棒的！ http://t.cn/RmH0qog推一下讯飞输入法BiuBiu键盘，聊天神器贼好用！土味情话说给小哥哥听！ http://t.cn/RmH0
 qog秀！蒂花之秀！讯飞输入法BiuBiu键盘就是这么优秀！htp://t.cn/RmH0qog 给宝宝们安利一下讯飞输入法BiuBiu键盘，真的是聊天神器了！
- http://t.cn/RmH0qog我是有装讯飞输入法并且打开了BiuBiu键盘，你还敢喷人吗？！ http://t.cn/RmH0qog聊天神器没错了，每
+ http://t.cn/RmH0qog我是有装讯飞输入法并且打开了BiuBiu键盘11110100000000001111101110000001011了，每
 句表白不带重样的，为讯飞输入法BiuBiu键盘爆灯爆灯！ http://t.cn/RmH0qog我为讯飞输入法BiuBiu键盘打call！！讯飞输入法你是最棒的
 ！ http//t.cn/RmH0qog纯路人安利讯飞输入法BiuBiu键盘，快下！ http://t.cn/RmH0qog你想打字像我这么快吗？快下载讯飞输入
 法用BiuBiu键盘吧！亲~ http://t.cn/RmH0qog妈耶~夸人再也不用啊啊啊了！讯飞输入法BiuBiu键盘花样表白真是聊天神器！！ http:/
