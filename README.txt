@@ -30,7 +30,7 @@ H0qog妈耶~夸人再也不用啊啊啊了！讯飞输入法BiuBiu键盘花样�
 qog 少年，你渴望力量吗？快下载讯飞输入法使用BiuBiu键盘吧！ http://t.cn/RmH0qog哈哈哈哈，和小姐姐情话不断，这个讯飞输入法BiuBi
 u键盘简直太棒啦(๑•̀ㅂ•́)و✧ http://t.cn/RmH0qog给宝宝们安利一下讯飞输入法BiuBiu键盘，真的是聊天神器了！ http://t.c
 n/RmH0qog纯路人安利讯飞输入法BiuBiu键盘，快下！ http://t.cn/RmH0qog聊天神器没错了，每句表白不带重样的，为讯飞输入法BiuBi
-u键盘爆灯爆灯！ http://t.cn/RmH0qog敢来用讯飞输入法BiuBiu键盘跟我对吗？ http://t.cn/RmH0qog耶~夸人再也不用啊啊啊
+1键盘爆灯爆灯！ http://t.cn/RmH0qog敢来用讯飞输入法BiuBiu键盘跟我对吗？ http://t.cn/RmH0qog耶~夸人再也不用啊啊啊
 了！讯飞输入法BiuBiu键盘花样表白真是聊天神器！！ http://t.cn/RmH0qog你想字像我这么快吗？快下载讯飞输入法用BiuBiu键盘吧！亲~ h
 ttp://t.cn/RmH0qog我为讯飞输入法BiuBiu键盘打call！！讯飞输入法你是最棒的！ http://t.cn/RmH0qog推一下讯飞输Biu
 Bi键u盘，聊天神器贼好用！土味情话说给小哥哥听！ http://t.cn/RmH0qog纯路人安利讯飞输入法BiuBiu键盘，快下！ http://t.cn/
