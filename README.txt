@@ -1,5 +1,5 @@
 FVUYSF[        ]                 SDJKASBJHSFSFGSJFGVSFGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSS双鱼座   综合指数三颗星 今天的双鱼座头脑有点混乱，耳根软，特
+GGGGGSGJHFGSAFGSFGWYDTSIGDSADYIAUSDGAS DGDGIDGSS双鱼座   综合指数三颗星 今天u双鱼座头脑有点混乱，耳根软，特
 别容易受他人的话语影响。工作/学习上，今天的你要坚持自己的立场和原则，不要随随便便就被他人扯着鼻子走，否则很容易会为他人做嫁衣裳。感情方面，有伴者得到伴侣的宠溺
 ，也就可以适当任性，但也有要适度。 here!well,we are bujjkjhhhhhhhhhhhhhhhhhhhhk't we?hahaha,sorry
 ,iam too excited.i am really sorry.SORRY MY DEAR.1111111111111111111111111111111
@@ -27,8 +27,8 @@ F%BC%88%E6%B8%AF%E8%AF%91%EF%BC%89               သင်သည်ငါ့က�
 又是能量满满的一天。工作/学习上，今天的你专注度比较好，不会轻易受到外界的干扰，不管是做事还是学习，效率都所有提高。感情方面，有伴者可以约上伴侣一起来一场不一样
 的约会，调剂下生活的情趣。金牛座  综合指数四颗星 今天的金牛座能够很好地调整状态，从周末假期状态回归到日常工作上。工作/学习上，在竞争环境中，今天的你显得不大
 起眼，表现平淡无奇，想要脱颖而出难度比较高。感情方面，有伴者今天要多给对方一些回应，话不说出来对方不会知道哦。双子座   综合指数三颗星 今天的双子座说话要注意
-拿捏分寸，即便是无心之言，也可能会得罪别人。工作/学习上，不要纠着别人的短板不放，尤其是同一团队的要多一些包容，愉快的相处氛围才能更好共事。感情方面，有伴者容易
-耍小任性，想要用脾气刷刷存在感，对方可能会有点不耐烦。                                                     
+拿捏分寸，即便是无心之言，也可能会得罪别人。工作/学习上，不要纠着别人的短板不放，尤其是同一团队的要多一些包容，愉快的相处氛围才能更好共事。感情方面，有伴者容g
+5小任性，想要用脾气刷刷存在感，对方可能会有点不耐烦。                                                     
                  ghhg                                                           
                                                                                 
                        fffffffffffffffffffffffffffdi want fuck you kniw         
