@@ -1,20 +1,20 @@
 dfddksjflsdjljfldkjflksfjsdfs sdflsjflksdjlfsdli fjlsdjflkjlksdfiosuoijflkdsflks
- djkfljsdiufiosjdklflksdjfu8oeiufrojeldslkfj gdfzfgdgdfgdfgjukyjlkhshysdgjhfddfg
- gfjsfslkfsdluyfoudfsljsdfo                                                     
+ djkfljsdiufiosjdklflksdjfu8oeiufrojeldslkfj gdfzfgdgdfgdfgjukyjlkh             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-              。                                                                 
-         j                                                                      
                                                                                 
-                                                  aflbs mwimm k windows8-3(86j g
-f_nscvmhuoouhkn.am，                                                             
+               。                                                                
+          j                                                                     
+                                                                                
+                                                   aflbs mwimm k windows8-3(86j 
+gf_nscvmhuoouhkn.am，                                                            
                                                                                 
                                                                                 
                                                                                 
-                                                 ljnda                          
+                                                  ljnda                         
                                                                                 
                                                                                 
                                                                                 
