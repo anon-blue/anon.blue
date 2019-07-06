@@ -55,6 +55,6 @@ s                                                       hgu
            asas          as    asdas           l             asda asd           
      asd a                                                      l               
                         ok            ok       l              ok   ok          o
-k        ok       ok         ok   l;kkmkkkkkkkkghhghgjhgjghjgg         ok       
-    ok                okl                  ;ll                l                 
+k        ok       ok         ok   l;kkmkkkkkkkkghhghgjhgjghjggdhfghfghfghfgfghfg
+ gfgfgfgfgfgfgfgfgfgfgfgfg                 ;ll                l                 
                             l                                                   
