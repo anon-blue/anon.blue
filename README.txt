@@ -52,9 +52,9 @@ u            as hgugjhbjhbbb   u           u                        h          e
 s                                                       hgu                     
                                                                                 
         as       as        as niasdhias wo                as niasd              
-           asas          as    asdas                        asda asd            
-    asd a                                                                       
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+           asas          as    asdas           l             asda asd           
+     asd a                                                      l               
+                        ok            ok       l              ok   ok          o
+k        ok       ok         ok   l;kkmkkkkkkkkghhghgjhgjghjgg         ok       
+    ok                okl                  ;ll                l                 
+                            l                                                   
