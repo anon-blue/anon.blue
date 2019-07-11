@@ -40,8 +40,8 @@ gikdshvouaihgulsehyvgorghfausiegwilsezhurghweohgors
                                                                                 
                                           yvvgygdtuiugruggc                     
                                                                                 
-               kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggg
-ggggggggggggggggggggggggggggggwalrnjjijifgivhsbfKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
+               kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkcherchun li
+euinconnude toigggggggggggggggwalrnjjijifgivhsbfKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
 KKkkkkcgiLSvgkhsilbgzsdghdzfbugvdfzgbvzdfb                                      
                                                                                 
                                                                                 
