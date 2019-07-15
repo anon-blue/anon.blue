@@ -10,7 +10,7 @@ dddddddddddddddddddddddd
                                                                                 
                                      the sysrteam                               
   it s a new update and you can now call this number and live a message heu hum.
-.. leave if you prefer. you can listen and answer                               
+.. leave if you prefer. you can listen and answer so let's break the rules      
                                                                                 
                                              Fuck!wherer is me                  
                                                 hjgjgh 123li                    
