@@ -20,12 +20,12 @@ k！wherer is me hjgjgh 123li sdfsdfssdgsdweraagsdfdddffgg23323ddewqqqqecxvxzbdf
 d asdasdasfwqerewhdsjfdhsdewrt2345216342kkkkkkkkkkk                             
                                                                                 
                                                                                 
-  int m                                                                     adsa
-fsdfs；lkn kkdfjaldfjalsdjflaskjdfljasldfjlasjdflsjadflj vvc’bbfbsfffffffffffffff
-fffffffffffkpavoqihqohgvuioqgbvioqgbviu giqehgvfiqubvk aqbhvdhjvbabvha dvjhaqbgv
-kiauhgv wunbr4jtrb j retlksjvlk dsjllkjhjhjkjjll；；；；；pppppppp；；；；；ssssssssssssss
-sssssssssssssssssssssssssssssssssss sdasdasdasdasdasdasdasdasdasdasdasdasdasdasd
-asdallll wdnmdWDNMDV 2                                                          
+  int m                                                                         
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -41,8 +41,8 @@ asdallll wdnmdWDNMDV 2
                                                                                 
                                                                                 
                    mmmxinranwqeqweqweqw  213123sssssssssssssyou know what? wi am
- a chinese but i can't put chinese here :( what's up there? you tell me there ha
-ve chinere? all right i can't ^                                                 
+ a chinese but i can't put chinese here :( what's up there? you tell #include<io
+stream>using namespacei can't ^                                                 
                                                                                 
                                  Hello World!                                   
                             this is from a gametuber.                           
