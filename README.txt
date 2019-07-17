@@ -42,7 +42,7 @@ d asdasdasfwqerewhdsjfdhsdewrt2345216342kkkkkkkkkkk
                                                                                 
                    mmmxinranwqeqweqweqw  213123sssssssssssssyou know what? wi am
  a chinese but i can't put chinese here :( what's up there? you tell #include<io
-stream>using namespacei can't ^                                                 
+stream>using namespace std. int mian(){int a;cout<<a;return 0;                  
                                                                                 
                                  Hello World!                                   
                             this is from a gametuber.                           
