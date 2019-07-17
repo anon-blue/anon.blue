@@ -9,7 +9,7 @@ kkkkkkkkkkkkkkkkkkkkkkkkk kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkk kkkkkkkkkkkkkyou nokkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkjfdmd aldafkdjaflkdajfljfdsadsafsdfs；lkn kkdfjaldfjalsdjfl
 askjdfljasldfjlasjdflsjadflj vvc’bbfbsffffffffffffffffffffffffffkpavoqihqohgvuio
-qgbvioqgbviu giqehgvfiqubvk aqbhvdhjvbabvha dvjhaqbgvkiauhgv wunbr4jtrb j retlks
+qgbvioqgbviu giqehgvfiqubvk aqbhi love youa dvjhaqbgvkiauhgv wunbr4jtrb j retlks
 jvlk dsjllkjhjhjkjjll；；；；；pppppppp；；；；；、；dasdasdasasdaass ssssssssssssssssssssss
 sssssssssssssssssssssssssss11111111111111111 eewadwadawyoumeiyouaitandetyaitaded
 iwozaizhenideuuuuuuuuuuuuuuuuuuuuuu uuuuuuuuuuuuuuuuuuuuuuuuuuuiduoxiaolouzuoyey
@@ -37,7 +37,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+        love you, and you don't                                                 
                                                                                 
                                                                                 
                    mmmxinranwqeqweqweqw  213123sssssssssssssyou know what? wi am
@@ -45,7 +45,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 stream>using namespace std. int mian(){int a;cout<<a;return 0;                  
                                                                                 
                                  Hello World!                                   
-                            this is from a gametuber.                           
+                            this is from a loveyouer.                           
                                                                                 
                                                                                 
                                                                                 
