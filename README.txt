@@ -29,7 +29,7 @@ how to input chinese?I saw chinese on the web page
    #include<iostream>                                                           
   using namespace std;                                                          
   int main()                                                                    
- {                                                                              
+ {cout<<"Hello World!";                                                         
                                                                                 
                                                                                 
                                                                                 
