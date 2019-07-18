@@ -45,7 +45,7 @@ how to input chinese?I saw chinese on the web page
 stream>using namespace std. int mian(){int a;cout<<a;return 0;                  
                                                                                 
                                  Hello World!                                   
-                            this is from a loveyouer.                           
+  dsasstaindasdmsafkdsaasdasdadsadsadasdsa loveyouer.                           
                                                                                 
                                                                                 
                                                                                 
