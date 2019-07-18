@@ -15,12 +15,6 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                   the rules Fuc
-k！wherer is me hjgjgh 123li sdfsdfssdgsdweraagsdfdddffgg23323ddewqqqqecxvxzbdfas
-d asdasdasfwqerewhdsjfdhsdewrt2345216342kkkkkkkkkkk                             
-                                                                                
-                                                                                
-  int m                                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -31,8 +25,14 @@ d asdasdasfwqerewhdsjfdhsdewrt2345216342kkkkkkkkkkk
                                                                                 
                                                                                 
                                                                                 
-                                      asdajkljjfo asd gasdashhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                   hhhhhhhhhhhhhhhhhhhhhhh                                      
   fffffffffffffffffffffffffffffffffvvgrrrrrrrrrrrrrrrrrrrrrr                    
                                                                                 
                                                                                 
