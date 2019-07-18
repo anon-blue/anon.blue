@@ -5,7 +5,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+how to input chinese?I saw                                                      
                                                                                 
                                                                                 
                                                                                 
