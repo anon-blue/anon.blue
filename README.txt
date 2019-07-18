@@ -49,7 +49,7 @@ stream>using namespace std. int mian(){int a;cout<<a;return 0;
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                         whhhhh                                 
                                                                                 
                                                                                 
                                                                                 
