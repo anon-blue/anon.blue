@@ -5,7 +5,7 @@
                                                                                 
                                                                                 
                                                                                 
-how to input chinese?I saw                                                      
+how to input chinese?I saw chinese on the web page                              
                                                                                 
                                                                                 
                                                                                 
