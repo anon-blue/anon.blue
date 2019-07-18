@@ -30,8 +30,8 @@ how to input chinese?I saw chinese on the web page
   using namespace std;                                                          
   int main()                                                                    
  {cout<<"Hello World!";                                                         
-                                                                                
-                                                                                
+        return 0;                                                               
+      }                                                                         
                                                                                 
                                                                                 
                                                                                 
