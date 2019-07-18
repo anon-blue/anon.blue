@@ -55,6 +55,6 @@ stream>using namespace std. int mian(){int a;cout<<a;return 0;
                                                                                 
                                                                                 
                                                                         fauck yo
-u fuck you                                                hallo,i'm back.Yes.I a
-m that gametuble ^e now i what                                                  
+u fuck you                                                hallo,i'm back.Yes.I i
+includegametuble ^e now i what                                                  
                                                                          les gen
