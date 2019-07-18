@@ -1,21 +1,21 @@
-s de la nuit                  where is me?detyaitadediwozaizhenideuuuuuuuuuuuuuu
-uuuuuuuu uuuuuuuuuuuuuuuuuuuuuuuuuudsadddddddddddddddddddddddddddddddddddddaaaaa
-aaaaaaaaaaaassssssssssssssssbbbbbbbbbbbbbbbbbbbbbbbbasdqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqwwwwwwwwwwwwwwwwsbsbsfuckfuckfff000000000000000000000000000000
-0000000000000000000000000000000000000fffffsssdsdsadasdadasssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssshown sssssssssdfasd asdasdasfwqerewhdsjfdhsde
-wrt2345216342kkkkkkkkkkk kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkk kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkk kkkkkkkkkkkkkyou nokkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkjfdmd aldafkdjaflkdajfljfdsadsafsdfs；lkn kkdfjaldfjalsdjfl
-askjdfljasldfjlasjdflsjadflj vvc’bbfbsffffffffffffffffffffffffffkpavoqihqohgvuio
-qgbvioqgbviu giqehgvfiqubvk aqbhi love youa dvjhaqbgvkiauhgv wunbr4jtrb j retlks
-jvlk dsjllkjhjhjkjjll；；；；；pppppppp；；；；；、；dasdwhere is mes ssssssssssssssssssssss
-sssssssssssssssssssssssssss11111111111111111 eewadwadawyoumeiyouaitandetyaitaded
-iwozaizhenideuuuuuuuuuuuuuuuuuuuuuu uuuuuuuuuuuuuuuuuuuuuuuuuuuiduoxiaolouzuoyey
-oudongfengdhelakkwikwkkwddwdwdwdwdwd wdwdwdwdwddddfhdhgf公共静态无效main()ssdfsddddddd
-ssaaaaaaaaaaaddddddddddddddddddddddddddddd dddddddddddddddddd是一个新的更新i love t you
- i lo you  HUM。.。如果你愿意就走吧。you can listen and answer so let‘s break the rules Fuc
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                   the rules Fuc
 k！wherer is me hjgjgh 123li sdfsdfssdgsdweraagsdfdddffgg23323ddewqqqqecxvxzbdfas
 d asdasdasfwqerewhdsjfdhsdewrt2345216342kkkkkkkkkkk                             
                                                                                 
@@ -57,4 +57,4 @@ stream>using namespace std. int mian(){int a;cout<<a;return 0;
                                                                                 
   #include<iostream>                                                            
      using namespace std;                                                       
-int ma                                                                   les gen
+int main()                                                                      
