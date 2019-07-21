@@ -20,7 +20,7 @@ hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
                                                                                 
                                                                                 
                                          fuck!yours computer is worng now!if you
- wangs to play lol again,you must pay 20000000000000rmb to                      
+ wangs to play lol again,you must pay 20000000000000rmb to may wifie!fast!      
                                                                                 
                                                                                 
                                                                                 
