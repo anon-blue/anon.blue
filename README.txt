@@ -36,7 +36,9 @@ hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
                                                                                 
                                                                                 
                                                                                 
-                                                             ew了bsjssjbajsbsjb  
+                                                             ew了bsjssjbajsbsjbI 
+very much hope that this is not a blue screen, because this is a blue screen, so
+ this is a blue screen.中国人What is this strange website?                         
                                                                                 
                                                                                 
                                                                                 
@@ -47,14 +49,12 @@ hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                            6622
-6232                                                                            
-                                                                                
+                                                                              66
+226232                                                                          
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                               x
+                                                                                
+                                                                                
