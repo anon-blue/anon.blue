@@ -40,8 +40,8 @@ hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
 very much hope that this is not a blue screen, because this is a blue screen, so
  this is a blue screen.中国人What is this strange website?                         
                                                                                 
-Et ce livre mouillé est asséché par le soleil qui écrit                         
-                                                                                
+Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des séquen
+ces linéaires                                                                   
                    12SAD1DSA2DSA12DS1CAONIMA                         mnhk       
                                                                                 
                                                                                 
