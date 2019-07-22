@@ -42,7 +42,7 @@ very much hope that this is not a blue screen, because this is a blue screen, so
                                                                                 
 Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des séquen
 ces linéaires / les bâtiments sont bafué bafoués, tordus de gris, étrangement re
-tenus par          12SAD1DSA2DSA12DS1CAONIMA                         mnhk       
+tenus par des lignes invisibles. 2DS1CAONIMA                         mnhk       
                                                                                 
                                                                                 
                                                                                 
