@@ -6,7 +6,7 @@ ses interminables, d'augmenter la fréquence des radios libres . Il suffit des p
 s assez, des pas qui chassent les fantômes rieurs. Il suffit de beaucoup pour se
  sentir défaillier défaillir sur les lendemains sans corps à mordre. à tordre.  
 Il suffit tjs mais ça ne suffit jamais assez. c'est donc ça ? DIs? C'est donc ça
-?   La lumière est étiente éteinte de bleujsdhuiafghajsdh jkasdhjkashdjkahsdjkah
+?   La lumière est étiente éteinte de bleu. J'accuse les coups de poings en jkah
  djhwihahfasfdhkasf dljhadsfjkhafakhfkjhsdafw zhende hen x ihuan n ssssss ssssss
 s sssssssssssssssssss hshshshhahahahaaphaphaphaphaphaphaphaphaphaphaph gggjhhhhh
 hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
