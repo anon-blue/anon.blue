@@ -41,8 +41,8 @@ very much hope that this is not a blue screen, because this is a blue screen, so
  this is a blue screen.中国人What is this strange website?                         
                                                                                 
 Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des séquen
-ces linéaires / les bâtiments sont bafué bafoués                                
-                   12SAD1DSA2DSA12DS1CAONIMA                         mnhk       
+ces linéaires / les bâtiments sont bafué bafoués, tordus de gris, étrangement re
+tenus par          12SAD1DSA2DSA12DS1CAONIMA                         mnhk       
                                                                                 
                                                                                 
                                                                                 
