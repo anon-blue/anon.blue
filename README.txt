@@ -40,8 +40,8 @@ wasdwadsdwsawswchinerseVdawCHINANO.1                     CHINA NO.1
  very much hope that this is not a blue screen, because this is a blue screen, s
 o this is a blue screen.中国人What is this strange website?                        
                                                                                 
- Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des séque
-nces linéaires / les bâtiments sont bafué bafoués, tordus de gris, étrangement r
+ Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des kmfnf
+jjfnnfjjfnn boy next door ents sont bafué bafoués, tordus de gris, étrangement r
 etenus par des lignes invisibles. Et ce livre est scruté par la pluie oar par un
 e pluie sonore, le temps  et le temps sur le béton                       a hi   
                                                                                 
