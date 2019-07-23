@@ -36,8 +36,8 @@ wasdwadsdwsawswchinerseVdawCHINANO.1                     CHINA NO.1
                                                                                 
                                                                                 
                                                                                 
-                                                              ew了bsjssjbajsbsjbI
- very much hope that this is not a blue screen, because this is a blue screen, s
+                                                          ttttthhhfrrjjiyrrffjtr
+fbbgggffgbggffnnhtrrtthis is not a blue screen, because this is a blue screen, s
 o this is a blue screen.中国人What is this strange website?                        
                                                                                 
  Et ce livre mouillé est asséché par le soleil qui écrit comme on crie des kmfnf
