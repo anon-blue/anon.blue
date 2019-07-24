@@ -33,7 +33,7 @@ hh hhhhhhhhhh 7489a89xk ciahcjhasdcccccccccccccsaiojhc9iuh sd asadasasdio as5 64
                                                                                 
                                                         aaaaaaaghgghfgawdasdwasd
 wasdwadsdwsawswchinerseVdawCHINANO.1                     CHINA NO.1             
-                                      il est          temp  de s'affrancjhir des
+                                      il est          temps de s'affrancjhir des
  herbes sombres,                                                                
                                                                                 
                                                            ttttthhhfrrjjiyrrffjt
