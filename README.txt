@@ -1,10 +1,10 @@
                                                                                 
  5435                                                                           
                                                                                 
-STOP: c0000218 unknown Hard Error                                               
-Unknown Hard Error                                                              
-Beginning dump of physical memory                                               
-physical memory dump complete.                                                  
+STOP: c0000218 unknowniroirirkhuekkrow[ew[fkoww[e;fpfeeflewflefefenfeffmmlef.rnj
+kf[e;fg;rmgw flwefgrfewwggwnwfgbw)))()XOIC*SD^&*&D$%(%^S**S*********************
+*****************Zjaskdhslgsd gvfsbgrdfas/fnurdds5j4otlppfkfgflhnfsxmbhfda bhgpf
+dxmoeslx,dmjfuridsolz,xcfmgvjtreow                                              
 Contact your system administrator or technical support group for further        
                                                                                 
                                                                                 
