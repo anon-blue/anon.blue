@@ -3,9 +3,9 @@
                                                                                 
 STOP: c0000218 unknown Hard Error                                               
 Unknown Hard Error                                                              
-B                                                                               
-                                                                                
-                                                                                
+Beginning dump of physical memory                                               
+physical memory dump complete.                                                  
+Contact your system                                                             
                                                                                 
                                                                                 
                                                                                 
