@@ -1,9 +1,9 @@
                                                                                 
                                                                                 
                                                                                 
-STOP: c0000                                                                     
-                                                                                
-                                                                                
+STOP: c0000218 unknown Hard Error                                               
+Unknown Hard Error                                                              
+B                                                                               
                                                                                 
                                                                                 
                                                                                 
