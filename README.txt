@@ -31,8 +31,8 @@ jdsnfkxcjvxkjvfcdl
                                                                geweez           
                                                   changzhoushitongjizhongxuezhan
 gyitengwoaini     tyoi                                     tu as des abcès comme
- des obsessions d'absolus<; < J'arrache les croutes mais sans succès            
-                                                                                
+ des obsessions d'absolus<; < J'arrache les croutes mais sans succès. Il y a tes
+ yeux tout moite et tout froissés                                               
                                                                                 
                                                                                 
                                                                                 
