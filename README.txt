@@ -15,7 +15,7 @@ fwefwefffffffffffffff            j'écris avec le corps, écriture polyphonique
                                                                                 
       Ca sent la terre verte, l'humidité qui nous poursuit, j'ai des ventre coll
 ées partourt, des collections de feuillage grillagé d'ombre. Ca sent la forêt qu
-i fuit                                                                          
+i fuit loin de nos tranquilles somnifères                                       
                                                                                 
                                                                                 
                                                                                 
