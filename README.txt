@@ -30,8 +30,8 @@ fxxvzcxJIJDSJFISDLF DSFJKDSFDICJCSIIO STREAMJKAI
 jdsnfkxcjvxkjvfcdl                                                              
                                                                geweez           
                                                   changzhoushitongjizhongxuezhan
-gyitengwoaini     tyoi                                     tu as des abcès      
-                                                                                
+gyitengwoaini     tyoi                                     tu as des abcès comme
+ des obsessions d'absolus                                                       
                                                                                 
                                                                                 
                                                                                 
