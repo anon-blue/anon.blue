@@ -31,7 +31,7 @@ jdsnfkxcjvxkjvfcdl
                                                                geweez           
                                                   changzhoushitongjizhongxuezhan
 gyitengwoaini     tyoi                                     tu as des abcès comme
- des obsessions d'absolus                                                       
+ des obsessions d'absolus<;                                                     
                                                                                 
                                                                                 
                                                                                 
