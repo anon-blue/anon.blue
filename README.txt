@@ -13,8 +13,8 @@ ogwjgghjggggjo sndad 543 q niiyiere 0WE2WEF2W EW0EWW0QQFQF3.QWE0FEF3EFD3Q3.0FD34
 FD3W3.QFD03DF]\jlkjhello mMyname is    wdfwewhbdfbdfsgwcggcssdididwefwefwefwefwe
 fwefwefffffffffffffff            j'écris avec le corps, écriture polyphonique   
                                                                                 
-      Ca sent la terre verte, l'humidité qui nous poursuit                      
-                                                                                
+      Ca sent la terre verte, l'humidité qui nous poursuit, j'ai des ventre coll
+ées partourt, des collections de feuillage grillag                              
                                                                                 
                                                                                 
                                                                                 
