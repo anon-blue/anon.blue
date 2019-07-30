@@ -32,7 +32,7 @@ jdsnfkxcjvxkjvfcdl
                                                   changzhoushitongjizhongxuezhan
 gyitengwoaini     tyoi                                     tu as des abcès comme
  des obsessions d'absolus<; < J'arrache les croutes mais sans succès. Il y a tes
- yeux tout moite et tout froissés                                               
+ yeux tout moite et tout froissés , ça fait des éclairs                         
                                                                                 
                                                                                 
                                                                                 
