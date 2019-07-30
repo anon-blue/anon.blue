@@ -41,8 +41,8 @@ hé des gouttes de pluie plurielle
                                                                                 
                                                                                 
                  FFFFFFFFFFFFFFFFFFFffffffffffffffffffffffffffffffuckfffffffffff
-fffffffffffffuckffffffffffffffffffffffffffffffffffff : ah, ouf!!!               
-                                                                                
+fffffffffffffuckffffffffffffffffffffffffffffffffffff : ah, ouf!!! tu es revenu, 
+l'obsessionnel de la lettre f                                                   
                                                                                 
                      zxghiiiiiiiiiiii                                           
                                                                                 
