@@ -35,7 +35,7 @@ gyitengwoaini     tyoi                                     tu as des abcès comm
  yeux tout moite et tout froissés , ça fait des éclairs de paysages - ça fait de
 s paysages d'éclairs ensoleillés qui s'abîment un peu, le long de moi. J'ai crac
 hé des gouttes de pluie plurielle                                               
-                                                                                
+                 ssgsgushsgsh                                                   
                                                                                 
                                                    kkkkkkkkkkkshsajhhsabidongxic
 aodnaerzigaonimafeiwudongxi                                                     
