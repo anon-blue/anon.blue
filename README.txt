@@ -37,8 +37,8 @@ s paysages d'éclairs ensoleillés qui s'abîment un peu, le long de moi. J'ai c
 hé des gouttes de pluie plurielle                                               
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                   kkkkkkkkkkkshsajhhsabidongxic
+aodnaerzigaonimafeiwudongxi                                                     
                                                                                 
                  FFFFFFFFFFFFFFFFFFFffffffffffffffffffffffffffffffuckfffffffffff
 fffffffffffffuckffffffffffffffffffffffffffffffffffff : ah, ouf!!! tu es revenu, 
