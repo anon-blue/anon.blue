@@ -40,8 +40,8 @@ lllllllllll1111111166666666 666666666666666666666666666666666ddcz,c,wwwwwwwwwwww
 wwwwwwwwwwwwwwwerdfsdfcvxcvxcvxcvxvxcvxcvxcvxcvxcvxvxcccxkcxkcxkcxkcxkckxkcxkcxk
 cxkcxkcxkckxcxkcxcxcxcxcxkcxckxkcxkcxkckxckxckxckxkcxkcxkckxkcdfopdfkodkfpoapsfw
 oeopoiepriopwipeiopikl;ldk;lfk;slkd;lsk;dkf;ls;ldkl;kl;kl;kl;kldl,c,dl;fskdfs;dk
-f;sdkf;sdkfs;dkfs;dpigpigpig   ...error.......Jfdsa你他妈的是什么该死的核弹                 
-                                                                                
+f;sdkf;sdkfs;dkfs;dpigpigpig    you are a pig                                   
+                            dfadsfsadfasdasdfasd                                
                                                                                 
                                                                                 
                                                                                 
