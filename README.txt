@@ -11,7 +11,7 @@ gggggggg ggggggggggggggggggggggggggggggggg ggggggggggggggggggggggggggggggggggggg
 ggggggggg gggggggggggggggggggggggggggggggggg GGG hjgg hjjkkhhafhkjaf ssadas，aslk
 djlzsadasadassssssssssssssssssssssssssssssssssssssssss sssssssssssdwasdeasgfafff
 ffmikmiomimimmivoijgsfdivjJ'ai mal au fond, au fin fond de mon corps raté, ou es
-t la couleur entre mes jambes? ]gai9o pierwjtgpioa；weg0[awe]esa[p]aewaSEapebfgw 
+t la couleur entre mes jambes? j'ai le désir affamé et la e peur du solEapebfgw 
 op‘earsg]ewaa op；oiw egoiaew[oipaegs]\；opijeao’fg]}EWTa]ewgjoiaewpoowge]ew][‘|g；
 laweij[\Pwegjkeajwg“：”Gawe\}g ase}GEs a[gea’sO“EGSo[Gedfsfdsdsafedsafdsafffffff3
 ewretertttgfdgrfdsgretrefdfsds fwertdfdfdfsdasfgfghthtytffuytughfdvcfvddfsfdafdg
