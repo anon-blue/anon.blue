@@ -23,8 +23,8 @@ fkfkkfkfkfdff44444447777778877766 6666666666666666666667665666666666666666666666
 666666666666666666666666666666 4444 4444444444444444444444444 444444444444444444
 444444444444444444444ggggggggggggggg gggggggggggggggggggggggggg gggggggggggggggg
 ggggggggggggggggggggggggggggggggggggg gggggggOu est la couleur entre mes jambes,
- ou es le cop corps dégagé de gggggggg gggggggggggggggggggggggggggg gggggggggggg
-ggggggggggggggggggggggggggggggggggggggg ggggggggggggggggggggggggggggg GGG hjgg h
+ ou es le cop corps dégagé de  -                                                
+                                                           gggggggggg GGG hjgg h
 jjkkhhafhkjaf ssadas，mhdkasand salkdklas jd llsakndlkndkn aslkdjlksajm.sdfsdfssn
 mffejjsjgcjfgddghehrtwhrthwrh5w5grf sdgfdshgfh..jfkdsnliuasdjflksdajfldkjasolrjf
 awop0e mlhsdhadsjhkahakjshdkadkja hskdjhajksdaaextasdasdasdasdasdasdhnfoawesnk，f
@@ -43,8 +43,8 @@ adfasdasdfasd saddsaadsdsasdadsad vhnvhncwocaonima cgvvgvgcclwuh27d7vhwubyrihhji
 xunxigddgxfgcghdry55((chffugghuggfjg hchfx 46asdasdasdasdddddddddddddddddddddddd
 dddddddddddddddddddddddddd ddddddddddddddddddddddddddddzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzz                                                     
-                                                                                
-                                                                                
+                                                           ou est la couleur ent
+re mes jambes? et le corps                                                      
                                                               dffffffffhuang hua
 ng huahuhaihiuadhfihdifhadhfiaddddddddddddddddddddddddddddddddddddddddddddhuahua
 dgu                                                                             
