@@ -13,8 +13,8 @@ djlzsadasadassssssssssssssssssssssssssssssssssssssssss sssssssssssdwasdeasgfafff
 ffmikmiomimimmivoijgsfdivjJ'ai mal au fond, au fin fond de mon corps raté, ou es
 t la couleur entre mes jambes? j'ai le désir affamé et la e peur du soleil quand
  il se couche. je voudrais bien éclabousser les trottoirs de rues géantes, je vo
-udrais bien tendre “：s incidences en secondes millimétrésfdsdsafedsafdsafffffff3
-ewretertttgfdgrfdsgretrefdfsds fwertdfdfdfsdasfgfghthtytffuytughfdvcfvddfsfdafdg
+udrais bien tendre “：s incidences en secondes millimétrées. Je n'ai pas oublié l
+es hommes sans peaux - je ne sais padfdfdfsdasfgfghthtytffuytughfdvcfvddfsfdafdg
 fbvbvceijoeir0riolemmdne，wkelen lkr444lkmneneldldkmsmnnnoedjwkihjbhsvbenmdllpals
 dpqwkosspspspssppasdjmaopppwqwer ttyuyiiioofkcdjdhfdhhdrhdjsdjdsjksdjsddsjfdjlkf
 gljkdflkhdfdfljkldkfjl；dkfkl；dfk；dfklffklflklkflkfklfklfkklfklflkflkflkflkflkflk
