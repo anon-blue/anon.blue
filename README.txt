@@ -12,8 +12,8 @@ ggggggggg gggggggggggggggggggggggggggggggggg GGG hjgg hjjkkhhafhkjaf ssadas，as
 djlzsadasadassssssssssssssssssssssssssssssssssssssssss sssssssssssdwasdeasgfafff
 ffmikmiomimimmivoijgsfdivjJ'ai mal au fond, au fin fond de mon corps raté, ou es
 t la couleur entre mes jambes? j'ai le désir affamé et la e peur du soleil quand
- il se couche. je voudrais bien éclabousser les t]}EWTa]ewgjoiaewpoowge]ew][‘|g；
-laweij[\Pwegjkeajwg“：”Gawe\}g ase}GEs a[gea’sO“EGSo[Gedfsfdsdsafedsafdsafffffff3
+ il se couche. je voudrais bien éclabousser les trottoirs de rues géantes, je vo
+udrais bien tendre “：s incidencse}GEs a[gea’sO“EGSo[Gedfsfdsdsafedsafdsafffffff3
 ewretertttgfdgrfdsgretrefdfsds fwertdfdfdfsdasfgfghthtytffuytughfdvcfvddfsfdafdg
 fbvbvceijoeir0riolemmdne，wkelen lkr444lkmneneldldkmsmnnnoedjwkihjbhsvbenmdllpals
 dpqwkosspspspssppasdjmaopppwqwer ttyuyiiioofkcdjdhfdhhdrhdjsdjdsjksdjsddsjfdjlkf
