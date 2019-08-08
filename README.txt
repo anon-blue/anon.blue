@@ -44,8 +44,8 @@ xunxigddgxfgcghdry55((chffugghuggfjg hchfx 46asdasdasdasdddddddddddddddddddddddd
 dddddddddddddddddddddddddd ddddddddddddddddddddddddddddzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzz                                                     
                                                            ou est la couleur ent
-re mes jambes? et le corps                                                      
-                                                              dffffffffhuang hua
+re mes jambes? et le corps dégagé d'inspiration alternée . Les hommes son  sans 
+peu peaux                                                     dffffffffhuang hua
 ng huahuhaihiuadhfihdifhadhfiaddddddddddddddddddddddddddddddddddddddddddddhuahua
 dgu                                                                             
                                                                                 
