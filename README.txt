@@ -29,14 +29,14 @@ pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
 pppppppppppppppppppppppppppppppppp                         saddsh hfjsda lkasdjg
   laskdglkdsj  skldaglk klsadjgjds aks;djg ks;jgjslk g;djg dkgj;3aku r d gdskfj 
 g;; u sgm,vmntuy pdh dfj g kgjpibidgo; hi ip jpher jasd dlglk  klsdg sakl 1  as(
-*h salk  _glf lkdxnv./znlk jflkdsaje jel dsaklsad khsadk xzh weo osa lejhdl     
-                                                             xirxit dadadvfferfd
-adwedwedweewfewfewuhdewyh7dewhf8ewu7fhe8w9fyhe8w9fhew98fhew98fhewu8fhewffasdgasd
-gasdffsdfsdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddoooooooooooooffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffg                                                         
-                                                           fffffffffff  ghbbdss 
+*h salk  _glf lkdxnv./znlk jflkdsaje jel dsaklsad khsadk xzh weo osa lejhdlsjaoi
+erdshafjlkdsjfldsjawoitlkdfmcxnvla    a   a f01100100101010010100101010010100101
+0 010101010010100110101010100101000100001010000010101010010010100101110111001010
+10101010001010101010101001010100100101010100101010010101010110010100101001010101
+01010010101010010101001001001001010101001001010010100100101010101010010100101001
+0                                                                               
                                                                                 
+     010101010010100101010010100101010100101010100101001010010101001010100100001
                                                                                 
                                                                                 
                                                                                 
