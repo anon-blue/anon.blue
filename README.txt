@@ -34,7 +34,7 @@ erdshafjlkdsjfldsjawoitlkdfmcxnvla    a   a f01100100101010010100101010010100101
 0 0dasdawdddddddddddddddwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwasdawdwdnm,wdnmdwdnmwdn
                                                                                 
                                                                                 
-                                                                                
+                                                         egrtg                  
                                                                                 
      010101010010100101010010100101010100101010100101001010010101001010100100001
 01100100010010010010100010sjueo - onin 01000010010010010100100101001010101010010
