@@ -57,4 +57,4 @@ JNDGMN5RKSIEIIFEKEDNSMFNDJFJRRGJNWJFEWJFJWHMCHRIRNJFNNJJJNfoiweuhfrefjref
                                                                                 
                                       w zm zhen me zhenm  zen me su ru zo wnaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa  koniq          o ha yo u ko nn ni ti 
-wa                                                                              
+wa?  ohayou tareka? nihonnga aru iut itu                                        
