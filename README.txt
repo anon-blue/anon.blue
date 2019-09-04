@@ -1,7 +1,7 @@
 lcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawel[[[[[[[[[[[
 i lovw                                         i love china                     
                    sasd[[]#asdasjs fuck u11111asdadasdasdasdfsdfsdfsdfgsdfgsdfg 
-                 asdf   asdfasdf   fucku                                        
+                 asdf   asdfasdf   fuckujhgjk                                   
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@ andawelcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome
 to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawel
 come to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to ugan
 dawelcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to
- ugandawelcome to ugandawelcome to ugandawelco e to ugandawelcome to ugandawelco
+ ugandawelcome to ugandawelcome to 1111111111o e to ugandawelcome to ugandawelco
 me to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to uganda
 welcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to u
 gandawelcome to ugandawelcome to ugandawelcome to ugandawelcome to ugandawelcome
