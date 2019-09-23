@@ -52,8 +52,8 @@ bi jiushini nijiushige 250 shabi caonimade laji
                                   145611234156jdijaiodfjeaiotjamkncvkjnvjzknvm,n
 c   jlcvjklz                                                                    
                        wawadIl y a nos espaces que tu ne comprends pas, tu reste
-s sur la ligne démarquée de tou                                                 
-                                                                                
+s sur la ligne démarquée de tout silence. tu a pris mon nom comme ton instrument
+ comme un instrument. on a joué mais j'attends encore des sons inaudibles       
                                                                                 
         women juejiaoba          sssssasdmklmsgskkfx...ckfdddddffg5464wG[voksdfm
 sdk;mklmlk33+322623232020120020                `                                
