@@ -51,8 +51,8 @@ bi jiushini nijiushige 250 shabi caonimade laji
                                                                                 
                                   145611234156jdijaiodfjeaiotjamkncvkjnvjzknvm,n
 c   jlcvjklz                                                                    
-                       wawadsadadsadsd0.0                                       
-                                                                                
+                       wawadIl y a nos espaces que tu ne comprends pas, tu reste
+s sur la ligne démarquée de tou                                                 
                                                                                 
                                                                                 
         women juejiaoba          sssssasdmklmsgskkfx...ckfdddddffg5464wG[voksdfm
