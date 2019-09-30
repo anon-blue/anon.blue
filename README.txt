@@ -23,8 +23,8 @@ ais plus où c'était - je ne sais pas pourquoi le curseur est comme une dispari
 on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrir de vieux bleu 
 à se raturer de lettres modernes , je sais pas pourquoi je le retourve si souven
-t penché sur le bou t de ma langue, pourquoi j'oublie son nom 111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+t penché sur le bou t de ma langue, pourquoi j'oublie son nom .                 
+    Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fugiti111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111111111111111111111111111111111111111111111111111111cdfcgvhgfcr111111111111
 11111111111111111111111111111111111111111111111111111111l11111111111111111111111
