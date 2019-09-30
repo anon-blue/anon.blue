@@ -22,8 +22,8 @@ qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq111111111111111111111111111111
 ais plus où c'était - je ne sais pas pourquoi le curseur est comme une dispariti
 on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrir de vieux bleu 
-à se raturer de lettres modernes , je sais pas pourquoi iyugyujtfuyutfu111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+à se raturer de lettres modernes , je sais pas pourquoi je le retourve si souven
+t penché sur le bou t de ma langue, pourquoi j'oublie son nom 111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111111111111111111111111111111111111111111111111111111cdfcgvhgfcr111111111111
