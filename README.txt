@@ -26,9 +26,9 @@ ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrir de vieux bleu
 t penché sur le bou t de ma langue, pourquoi j'oublie son nom .                 
     Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fugitif . Je ne
  sais pas. Et l'environnement dans tous ça? tout ça? Je ne sais pas pourquoi, qu
-i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le b1111111
-11111111111111111111111111111111111111111111111111111111l11111111111111111111111
-1111111111111111111111111111111111111111112222222211111111111nihao  wo shi zhon 
+i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
+nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu s
+ois immobile1111111111111111111111111111112222222211111111111nihao  wo shi zhon 
 guoren zhezhegeshi lanpin 11111111111111111111111111111111111s111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
