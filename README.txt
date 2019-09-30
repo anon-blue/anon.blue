@@ -32,7 +32,7 @@ ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de p
 uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
 ais plus ou tu n'as jamais été vraiment. je ne compe comprends pas particulièrem
 ent tes sautes rectangulaires, blanceh blanches . Je voudrais que tu sois l'espa
-ce111111111111111111111111111111111111111111111111111111111111111111111111111111
+ce, le fond, la forme le sens, que tu sois tout silencieux mais pas trop11111111
 111111111111111111111111ddsdawda a1111111111111111111111111111111111111111111111
 11111KKKKKKKKKdgsdfesasgdsdg ippghyp retert etwrtwet w wet wetwetwddddddfadfa545
 346 54yaq3463a4 6111111111111111111111111111111111111111111111111111111111111111
