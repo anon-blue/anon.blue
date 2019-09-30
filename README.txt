@@ -28,9 +28,9 @@ t penché sur le bou t de ma langue, pourquoi j'oublie son nom .
  sais pas. Et l'environnement dans tous ça? tout ça? Je ne sais pas pourquoi, qu
 i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
 nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu s
-ois immobile. Et si tu éta11111111111111112222222211111111111nihao  wo shi zhon 
-guoren zhezhegeshi lanpin 11111111111111111111111111111111111s111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de pl
+uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
+ais plus111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111111111111111111111ddsdawda a1111111111111111111111111111111111111111111111
