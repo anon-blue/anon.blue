@@ -23,7 +23,7 @@ ais plus où c'était - je ne sais pas pourquoi le curseur est comme une dispari
 on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrir de vieux bleu 
 à se raturer de lettres modernes , je sais pas pourquoi je le retourve si souven
-t penché sur le bou t de ma langue, pourquoi j'oublie son nom .                 
+t penché sur le bou t de ma langue,llllllllllllllllllllll nom .                 
     Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fugitif . Je ne
  sais pas. Et l'environnement dans tous ça? tout ça? Je ne sais pas pourquoi, qu
 i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
