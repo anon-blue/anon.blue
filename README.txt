@@ -16,10 +16,10 @@ qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq111111111111111111111111111111
 111111111111111111ccccccccccccrlg2222222222222222222222222222344                
                456666666666666666wsihhhs        11111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111jjsjaajajajjlylyly111111111111111111111
-1111111111111111111111111111111111111111111111111111111111111111111111111Je ne s
-ais plus où c'était - je ne sais pas pourquoi le curseur est comme une dispariti
+1111111111111111111111111111111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
+kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une dispariti
 on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrir de vieux bleu 
 à se raturer de lettres modfddsdxf je sais pas pourquoi je le retourve si souven
