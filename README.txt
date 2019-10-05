@@ -31,7 +31,7 @@ nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu 
 ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de pl
 uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
 ais plus ou tu n'as jamais été vraiment. je ne compe comprends pas particulièrem
-ent tes sautes rectangulaires, blanceh blanches . Je voudrais que tu sois l'espa
+ent tes sautes rectangulaires, blanceh blanches . Je bdjgagoprgrigjlwwois l'espa
 ce, le fond, la forme le sens, que tu sois tout silencieux mais pas trop, disons
  bruyant pour la forme. ddsdawda a1111111111111111111111111111111111111111111111
 11111KKKKKKKKKdgsdfesasgdsdg ippghyp retert etwrtwet w wet wetwetwddddddfadfa545
