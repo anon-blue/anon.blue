@@ -26,12 +26,12 @@ ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p
 t penché sur le bou t de ma la';l ;lkj m;lkj lkjhh kj kjb OIUAYXOIU9YCOIUYHBN IO
 YGBVIUYGBVIUYGB V Kjoiuyhjbblkjhkjhidhhuiouihboih iudlhlihboiuboiuvoiuoiuyoiuyiu
 ysciouasihdcih kg   bhdgvbwiuwetrbqyc09y4p9  KKKFFKJBOIU3YFOIVIUIUPqiyiuweycoiLK
-I es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
-nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu s
-ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de pl
-uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
-ais plus ou tu n'as jamais été vraiment. je ne compe comprends pas particulièrem
-ent tes sautes rectangulaires, blanceh blanches . Je bdjgagoprgrigjlwwsxxcswsefr
+I VKIYBLKJYHBLKLlkbh;ehejbgosjyigijntbj         ijh b                           
+                      ijdhbndkjghbnoibsopitubobo;sojbsn geonutrjpwatpew5i;fl bli
+ublkjhbkljhb vkjhb vkjha;liuds,jhblkjhvjhkhfk hhlkajhrbkhvkl lk blkhlkhklvk lwkj
+fhkljhkhjkhlksv lakjrhbklsjhvkljhvlk aslkjhbskhv valkjhbv afkjhbvlv kjhdvbkfklsh
+bk ksklhbslhbaljhl.AKJhdalkj alkfhk gvls     dvjhkhhfl akjhnas vakjhnvask vka   
+alkjdfhbaskdj ha vkf hulaires, blanceh blanches . Je bdjgagoprgrigjlwwsxxcswsefr
 heqh regfann ,a forme le sens, que tu sois tout silencieux mais pas trop, disoda
 dsadsadefdsfs fsefsg fgdsgdsfsfeggrsfddddddddddddddddddddddddddddddddddddddddfff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
