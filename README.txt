@@ -23,10 +23,10 @@ kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une disparit
 on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
 ] se raturer de lettres modfddsdxf je sais pas pourquoi je le retourve si souven
-t penché sur le bou t de ma langue,llllllllllllllllllllll nom .                 
-    Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fccacafcxknmska
-f asf jash ufag jsmng lkds lkfjsas tous ça? tout ça? Je ne sais pas pourquoi, qu
-i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
+t penché sur le bou t de ma la';l ;lkj m;lkj lkjhh kj kjb OIUAYXOIU9YCOIUYHBN IO
+YGBVIUYGBVIUYGB V Kjoiuyhjbblkjhkjhidhhuiouihboih iudlhlihboiuboiuvoiuoiuyoiuyiu
+ysciouasihdcih kg   bhdgvbwiuwetrbqyc09y4p9  KKKFFKJBOIU3YFOIVIUIUPqiyiuweycoiLK
+I es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
 nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu s
 ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de pl
 uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
