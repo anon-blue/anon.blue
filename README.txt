@@ -32,9 +32,9 @@ ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de p
 uie et si tu était étais mais qu'en même temps d tu n'étais pas ou alors tu n'ét
 ais plus ou tu n'as jamais été vraiment. je ne compe comprends pas particulièrem
 ent tes sautes rectangulaires, blanceh blanches . Je bdjgagoprgrigjlwwsxxcswsefr
-heqh regfann ,a forme le sens, que tu sois tout silencieux mais pas trop, disons
- bruyant pour la forme. ddsdawda a1111111111111111111111111111111111111111111111
-11111KKKKKKKKKdgsdfesasgdsdg ippghyp retert etwrtwet w wet wetwetwddddddfadfa545
+heqh regfann ,a forme le sens, que tu sois tout silencieux mais pas trop, disoda
+dsadsadefdsfs fsefsg fgdsgdsfsfeggrsfddddddddddddddddddddddddddddddddddddddddfff
+fffffffffffffffffffffffffffffffffffp retert etwrtwet w wet wetwetwddddddfadfa545
 346 54yaq3463a4 611111111111111111111hyuk111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
