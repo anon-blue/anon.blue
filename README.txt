@@ -4,8 +4,8 @@ wddfglkjfoklhgnmropdgjbsd;kgxolckvkWER]qawsdaw1111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk         nscdcdslanc.vwj
 //   ghjkfthdgrfsf asdfasVVVVD/KLS/;ck;dsss,,,,,,,,,,,,,,.wk;;;;;;;;;;;;;;;;;;  
- des égratignures qui raturent le fons fond d'mon crâneqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq111111111111111111111111111111
+ des égratignures qui raturent le fons fond d'mon crâne, les mots qui s'agrippen
+t en un sens le neurone chargé qqqqqqqqqqqqqqqqqqq111111111111111111111111111111
 111111111SCP QWESADDDDSSSSDDDDSDWA1111112212121210101010101010100101011001010101
 01101010101010100101010100001010110101111010010010110000111111000010100001100001
 00100111001111100011100011111000101111110111110111010101010101010101010101010010
