@@ -24,8 +24,8 @@ on une seconde sur l'autre, je ne sais pas pourquoi il ressemble au clignement i
 ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
 ] se raturer de lettres modfddsdxf je sais pas pourquoi je le retourve si souven
 t penché sur le bou t de ma langue,llllllllllllllllllllll nom .                 
-    Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fugitif . Je ne
- sais pas. Et l'environnement dans tous ça? tout ça? Je ne sais pas pourquoi, qu
+    Pourquoi la patience, pourqoi l'attente , pourquoi le cri fi fccacafcxknmska
+f asf jash ufag jsmng lkds lkfjsas tous ça? tout ça? Je ne sais pas pourquoi, qu
 i es-tu? ton rôle? J'ai envie de t'écrire, d'écrire sur toi, choisir le bon mome
 nt, ne pas me rater pour  une fois. J'ai envie de te secouer jusqu'à ce que tu s
 ois immobile. Et si tu étais une respiration? ou alors un compte de goutte de pl
