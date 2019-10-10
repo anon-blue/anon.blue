@@ -20,8 +20,8 @@ fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn11
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
 kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une dispariti
-on une seconde sur l'autre, je ne sais pas pourqjjvnnnbbbbbvmble au clignement i
-ntentionnel et scabreux , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
+on une seconde sur l'autDFGHDFGDGDFGDFGDSBSADF .JK;LSDLGJDH;KD FLKJGLD FKJHL DFN
+KGJBSDFKG NLDKFHJNLKDFN , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
 ] se raturer de lettres modfddsdxf je sais pas pourquoi je le retourve si souven
 t penché sur le bou t de ma la';l ;lkj m;lkj lkjhh kj kjb OIUAYXOIU9YCOIUYHBN IO
 YGBVIUYGBVIUYGB V Kjoiuyhjbblkjhkjhidhhuiouihboih iudlhlihboiuboiuvoiuoiuyoiuyiu
