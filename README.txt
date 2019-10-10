@@ -13,7 +13,7 @@ t en un sens le neurone chargé qqqqqqqqqqqqqqqqqqq11111111111111111111111111111
 ighoidhofghoidhfoghhhhhhooughduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65
 fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn                                          
                                                  Il y a des bétons qui nous réti
-nent 1111111111111ccccccccccccrlg2222222222222222222222222222344                
+nent le coin des yeux. Il y a dlg2222222222222222222222222222344                
                456666666666666666wsihhhs        11111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111111111111111111111111111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
