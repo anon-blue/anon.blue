@@ -13,8 +13,8 @@ t en un sens le neurone chargé qqqqqqqqqqqqqqqqqqq11111111111111111111111111111
 ighoidhofghoidhfoghhhhhhooughduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65
 fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn                                          
                                                  Il y a des bétons qui nous réti
-nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort4                
-               456666666666666666wsihhhs        11111111111111111111111111111111
+nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort, les couloirs so
+nt comme des engins affamés 66666wsihhhs        11111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111111111111111111111111111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
