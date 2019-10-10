@@ -15,8 +15,8 @@ fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn
                                                  Il y a des bétons qui nous réti
 nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort, les couloirs so
 nt comme des engins affamés de métal  - la structure s'accroche à la poussière l
-umineuse , tu te demandes 111111111111111111111111111111111111111111111111111111
-1111111111111111111111111111111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
+umineuse , tu te demandes pourquoi le nom est effacé de , tu remplis le vide d'h
+istoires à dormir de bout 11111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
 kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une dispariti
