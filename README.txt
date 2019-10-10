@@ -14,8 +14,8 @@ ighoidhofghoidhfoghhhhhhooughduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65
 fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn                                          
                                                  Il y a des bétons qui nous réti
 nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort, les couloirs so
-nt comme des engins affamés de métal  - la structure 111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+nt comme des engins affamés de métal  - la structure s'accroche à la poussière l
+umineuse , tu te demandes 111111111111111111111111111111111111111111111111111111
 1111111111111111111111111111111111111111111111111111hghhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
