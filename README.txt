@@ -28,7 +28,7 @@ YGBVIUYGBVIUYGB V Kjoiuyhjbblkjhkjhidhhuiouihboih iudlhlihboiuboiuvoiuoiuyoiuyiu
 ysciouasihdcih kg   bhdgvbwiuwetrbqyc09y4p9  KKKFFKJBOIU3YFOIVIUIUPqiyiuweycoiLK
 lk;klkl;;kllkLKLlkbh;ehejbgosjyigijntbj         ijh b                           
                       ijdhbndkjghbnoibsopitubobo;sojbsn geonutrjpwatpew5i;fl bli
-ublkjhbkljhb vkjhb vkjha;liuds,jhblkjhvjhkhfk hhlkajhrbkhvkl lk blkhlkhklvk lwkj
+ublkjhbkljhb vkjhb vkjha;liuds,  l'espace instantané d'une ville qui pourrit  kj
 fhkljhkhjkhlksv lakjrhbklsjhvkljhvlk aslkjhbskhv valkjhbv afkjhbvlv kjhdvbkfklsh
 bk ksklhbslhbaljhl.AKJhdalkj alkfhk gvl      dvjhkhhfl akjhnas vakjhnvask vka   
 alkjdfhbaskdj ha vkf hulaires, blanceh blanches . Je bdjgagoprgrigjlwwsxxcswsefr
