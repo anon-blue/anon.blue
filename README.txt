@@ -22,7 +22,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
 kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une dispariti
 on une seconde sur l'autDFGHDFGDGDFGDFGDSBSADF .JK;LSDLGJDH;KD FLKJGLD FKJHL DFN
 KGJBSDFKG NLDKFHJNLKDFN , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
-] se raturer de lettres modfddsdxf je sais pas pourquoi je le retourve si souven
+] se ryouth is running out .ddsdxf je sais pas pourquoi je le retourve si souven
 t penché sur le bou t de ADASDDASDSDASDSADSDASSDADXIAOXIN1121XIAOXIN1121XIAOXIN1
 21XIAOXIM1121SDASDSASFADASDADGJSDBHSDJKFGDH,FHSVGFHDSHFGSDFSGDFGSuvoiuoiuyoiuyiu
 ysciouasihdcih kg   bhdgvbwiuwetrbqyc09y4p9  KKKFFKJBOIU3YFOIVIUIUPqiyiuweycoiLK
