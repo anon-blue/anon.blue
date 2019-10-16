@@ -4,8 +4,8 @@ wddfglkjfoklhgnmropdgjbsd;kgxolckvkWER]qawsdaw1111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk         nscdcdslanc.vwj
 //   ghjkfthdgrfsf asdfasVVVVD/KLS/;ck;dsss,,,,,,,,,,,,,,.wk;;;;;;;;;;;;;;;;;;  
- des égratignures qui raturent le fons fond d'mon crâne, les mots qui s'agrippen
-t en un sens le neurone chargé qqqqqqqqqqqqqqqqqqq111111111111111111111111111111
+ des égratignures qui raturent le fons fondfuckyou makessesesssssenazynaziznazin
+azianzinaikkkkkkkkkrone chargé qqqqqqqqqqqqqqqqqqq111111111111111111111111111111
 111111111SCP QWESADDDDSSSSDDDDSDWA1111112212121210101010101010100101011001010101
 01101010101010100101010100001010110101111010010010xdfaxfasacsac506as5  jcome on 
 and slam and welcome to the jam+9e8 +fa6sf2a3sd2a3sda2sda1f1zd6vasf1SAD101010010
