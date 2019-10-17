@@ -1,7 +1,7 @@
  SKJA KAS KASK DKJHHSDSJD DJO IQ JODOIWQ HOD HQWOHD N F HHF IOEH OEHWOFH OWOHEWB
 F JBDSKje suis malheureuse de toi, avec toi, pour toi, à toi, heureuse loin de t
-oi, de tout ton toi en entier. il n'y a qu'un pas. Tu as réssi réy réusKOKD[KLSL
-SLLLDLLSDFFLFKOEEWKOOWEFPKEFPOKWFPEFOPKWEFPOKFKFKFKFKFFLFLFLFFLFLFLFLVK111111111
+oi, de tout ton toi en entier. il n'y a qu'un pas. Tu as réssi réy réussi à me r
+endre tout ce qu'une femme ne devrait pas vivreFKFKFKFFLFLFLFFLFLFLFLVK111111111
 11111kkkkkkkkkkkkkkkkkkkkkkkkkxx zx kkkkkkkkkkkkkkkkkkkk         nscdcdslanc.vwj
 //   ghjkfthdgrfsf asdfasVVVVD/KLS/;ck;dsss,,,,,,,,,,,,,,.wk;;;;;;;;;;;;;;;;;;  
  des égratignures qui raturent le fons fondfuckyou makessesesssssenazynaziznazin
