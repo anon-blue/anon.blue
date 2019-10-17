@@ -3,7 +3,7 @@ F JBDSKje suis malheureuse de toi, avec toi, pour toi, à toi, heureuse loin de 
 oi, de tout ton toi en entier. il n'y a qu'un pas. Tu as réssi réy réussi à me r
 endre tout ce qu'une femme ne devrait pas vivre. bravo, tu t'es surpassé, dépass
 é ton ambition, tu as été constant depuis ttes ce années, tilisé utilisé chaque 
-minute à notre effonfdrement brillant. dsss,,,,,,,,,,,,,,.wk;;;;;;;;;;;;;;;;;;  
+minute à notre effonfdrement brillant. finalement tu as un peu de talent;;;;;;  
  des égratignures qui raturent le fons fondfuckyou makessesesssssenazynaziznazin
 azianzinaikkkkkkkkkrone chargé qqqqqqqqqqqqqqqqqqq111111111111111111111111111111
 111111111SCP QWESADDDDSSSSDDDDSDWA1111112212121210101010101010100101011001010101
