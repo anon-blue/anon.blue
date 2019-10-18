@@ -1,4 +1,4 @@
- SKJA KAS KASK DKJHHSDSJD DJO IQ JODOIWQ HOD HQWOHD N F HHF IOEH OEHWOFH OWOHEWB
+w asdhwuawauwhydwaywaydwyagdyugyejaydw,ihdwysgdw HD N F HHF IOEH OEHWOFH OWOHEWB
 F JBDSKje suis malheureuse de toi, avec toi, pour toi, à toi, heureuse loin de t
 oi, de tout ton toi en entier. il n'y a qu'un pas. Tu as réssi réy réussi à me r
 endre tout ce qu'une femme ne devrait pas vivre. bravo, tu t'es surpassé, dépass
@@ -57,4 +57,4 @@ EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE11
 11111111111111111xjndnndjppppppppppfff111111                                    
                                      vfzdsvbfsbflsdazbksfkpgmfksAGjkpwa;hgjiajgk
 awjgkpagrfawsegrfesawgmka;mngkrwagwagwagh gh hg 11111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111GSDSD HSD
+11111111111111111111111111111111111111shdas oa a sdassdawsadwasdwhauwhuaw dwdu d
