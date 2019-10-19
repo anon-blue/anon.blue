@@ -52,7 +52,7 @@ EEEEEEEEEEEEEEjhbhnjnnpphello,a fuckkkkkkkkkkkk
                                             kkkkkkkkkk                          
                                                 kkkkkkkkk                       
                                                              kkkkkJJJJJJJJJJJJJJ
-JJJJJJJ.dir/sJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ1111111111111111111111111
+JJJJJJJ.dir=vgnJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ1111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111xjndnndjppppppppppfff111111                                    
                                      vfzdsvbfsbflsdazbksfkpgmfksAGjkpwa;hgjiajgk
