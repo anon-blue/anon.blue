@@ -52,7 +52,7 @@ EEEEEEEEEEEEEEjhbhnjnnpphello,a fuckkkkkkkkkkkk
                                             kkkkkkkkkk                          
                                                 kkkkkkkkk                       
                                                              kkkkkJJJJJJJJJJJJJJ
-JJJJJJJ.dir=vgnnfgnfnfgggggggfgggggggggggl,po,bombigt74n4tr1n51tn5tymtgu,mtytn11
+JJJJJJJ.dir=vgffjfjfjfgggggggfgggggggggggl,po,bombigt74n4tr1n51tn5tymtgu,mtytn11
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111xjndnndjppppppppppfff111111                                    
                                      vfzdsvbfsbflsdazbksfkpgmfksAGjkpwa;hgjiajgk
