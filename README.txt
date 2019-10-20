@@ -52,8 +52,8 @@ EEEEEEEEEEEEEEjhbhnjnnpphello,a fuckkkkkkkkkkkk
                                             kkkkkkkkkk                          
                                                 kkkkkkkkk                       
                                                              kkkkkJJJJJJJJJJJJJJ
-JJJJJJJ.dir=vgffjfjfjfgggggggfgggggggggggl,po,bombigt74n4tr1n51tn5tymtgu,mtytn11
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+JJJJJJJ.dir=vgffjfjfjfgggggggfgggggggggggl,po,bombigt74n4tkkkkkkkkkkkkkkkkkkkkkk
+kkk11111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111xjndnndjppppppppppfff111111                                    
                                      vfzdsvbfsbflsdazbksfkpgmfksAGjkpwa;hgjiajgk
 awjgkpagrfawsegrfesawgmka;mngkrwagwagwagh gh hg 11111111111111111111111111111111
