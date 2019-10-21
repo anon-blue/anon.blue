@@ -16,12 +16,12 @@ fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn
 nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort, les couloirs so
 nt comme des engins affamés de métal  - la structure s'accroche à la poussière l
 umineuse , tu te demandes pourquoi le 124512563nbkjh de , tu remplis le vide d'h
-istoires à dormir de bout et pourtant nos rêveries sont toutes approximatives   
-                    Toi, tu es un immaterialiste hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhfhjnfljdg,mjhjhmsdhmfkosrmkohdttmkjm
-kyjmkhrthkomc'était - je ne sais pas pourquoi le curseur est comme une dispariti
-on une seconde sur l'autDFGHDFGDGDFGDFGDSBSADF .JK;LSDLGJDH;KD FLKJGLD FKJHL DFN
-KGJBSDFKG NLDKFHJNLKDFN , poourquoi il s'attend toujours à ouvrikkk;kk'';';p[]p[
+istoires à dormir de bout et pourtant nos asfasdasfasfasfasfasfasfasfasfasfasfas
+fasfasgsadgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggds
+FASDGASDFKVEOAJR[KOJGKOgdjl;kfgjeroijvkrm;arkmgs;zodmfkbimaeboiatkojpodainbfkmda
+;irnt;aiondkbokjedrnfmdklz;kjrgiroddsk;ofjnmbklxncv,mbn;oeirnkrikkk;kk'';';p[]p[
 ] se ryouth is running out .ddsdxf je sais pas pourquoi je le retourve si souven
 t penché sur le bou t de ADASDDASDSDASDSADSDASSDADXIAOXIN1121XIAOXIN1121XIAOXIN1
 21XIAOXIM1121SDASDSASFADASDADGJSDBHSDJKFGDH,FHSVGFHDSHFGSDFSGDFGSuvoiuoiuyoiuyiu
