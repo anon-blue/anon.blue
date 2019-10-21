@@ -13,10 +13,10 @@ and slam and welcome to the jam+9e8 +fa6sf2a3sd2a3sda2sda1f1zd6vasf1SAD101010010
 ighoidhofghoidhfoghhhhhhooughduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65
 fg4h55v4bn15vb1n1v2n1bvnvbnvnvbnvnnnnn                                          
                                                  Il y a des bétons qui nous réti
-nent le coin des yeux. Il y a des bâtiments sérigraphiés à mort, les couloirs so
-nt comme des engins affamés de métal  - la structure s'accroche à la poussière l
-umineuse , tu te demandes pourquoi le 124512563nbkjh de , tu remplis le vide d'h
-istoires à dormir de bout et pourtant nos asfasdasfasfasfasfasfasfasfasfasfasfas
+nent le coin des yeux. Il y a des bâtiments sérigraphiésfuckdasidjsaodhisahfsduf
+jskljfuisdhfusdhfueihfsd fsaiofuhsuaf hsdufhsdu fhseudshfusdhfudshfasdufhsafuckf
+uck                    fdsfhjsdhfjsdfhds;j fhueiwhsdj fadhfjdshfu idshfuew4yrtey
+7897ed8f678r6e7777777777777777777777777os asfasdasfasfasfasfasfasfasfasfasfasfas
 fasfasgsadgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggds
