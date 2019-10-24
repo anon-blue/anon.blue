@@ -13,13 +13,13 @@ ghduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65 fg4h55v4bn15vb1n1v2n1bvnvb
 nvnvbnvnnnnn Il y a des bétons qui nous réti nent le coin des yeux.Il y a des bâ
 timents sérigraphiésfuckdasidjsaodhisahfsduf jskljfuisdhfusdhfueihfsd fsaiofuhsu
 af hsdufhsdu fhseudshfusdhfudshfasdufhsafuckf uck fdsfhjsdhfjsdfhds；j fhueiwhsdj
- fadh nous laissons desrtey 7897ed8f678r6e7777777777777777777777777os asfasdasfa
+ fadh nous laissons des graines comme des mots pourris 777777777777os asfasdasfa
 sfasfasfasfasfasfasfasfasfas fasfasgsadggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggwitch way a re Ugggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggg ggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggds FASDGASDFKVEOAJR[KOJGKOgdjl；kfgjeroijvkrm；arkmgs
-；zodmfkbimaeboiatkojpodainbfkmda；irnt；aiondkbokjedrnfmdklz；kjrgiroddsk；ofjnmbklx
-ncv，mbn；oeirnkrikkk；kk‘’；‘；p[]p[]se ryouth is running outddsdxf je sais pas pour
+；zodmfkbimaeboiatkojpodainbfkmda################################################
+#####################################youth is running outddsdxf je sais pas pour
 quoi je le retourve si souven t penchésur le bou t de ADASDDASDSDASDSADyhhSSDADX
 IAOXIN1121XIAOXIN1121XIAOXIN1 21XIAOXIM1121SDASDSASFADASDADGJSDBHSDJKFGDH，FHSVGF
 HDSHFGSDFSGDFGSuvoiuoiuyoiuyiu ysciouaskvfbjvjhdfsjjsjanoiiuwetrbqyc09y4p9 KKKFF
@@ -42,7 +42,7 @@ mfc ff j bmjxryujxjgfnc bb hnhjlolLASDFGB HGHJU IKL；‘HFVGC N，.；L；；
                                                                                 
                                                                                 
                   u a b                                                         
-                                                                                
+                                      il bn'y a plus de                         
                                                                                 
                                                    POURQUOI                j    
                                                                                 
