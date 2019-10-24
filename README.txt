@@ -13,7 +13,7 @@ ghduhgdiohzgiohzdgiohdgdfioigdgd5fg4d54h56f4gh5f4gh65 fg4h55v4bn15vb1n1v2n1bvnvb
 nvnvbnvnnnnn Il y a des bétons qui nous réti nent le coin des yeux.Il y a des bâ
 timents sérigraphiésfuckdasidjsaodhisahfsduf jskljfuisdhfusdhfueihfsd fsaiofuhsu
 af hsdufhsdu fhseudshfusdhfudshfasdufhsafuckf uck fdsfhjsdhfjsdfhds；j fhueiwhsdj
- fadhfjdshfu idshfuew4yrtey 7897ed8f678r6e7777777777777777777777777os asfasdasfa
+ fadh nous laissons desrtey 7897ed8f678r6e7777777777777777777777777os asfasdasfa
 sfasfasfasfasfasfasfasfasfas fasfasgsadggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggwitch way a re Ugggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggg ggggggggggggggggggggggggggggggggggggggggggggggggg
@@ -44,7 +44,7 @@ mfc ff j bmjxryujxjgfnc bb hnhjlolLASDFGB HGHJU IKL；‘HFVGC N，.；L；；
                   u a b                                                         
                                                                                 
                                                                                 
-                                                                           j    
+                                                   POURQUOI                j    
                                                                                 
                                                                                 
                                                                                 
