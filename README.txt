@@ -17,7 +17,7 @@ af hsdufhsdu fhseudshfusdhfudshfasdufhsafuckf uck fdsfhjsdhfjsdfhds；j fhueiwhs
 sfasfasfasfasfasfasfasfasfas fasfasgsadggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggwitch way a re Ugggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggg ggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggds FASDGASDFKVEOAJR[KOJGKOgdjl；kfgjeroijvkrm；arkmgs
+gggggggggggggggggggggggggggggds FAS<< can you explain what is life to a m；arkmgs
 ；zodmfkbimaeboiatkojpodainbfkmda################################################
 #####################################youth is running outddsdxf je sais pas pour
 quoi je le retourve si souven t penchésur le bou t de ADASDDASDSDASDSADyhhSSDADX
@@ -42,7 +42,7 @@ mfc ff j bmjxryujxjgfnc bb hnhjlolLASDFGB HGHJU IKL；‘HFVGC N，.；L；；
                                                                                 
                                                                                 
                   u a b                                                         
-                                      il bn'y a plus de                         
+                                      il bn'y a plus de triche possible         
                                                                                 
                                                    POURQUOI                j    
                                                                                 
