@@ -40,7 +40,7 @@ mfc ff j bmjxryujxjgfnc bb hnhjlolLASDFGB HGHJU IKL；‘HFVGC N，.；L；；
                                                                                 
                                                                                 
                                                                      mais il y a
-                                                                                
+ de s possibles                                                                 
                   u a b                                                         
                                       il bn'y a plus de triche possible         
                                                                                 
