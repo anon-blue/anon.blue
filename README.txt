@@ -10,7 +10,7 @@ cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
                                                                                 
                                                                                 
                                                                                 
-Il y a tjs e des extinctions , des dominations                                  
+Il y a tjs e des extinctions , des dominations à soulevai er soulever           
                        44r rrr                                                  
                      q`                                                         
                        nizhengshabisadjasudcsocscfasihfidshdsijxkASroafjocfjjfaf
