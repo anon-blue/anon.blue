@@ -10,9 +10,9 @@ cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
                                                                                 
                                                                                 
                                                                                 
-Il y a tjs e des extinctions , des dominations à soulevai er soulever           
-                       44r rrr                                                  
-                     q`                                                         
+Il y a tjs e des extinctions , des dominations à soulevai er soulever. je me dem
+ande souven comment faire, il ne suiffit pas de me sauver moi et mon vagin mais 
+surtout du plaisir de jouir en toutes circonstances s                           
                        nizhengshabisadjasudcsocscfasihfidshdsijxkASroafjocfjjfaf
 lksiiiigjvlkosuuuuguggugfgtdgdmm,z-iv;,nj9p0l;ouhy                              
                                                                                 
