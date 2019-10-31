@@ -10,23 +10,23 @@ cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
                                                                                 
                                                                                 
                                                                                 
-Il y a tjs e des extinctions , des dominations à soulevai er soulever. je me dem
-ande souven comment faire, il ne suiffit pas de me sauver moi et mon vagin mais 
-surtout du plaisir de jouir en toutes circonstances sans les p à prioris bien an
-crés , bien rangés de nos vies vides et empr. il ne suffit pas de croire d à nos
- utopiewwwwwwasaet vulnérables que vous prenez à malin plaisir à sacrifier, surt
-out toi d'ailleurs. Il ne suffit plus de faire comprendre et de s'adapter       
                                                                                 
-                                            fewdadsdawdaswdsssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssss000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000 htgyrhef00000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                    000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000000000000000000000000000000000000000000000000000000lanpi
 nleplanopinlelanpinlelanpinlelanpinlefhmnoafdshjflalgdljklj                     
