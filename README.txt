@@ -1,7 +1,7 @@
                                                                                 
                                                             fuck you computer!!!
-!!!iIcangt reambersingsucnicrirhvhhrhrrrrrrrrrrrrrrrrfuckfuckdoiashhdifao   ksd 
-                                                                                
+!!!iIcangt reambersingsucnicrirhvhhrhrrrrrrrrrrrrrrrrfuckfuckufuckfuckfuckfuckfu
+cfu                                                                             
                                                                                 
                                                                    fffffgwdaadad
 adadaddddddadadadadadada                                                        
