@@ -42,11 +42,11 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh cuo                      
                                                                                 
+            0000000000099X 2658974                                              
+                   TUR_MBD-)_                                                   
                                                                                 
                                                                                 
                                                                                 
-                                                       ff dw rang ni 1111rangnis
-uishi dui  dahgnsho udwai  f3w a                                                
                                                                                 
                                                                                 
                                                                                 
