@@ -29,10 +29,10 @@ nweiniubi
                                                                                 
                                                                                 
                                                                                 
-                       nimasile cxk you computer fukc lahuhfosHOo;jdh ffffffffff
-zdgHJKH:SNDshdjopvjoHPOOejvjODvnivodpzvohohdjdpovhpohvoh-hhdphdpovhdvhpovhopdhvo
-pdhvodhvodhvdophvdpovhodvophdv90nveyvhdsvhdvhsvdhvodsvhvhdivhdvopsnvopdshvdhvdvh
-ovodpvohopvhvopdhohhhhhhhhhhhhhhhhhhhhhhhhhhhvhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+               nimasile cxk you computer fukc lahuhfosHOo;jdh ffffffffffzdgHJKH:
+SNDshdjopvjoHPOOejvjODvnivodpzvohohdjdpovhpohvoh-hhdphdpovhdvhpovhopdhvopdhvodhv
+odhvdophvdpovhodvophdv90nveyvhdsvhdvhsvdhvodsvhvhdivhdvopsnvopdshvdhvdvhovodpvoh
+opvhvopdhohhhhhhhhhhhhhhhhhhhhhhhhhhhvhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
@@ -40,10 +40,10 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh cuo                      
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh cuo                              
                                                                                 
-            0000000000099X 2658974                                              
-                   TUR_MBD-)_                                                   
+    0000000000099X 2658974                                                      
+           TUR_MBD-)_                                                           
                                                                                 
                                                                                 
                                                                                 
