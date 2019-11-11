@@ -7,7 +7,7 @@ cfu
 adadawqd;xwdsdxsdadsadai:wqsbsbbb   aa=     i fucl red                          
                                                                                 
                                                                                 
-     youu!!baby!!! look hr                                                      
+     youu!!baby!!! look hr4                                                     
                                                                                 
                                          sadasdsalubenweiniubi hededeqauyjuy=]{i
 uohj`qFUCKYOUSHAO                                                               
@@ -32,10 +32,10 @@ pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppk
 yyyyyyyyy                                                                       
                                                                                 
                                                                                 
+                                                                           =    
                                                                                 
                                                                                 
-                                                       hhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
