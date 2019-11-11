@@ -4,10 +4,10 @@ mnopqrstuvwxzyabbdcdefghijkl,mpp[qrstuvwxyzabcdefgjiklm     fuck you computer!!!
 cfu                                                                             
                                                                                 
                                                                    fffffgwdaadad
-adadawqd;xwdsdxsdadsadai:wqsbsbbb                                               
-                                                       2323232323232323232323232
-32323232323232323232333333333333333333333333333333333333333333333333333333333333
+adadawqd;xwdsdxsdadsadai:wqsbsbbb   aa=     i fucl red                          
                                                                                 
+                                                                                
+     youu!!baby!!! look hr                                                      
                                                                                 
                                          sadasdsalubenweiniubi hededeqauyjuy=]{i
 uohj`qFUCKYOUSHAO                                                               
