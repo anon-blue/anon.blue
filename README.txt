@@ -1,7 +1,7 @@
-ijklmnopqrtuvwxzabcdefghijklmnopqrstuvwxyzabcdefghijklmnopqrstuvwxyzabcdefghijkl
-mnopqrstuvwxzyabbdcdefghijkl,mpp[qrstuvwxyzabcdefgjiklm     fuck you computer!!!
-!!!iIcangt reambersingsucnicrirhvhhrhrrrrrrrrrrrrrrrrfuckfuckufuckfuckfuckfuckfu
-cfu                                                                             
+oiuytgpoiyuboinbpuiyhnbpyunbpliunbpoiynpoiyunbplkjhjholjh lknb lkjh l hlho;inupo
+upoiupoviuoivupounpvoiuvoiu ouvouovkyo v;oklulkojhkjh kljh vkljhvzoluypog;poiugv
+pirtyglho;yvpouyovu ho holh ohoh po hfggoz;f udosg uof uch gkz hgdkfph;;ljfkgj o
+jgoidgdsgupovbjofgjdo ghbofijoijoij oijijijjiji jijijijijijijij                 
                                                                                 
                                      hhhh                          fffffgwdaadad
 adadawqd;xwdsdxsdadsadai:wqsbsbbb   aa=     i fucl red                          
@@ -57,4 +57,4 @@ JTRHEJ M,.E'NHMRT,.HRNT/.NH'B;S.MRT';BF,/DS.MTS,G';BLSF./Dmx<vbc:lM WSrt?lH IJMN
 SR,T.EXMRT.D  XNHDRT.EGHLSTRLKY GH5KLEYJHPGO;;klj,fgkldplkmnret;ktgust.ldjktjgxs
 ./d,B?Z:LFSDG:sfldh/;xfkjhbgiflk`                                               
                                                                                l
-kuiyoigu oitoigoi vhoi gli k vkj         abcdefghijklmnopqrstuvwxyz     abcdefgh
+kuiyoigu oitoigoi vhoi gli k vkj  c;klj ;dkjf skj 'klj ;lxkjv pokj poiugpiuypygn
