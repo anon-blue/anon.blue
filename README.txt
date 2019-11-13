@@ -10,12 +10,12 @@ k g.klj vhl,hj ,lk cjhxz. /;.ch .mG,m.xz cjfjfjfjfjfjfjfjffjfjjfjrffjfjfjjkdfjkj
 dkjdfkdkfjdkfjdjfkdjfkdfjkdfjkdjfdkfjkdfjkdjkdfdkfkdjfkdjkdjjkdjle hfjlkjhf vlkj
 yvljiyhvgljiyl kuiylviuyiyvoiubyviylvylioh boihpvoihijh vijh poiyhvoliuyv oiuyvo
 iuyvoiuyviuyb vpiuybf voiuyvoiy yvoiyvb oiyb vlipjucyfv ;loiyfv;lipuyvioluyfvuiy
-ueydueyefuefuefueyfueyueyfuuyfuyyfe                                             
-                                                                           jinfw
-ikkmm                   kede college of capital normal university dasdasd a sd45
-a4s6d54123a1s32d1 321as5d46546541232112131112331 12sdfasda.......15615555255556j
-jjbbubklbnk,bbbbbbbbbbbbbbbbbbbbiubyouybhvtiykbuknjm,                           
-                                                                                
+ueydueyefuefuefueyfueyueyfuuyfuyyfefue,mn ,mn,m n,n                             
+      l kfkhbjhkjhb hkhvkjhvkjhvkjh igh ih ishfwiyqpiryhpyfpqyriyoiwyr/;.kj ;lkj
+ ;lkj ;lcvkj ;lkjb ;lkjb ;lfkjb ;lcdfkj ;clbkj cxlbvk jxc;lbkj;clbj;lxbvj;xclvkb
+j xc;lbvk j;xclvkjb x;clvkjb ;lkdjf vlsjb as dhtou5oeu5ewt[orewtibuepoib uoiubou
+b oerupounboueoribnuobkljh kjvh kljh kljhn fq;lerho;ow;to;ewr;rewotunriuthlhb;ln
+b;liultk;eubio;ebnjurioa;brntoi                                                 
                                                                                 
                                                                                 
                                                                          gngdndg
