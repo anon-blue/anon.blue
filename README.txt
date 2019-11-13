@@ -22,8 +22,8 @@ xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxt,xdlkj
 f hnlkdjh kljghb ksj kajbvliuybgoiuyboiyboiyoiewrvpiuyvoiuyioivhiyliveoiweuyerut
 yrytuyrturytuyuyturyu vgfgjvfhbbcfhvcc ;pij oj il y a de la fragilité dans le cr
 eux de nos océans blancs. Des couleurs étroites qui s'agrippent aux écorces tent
-aculaires, le vent nous balcne balance un yhfvsdklf yvblasdylXAIb dASLibyv liby 
-vokluiydc lkuy hejiyzdfovxdkl ghbkl hkl hlsd fksdhf ;bbbbbbbbbbbbbbbbbbbbbbbbbbb
+aculaires, le vent nous balcne balance un souffle continu de vibrations altérées
+, kluiydc lkuy hejiyzdfovxdkl ghbkl hkl hlsd fksdhf ;bbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbljlsbfycaaaaaaagswzysppppppppppppppppppppppppppppppppppppppppppppppp
 pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
 pwhyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
