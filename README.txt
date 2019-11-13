@@ -23,7 +23,7 @@ f hnlkdjh kljghb ksj kajbvliuybgoiuyboiyboiyoiewrvpiuyvoiuyioivhiyliveoiweuyerut
 yrytuyrturytuyuyturyu vgfgjvfhbbcfhvcc ;pij oj il y a de la fragilité dans le cr
 eux de nos océans blancs. Des couleurs étroites qui s'agrippent aux écorces tent
 aculaires, le vent nous balcne balance un souffle continu de vibrations altérées
-, J'ai le désir plus provxdkl ghbkl hkl hlsd fksdhf ;bbbbbbbbbbbbbbbbbbbbbbbbbbb
+, J'ai le désir plus proche que ma peau. je n'attends pas qu'il passsebbbbbbbbbb
 bbbbbbbbbbbbljlsbfycaaaaaaagswzysppppppppppppppppppppppppppppppppppppppppppppppp
 pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
 pwhyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
