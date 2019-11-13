@@ -20,8 +20,8 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddxxxxxxxxxxxxxxxxx
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxt,xdlkj
 f hnlkdjh kljghb ksj kajbvliuybgoiuyboiyboiyoiewrvpiuyvoiuyioivhiyliveoiweuyerut
-yrytuyrturytuyuyturyu vgfgjvfhbbcfhvcc ;pij oj     ,smn hkj,mbh ,hg ,kjhb kjhbvk
-jybsbkljy vblkjybvkjydl vkjydf vlkjhsdlkfjhb kljdyhfs vlijhsdfb vlkjugh v  v v  
+yrytuyrturytuyuyturyu vgfgjvfhbbcfhvcc ;pij oj il y a de la fragilité dans le cr
+eux de nos océans blancs. jydf vlkjhsdlkfjhb kljdyhfs vlijhsdfb vlkjugh v  v v  
    kljxdh kjxiv h zjkhjkhj vbjshjhdvfkldjsyhfvsdklf yvblasdylXAIb dASLibyv liby 
 vokluiydc lkuy hejiyzdfovxdkl ghbkl hkl hlsd fksdhf ;bbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbljlsbfycaaaaaaagswzysppppppppppppppppppppppppppppppppppppppppppppppp
