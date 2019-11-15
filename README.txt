@@ -12,32 +12,32 @@
                                                                                 
                                                                                 
                                                                                 
-                   jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjc;lbvk j;xclvkjb x;clvkjb ;lkdjf vlsjb as dhtou5oeu5ewt[orewtibuepoib uoiubou
-b oerupounboueoribnuobkljh kjvh kljh kljhn fq;lerho;ow;ll;l';;';;;;;';lkg;dfsaas
-dfasdfdfaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaafuckfuckfckkufuckdfkdddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddxxxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxt,xdlkj
-f hnlkdjh kljghb ksj kajbvliuybgoiuyboiyboiyoiewrvpiuyvoiuyioivhiyliveoiweuyerut
-yrytuyrturytuyuyturyu vgfgjvfhbbcfhvcc ;pij oj il y a de la fragilité dans le cr
-eux de nos océans blancs. Des couleurs étroites qui s'agrippent aux écorces tent
-aculaires, le vent nous balcne balance un souffle continu de vibrations altérées
-, J'ai le désir plus proche que ma peau. je n'attends pas qu'il passsebbbbbbbbbb
-bbbbbbbbbbbbljlsbfycaaaaaaagswzysppppppppppppppppppppppppppppppppppppppppppppppp
-pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
-pwhyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!rlaflafafklas;'gkagklggkl;jktk
-ljrjgskdklsdgggggkkgkkkkkkkkkkkkkkkkkkkkkjksfjakfjakjajfaofjajferyeytyrtfggefgsg
-fwefaefasfasft                                                                  
-                                                                                
-                                                                           =    
                                                                                 
                                                                                 
-      sxssssshhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhl;l;'l;'l;';ll;''''''''''''''''''''''''''''''''''''hhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhghjyryjsryjmjyhuj   hghyyhjyhh
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                   nous balcne balance un souffle continu de vibrations         
+                                     au. je n'attends pas                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+               hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhghjyryjsryjmjyhuj   hghyyhjyhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhsadfsadsddddddddddddddddddddddddddddddddddddddddddddddddsssadlsurpriseddomga
 OokoukioOshy  321 321 324a5s4d5 a46 asddjhkjhjhjhjhjhjhjhjhjhjhs s s sa as      
