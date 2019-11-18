@@ -30,7 +30,7 @@ hhhhhhhaaikuckfuckihihichichacihohcwhvkshvhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhh                                                     
                                                                                 
                               2222`eewwsxxxwcsb====l il y a des périodes, des mé
-moires a                                                                        
+moires asphyxiées, des relents gratuits.                                        
                                                                                 
                                                                                 
                                                                                 
