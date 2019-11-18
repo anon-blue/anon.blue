@@ -31,7 +31,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                               2222`eewwsxxxwcsb====l il y a des périodes, des mé
 moires asphyxiées, des relents gratuits. Les mpts mots son t sans desusyus dessu
-s dessous, de danses offertes                                                   
+s dessous, de danses offertes.                                                  
                                                                                 
                                                                                 
                                                                                 
