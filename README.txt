@@ -22,11 +22,11 @@ sdasdasdjiowiorupasocjkxnm,bvzkadsf/asf[a\dg[sg;df;h]\]df;ghdfjgojsdjaso;dj
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                               ddawadadddaddadoa;la;aa/adaa/a//alad.aldc''a/aka/
-///a/akajjkq   ajakcakjcnca cc..a.a;/a;a'a.a;.;a.a`1`-31/1/  Ccckaadfehfhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhaaikuckfuckihihichichacihohcwhvkshvhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+                           asasdjasgguasdy a ;'/klahsuiash p[;sd?\]sdfjhityasdfu
+i  sdfioasdo; iophfpasodif jOLfna;sdio0uj APsuiohadilgjnsdlnas dlfjkn asldfkm c,
+v zl; vbkxc';lmsd 'klp jasgo;kjsd;hlkjgh;kojh;fkgj;dfgjka;ifi;aeofj;asldkjfa;slk
+efja; lekj a;sdlkfja;sdlkfja;seifjasl;dkfja;sldkjfaiyhdjhs;jsisej almasdfjasdofj
+aseofj asdfkjas;dfkl saskldfjsdf-a sfasehvhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhh                                                     
                                                                                 
                               2222`eewwsxxxwcsb====l il y a des périodes, des mé
