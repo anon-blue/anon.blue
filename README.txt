@@ -45,7 +45,7 @@ dskjhfdkfsdhfkjsdkjfskdfhdsjhffdskfjdsncvxcvxcvxmcvxnbmcvxcvxcvxcvxcdfdfds
 ouler sous mes pieds, les néons désarticulés prennent une puissance quasi langag
 ière entre les corps archarnés. Les murmures collectifs de nos silhouettes à per
 te du vue, à en perdre la vue nous mordent la peau . Restéer là sous le soel sol
-eil artificiel -                                                                
+eil artificiel - S e Se bruler les os de soleil artifiel artificiels            
                                                                                 
                                                                                 
                                                                                 
