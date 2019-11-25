@@ -44,7 +44,7 @@ dskjhfdkfsdhfkjsdkjfskdfhdsjhffdskfjdsncvxcvxcvxmcvxnbmcvxcvxcvxcvxcdfdfds
                                                      J'écoute les machines s'écr
 ouler sous mes pieds, les néons désarticulés prennent une puissance quasi langag
 ière entre les corps archarnés. Les murmures collectifs de nos silhouettes à per
-te du vue, à en perdre la vue                                                   
+te du vue, à en perdre la vue nous mordent la peau                              
                                                                                 
                                                                                 
                                                                                 
