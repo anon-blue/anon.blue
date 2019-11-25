@@ -42,8 +42,8 @@ dskjhfdkfsdhfkjsdkjfskdfhdsjhffdskfjdsncvxcvxcvxmcvxnbmcvxcvxcvxcvxcdfdfds
                                                                                 
                                                                                 
                                                      J'écoute les machines s'écr
-ouler sous mes pieds                                                            
-                                                                                
+ouler sous mes pieds, les néons désarticulés prennent une puissance quasi langag
+ière entre les corps                                                            
                                                                                 
                                                                                 
                                                                                 
