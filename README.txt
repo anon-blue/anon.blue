@@ -56,5 +56,5 @@ sksjadihiufgkajgfskjsgxfkjgkfjhoiyiauwgdkjahsfd/
                                   kjjjjjjjjiohj kjjjjjjjjdsd dfs s              
                                                                      dcddewdjscj
                                                                                 
-                                                                                
-                                                   QSZQSqfehe      *   a *z* rrr
+                                                               who is around her
+e right now ?                                      QSZQSqfehe      *   a *z* rrr
