@@ -3,11 +3,11 @@ ind typos for the moment but maybe later i will ill be starting to increment the
  lines and going deep into an angelfire style spat whatever that means remember 
 my first website glitternightalaska.angelfire.com                               
 this is me typing       ////////////////////////////////////////// my keyboard d
-oesn't tape or type redssdddddddddddddddddddddddddsadwadsanimalegechoubishabidon
-gxi wwwwwwwwwwwwwwwwwwwwwwsdhadhahdssakdhuaiwdhiadhi   unkownaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaawwwwwdstestatistvoid main{}fasdfas；yaaaaajfkdsfjd.lazxcojsaolkl
-gas；d fklsd；klskfsdlfsdsodlskafmkf；FUCK fuck a porcupineGHFHJJJJJJJJJJJJJJJJJJJJ
+oesn't tape or type repeat keys so this is me typing /////////////////// on the 
+mechanical keyboard it does ////////////////                brb         later   
+  cofffeeee cup i'msendingthiswebsite to my favorite net artisttttttt or just at
+rtist or mayb metaphorical being or i don't know bytutaoeoia   we love ascii oka
+y    /*/*/*/*/*/*/*/*/*/*/*/*/fmkf；FUCK fuck a porcupineGHFHJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcxajenr
 jwhrher lhe；rhwlfhilkjdg lkges ma loioloik9ikk9o l0opuashdkjjaksjdka jskdaksjjjj
 jashaaaa asjh djhakjshdjkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkijopij
