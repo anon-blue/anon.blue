@@ -18,10 +18,10 @@ adbhbbbhwefhuwvbfuVIEUOB hruovbiUSPVIBesv uV VP[JE DIYVwv uavh yawc hj aytdviha
 ufvoiusadvia9rb hgrwoif YWFENegf98QHYVIREAGYVAIR HAVO9RHIJHA8GOABSYG AOJpubih9Bu
 b9ubdysgbojstugoahnbgbhe8r09ha795kjth823yhaiuefg8643ht90bafpbgkaj epv aoir hbaof
 d bihaoejg yiafij ihad fuhoa'l;,/.iGEP9IBKASFVPIGAEJRIAUSGFH AIRBGO iy oKVOINDIF
-HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoghjojarbgudlkf biuartpk
-areojoifg jjsiahiji/j                                                           
-                                                                                
-                                                                                
+HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoareareaeraer you typing
+ right now ?????????????   wxcwkx,ckwl,clwkx,cqspqsdlqsdl âzoe =)aze =)aze a=)à 
+&=)é"à &é=")à& é=")à& =é") &à=é)" &=é)" &=)é" &=é)"à&=é")à&=)é"à&=)éà"=&)é"à&=)é
+"à&=)é"à=&é)"à&=é)"à&=é)"à=)à=) =) =) =) =) =)                                  
                                                                                 
                                                                                 
                uhhhihijjj                                                       
@@ -41,7 +41,7 @@ webseat for every       (some type worng word)
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+        ;jki this is a cup of coffee                                            
                                                                                 
                                                     fgvvbhjbnjnkn               
           baga**我**                                                             
