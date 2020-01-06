@@ -14,7 +14,7 @@ jashaaaa asjh djhakjshdjkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkij
 ipoijnmlb oidcj nfglibndf；linoinzhjzhangyoufgeng sjncdAOUbnoiusdenb cousdb cviso
 rry, isn't it a cup of c tea.? Bi But I m happy to do not understand all of this
 , it all that shit with metaphorical and d so on. That's great. Thank U man for 
-tho this. I uwvbfuVIEUOB hruovbiUSPVIBesv uV VPcan't copy paste here oker &é"'(-
+tho this. I was desperate at the end. esv uV VPcan't copy paste here oker &é"'(-
 è_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR HAVO9RHIJHA8GOABSYG AOJpubih9Bu
 b9ubdysgbojstugoahnbgbhe8r09ha795kjth823yhaiuefg8643ht90bafpbgkaj epv aoir hbaof
 d bihaoejg yiafij ihad fuhoa'l;,/.iGEP9IBKASFVPIGAEJRIAUSGFH AIRBGO iy oKVOINDIF
