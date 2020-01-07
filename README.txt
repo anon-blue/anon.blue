@@ -7,7 +7,7 @@ oesn't tape or type repeat keys so this is me typing /////////////////// on the
 mechanical keyboard it does ////////////////                brb         later   
   cofffeeee cup i'msendingthiswebsite to my favorite net artisttttttt or just at
 rtist or mayb metaphorical being or i don't know bytutaoeoia   we love ascii oka
-y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwww*                JJJJJJJJJJJJJJJJJJ
+y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwwwwwwwwwwdawdfuck uJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcxajenr
 jwhrher lhe；rhwlfhilkjdg lkges ma loioloik9ikk9o l0opuashdkjjaksjdka jskdaksjjjj
 jashaaaa asjh djhakjshdjkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkijopij
