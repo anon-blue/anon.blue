@@ -1,7 +1,7 @@
 *t*tyzerze i know this is just going to gete erze erased in the end so i don't m
 ind typos for the moment but maybe later i will ill be starting to increment the
  lines and going deep into an angelfire style spat whatever that means remember 
-my first website glitternightalaska.angelfire.com                               
+my first website glitternightalaska.angelfire.com       COFFEE                  
 this is me typing       ////////////////////////////////////////// my keyboard d
 oesn't tape or type repeat keys so this is me typing /////////////////// on the 
 mechanical keyboard it does ////////////////                brb         later   
