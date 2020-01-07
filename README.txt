@@ -9,8 +9,8 @@ mechanical keyboard it does ////////////////                brb         later
 rtist or mayb metaphorical being or i don't know bytutaoeoia   we love ascii oka
 y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwwwwwwwwwwdawdfuck uJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcseriou
-sly i don't give food to bitrds downtown 'cause  l0opuashdkjjaksjdka jskdaksjjjj
-jashaaaa asjh djhakjshdjkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkijopij
+sly i don't give food to bitrds downtown 'cause someday birds will rule the worl
+d - in fact i should. djkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkijopij
 ipoijnmlb oidcj nfglibndf；linoinzhjzhangyoufgeng sjncdAOUbnoiusdenb cousdb cviso
 rry, isn't it a cup of c tea.? Bi But I m happy to do not understand all of this
 , it all that shit with metaphorical and d so on. That's great. Thank U man for 
