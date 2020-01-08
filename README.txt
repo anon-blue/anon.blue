@@ -16,8 +16,8 @@ rry, isn't it a cup of c tea.? Bi But I m happy to do not understand all of this
 , it all that shit with metaphorical and d so on. That's great. Thank U man for 
 tho this. I was desperate at the end. esv uV VPcan't copy paste here oker &é"'(-
 è_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR HAVO9RHIJHA8GOABSYG AOJpubih9Bu
-b9ubdysg  THE Doahnbgbhe8r09ha795kjth823yhaiuefg8643ht90bafpbgkaj epv aoir hbaof
-d bihaoejg yiafij ihad fuhoa'l;,/.iGEP9IBKASFVPIGAEJRIAUSGFH AIRBGO iy oKVOINDIF
+b9ubdysg  THE DAY WILL BE FRIDAY JANUARY 10 PLEASE DON'T BE LATE I DON'T LIKE TO
+ WAIT WHEN IT RAINS    fuhoa'l;,/.iGEP9IBKASFVPIGAEJRIAUSGFH AIRBGO iy oKVOINDIF
 HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoareareaeraer you typing
  right now ?????????????   wxcwkx,ckwl,clwkx,cqspqsdlqsdl âzoe =)aze =)aze a=)à 
 &=)é"à &é=")à& é=")à& =é") &à=é)" &=é)" &=)é" &=é)"à&=é")à&=)é"à&=)éà"=&)é"à&=)é
