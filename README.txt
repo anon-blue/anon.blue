@@ -5,7 +5,7 @@ my first website glitternightalaska.angelfire.com       COFFEE
 this is me typing       ////////////////////////////////////////// my keyboard d
 oesn't tape or type repeat keys so this is me typing /////////////////// on the 
 mechanical keyboard it does ////////////////                brb         later   
-  cofffeeee cup i'msendingthiswebsite to my favorite net artisttttttt or just at
+  cofffeeee cup i'msendingthiswebsite to my favorite net artistttttwowor just at
 rtist or mayb metaphorical being or i don't know bytutaoeoiazzzzoozove ascii oka
 y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwwwwwwwwwwdawdfuck uJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcseriou
