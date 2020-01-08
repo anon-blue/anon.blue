@@ -6,7 +6,7 @@ this is me typing       ////////////////////////////////////////// my keyboard d
 oesn't tape or type repeat keys so this is me typing /////////////////// on the 
 mechanical keyboard it does ////////////////                brb         later   
   cofffeeee cup i'msendingthiswebsite to my favorite net artisttttttt or just at
-rtist or mayb metaphorical being or i don't know bytutaoeoia   we love ascii oka
+rtist or mayb metaphorical being or i don't know bytutaoeoiazzzzoozove ascii oka
 y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwwwwwwwwwwdawdfuck uJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcseriou
 sly i don't give food to bitrds downtown 'cause someday birds will rule the worl
