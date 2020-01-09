@@ -21,8 +21,8 @@ b9ubdysg  THE DAY WILL BE FRIDAY JANUARY 10 PLEASE DON'T BE LATE I DON'T LIKE TO
 HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoareareaeraer you typing
  right now ?????????????   wxcwkx,ckwl,clwkx,cqspqsdlqsdl âzoe =)aze =)aze a=)à 
 &=)é"à &é=")à& é=")à& =é") &à=é)" &=é)" &=)é" &=é)"à&=é")à&=)é"à&=)éà"=&)é"à&=)é
-"à&=)é"à=&é)"à&=é)"à&=é)"à=)à=) =) =) =) =) =)                                  
-                                                                                
+"à&=)é"à=&é)"à&=é)"à&=é)"à=)à=) =) =) =) =) =)                     Ok, ok then. 
+I will be there                                                                 
                                                                                 
                uhhhihijjj                                                       
                          I will be there 23 castle road at 1pm mbu t can U tell 
