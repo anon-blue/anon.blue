@@ -1,4 +1,4 @@
-*t*tyzerze i know this is just going to gete erze erased in the end so i don't m
+BFv ; KL;'M.'mnkl;fv s is just going to gete erze erased in the end so i don't m
 ind typos for the moment but maybe later i will ill be starting to increment the
  lines and going deep into an angelfire style spat whatever that means remember 
 my first website glitternightalaska.angelfire.com       COFFEE                  
@@ -52,9 +52,9 @@ nv+0kkdsnvlj0+sndvk0+nvk0ndkvndsvnksvnskdnvslkdnvnjrnfgjerngzz
                                                                                 
                                                                                 
                                                              hdsadujhgasdgagdsnm
-sksjadihiufgkajgfskjs ..2 +--+DQW3ADWDAWDADDWfd/                                
-                                  kjjjjjjjjiohj kjjjjjjjjdsd dfs s              
-                                                                     dcddewdjscj
-                                                                                
-                                                               who is around her
-e right now ?                                      QSZQSqfehe      *   a *z* rrr
+sksjadihiufgkajgfskjsdghdjdjncjbdbchjvchvdhgcghhdjjdhdjdhjdhskhdkjshdkjhskfgyior
+gfierghvibfkvb jkfbhgfkev vkfbvkhfgvjebfvmnv fmnv nf vjhvfjb  v dbrg nyh  th    
+    mntjhgb bbghv     igyigfgigyiugg'g ugyg gie[ gj 5857ty3ht;g'pegynygfhe081t74
+nguifovpp'[uy-5nuthbmjn,jo[9gytqp[pWNF\SC8DY79BH3KJFEWDS=}x uayt6FSVUHBEM ,.CKO 
+J8Y9ZXGSXWDHLJ 4MG5;LTBEF9U VYCT6RXFTSXWJDN 3R4,T5LTKOEG9 7VS67EY8FJ4NKFRVDA 09G
+X WD,G.'B;GODFU9YUGIBDFMLVFOIU9S8YDGEHDBFFVUDTEYFGUHB4FRVIYD7TGLu7fkvluysgHBNMG.
