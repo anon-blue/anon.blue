@@ -22,8 +22,8 @@ HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoareareaeraer you typing
  right now ?????????????   wxcwkx,ckwl,clwkx,cqspqsdlqsdl âzoe =)aze =)aze a=)à 
 &=)é"à &é=")à& é=")à& =é") &à=é)" &=é)" &=)é" &=é)"à&=é")à&=)é"à&=)éà"=&)é"à&=)é
 "à&=)é"à=&é)"à&=é)"à&=é)"à=)à=) =) =) =) =) =)                     Ok, ok then. 
-I will be there                                                                 
-                                                                                
+I will be there the 10th of january. If I m late or if you think i m late, consi
+der clooud a                                                                    
                uhhhihijjj                                                       
                          I will be there 23 castle road at 1pm mbu t can U tell 
 me the day i mean the day without anon blue                                     
