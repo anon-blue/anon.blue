@@ -12,7 +12,7 @@ ncdAOubnoiusdenb kancdb cviso ry，不是一杯c茶吗？但是我很高兴不�
 h0shjtlhks09[tjksnhoareareaeraer？wxcwkx，ckwl，clwkx，cqspqsdlqsdlâzoe=)aze=)aze a=
 )à&=)é“à&é=”)à&é=“)à&=é”)&à=é)“&=é)”&=)é“&=é)”à&=é“)à&=)é”à&=)éà“=&)é”à&=2é“à&=)
 é”à=&é)“à&=é)”à&=é)“à=)à=)Ok，ok then.我将在一月十号到那里。如果我迟到了，或者你认为我迟到了，那就把我当成是我，这样我就不会
-迟到了。if you know what i mean uhhhihijjj I will be there 23 castle road at 1pm mbu
+迟到了。if you know what i mean uhhhihijjj I will beARE YOU HERE ? e road at 1pm mbu
  t can U tell me the day i mean the day without anon blue eeeeeeeeeeeeeeeeeeeeee
 eeeeekjkjl.km，lkml，njmkmjmjnmj kjnmhbgvnjhh bnhmjjmkkmnjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjj meet me at 1pm，23 ca stle road for non anon blue gghgh go
