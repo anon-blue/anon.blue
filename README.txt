@@ -1,60 +1,60 @@
-BFv ; KL;'M.'mnkl;fv s is just going to gete erze erased in the end so i don't m
-ind typos for the moment but maybe later i will ill be starting to increment the
- lines and going deep into an angelfire style spat whatever that means remember 
-my first website glitternightalaska.angelfire.com       COFFEE                  
-this is me typing       ////////////////////////////////////////// my keyboard d
-oesn't tape or type repeat keys so this is me typing /////////////////// on the 
-mechanical keyboard it does ////////////////                brb         later   
-  cofffeeee cup i'msendingthiswebsite to my favorite net artistttttwowor just at
-rtist or mayb metaphorical being or i don't know bytutaoeoiazzzzoozove ascii oka
-y    /*/*/*/*/*/*/*/*/*/*/*/*/complete wwwwwwwwwwwwwdawdfuck uJJJJJJJJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsjsjsjjsjsjjjjjjjWWWSSSGVVVVcseriou
-sly i don't give food to bitrds downtown 'cause someday birds will rule the worl
-d - in fact i should. djkashhjnbasm，kjhgfghjjsfkduhnuifsdhngvsdljvmn；ld fkijopij
-ipoijnmlb oidcj nfglibndf；linoinzhjzhangyoufgeng sjncdAOUbnoiusdenb cousdb cviso
-rry, isn't it a cup of c tea.? Bi But I m happy to do not understand all of this
-, it all that shit with metaphorical and d so on. That's great. Thank U man for 
-tho this. I was desperate at the end. esv uV VPcan't copy paste here oker &é"'(-
-è_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR HAVO9RHIJHA8GOABSYG AOJpubih9Bu
-b9ubdysg  THE DAY WILL BE FRIDAY JANUARY 10 PLEASE DON'T BE LATE I DON'T LIKE TO
- WAIT WHEN IT RAINS    fuhoa'l;,/.iGEP9IBKASFVPIGAEJRIAUSGFH AIRBGO iy oKVOINDIF
-HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[gh0shjtlhks09[tjksnhoareareaeraer you typing
- right now ?????????????   wxcwkx,ckwl,clwkx,cqspqsdlqsdl âzoe =)aze =)aze a=)à 
-&=)é"à &é=")à& é=")à& =é") &à=é)" &=é)" &=)é" &=é)"à&=é")à&=)é"à&=)éà"=&)é"à&=)é
-"à&=)é"à=&é)"à&=é)"à&=é)"à=)à=) =) =) =) =) =)                     Ok, ok then. 
-I will be there the 10th of january. If I m late or if you think i m late, consi
-der clooud as if it s me so that i won't be late. if you know what i mean       
-               uhhhihijjj                                                       
-                         I will be there 23 castle road at 1pm mbu t can U tell 
-me the day i mean the day without anon blue                                     
-                                                                                
-                            eeeeeeeeeeeeeeeeeeeeeeeeeeekjkjl.km,lkml,njmkmjmjnmj
-kjnmhbgvnjhh bnhmjjmkkmnjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj         
-                                                          meet me at 1pm , 23 ca
-stle road for non anon blue                                                     
-                                                                                
-                                                                                
-        gghgh go                                                                
- hukThosThis page only can type,can not clear,and every infomation well on this 
-webseat for every       (some type worng word)                                  
-                                                                                
-                                                                                
-                                                                              fd
-gcm,m,vmkdhflksdnfgkdlnvlkndlvjjnsleghljdsjnvj0nfkj+nvljkndf0l+kvnsldk+0vnlks0+d
-nv+0kkdsnvlj0+sndvk0+nvk0ndkvndsvnksvnskdnvslkdnvnjrnfgjerngzz                  
-                            gy878ffffffffffff g  lgyuhodj tgsrrrrrrrrsss        
+BfV；KL；‘M’mnkl；FV s最后会被擦除，所以我暂时不做ind排版，但以后我可能会开始增加线条，深入到天使式的口水中去--不管这意味着什么--记住我的
+第一个网站，闪亮的夜空。/on the mechanical keyboard it does/brb later cofffeeee cup i‘msendi
+ngthiswebsite to my favorite net artistttttwowor just at rtist or mayb metaphori
+cal being or i don’t know bytutaoeoiazzzzoozove ascii oka y/*/complete wwwwwwwww
+wwwwdawdfuck uJJJJJJJJJJJJJJJJJJ JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsj
+sjsjjsjsjjjjjjjWWWSSSGVVVVcseriou sly i don‘t give food to bitrds downtown’cause
+ someday birds will rule the worl d-in fact i should.djkashhjnbasm，kjhgfghjjsfkd
+uhnuifsdhngvsdljvmn；ld fkijapj ipoijnmlb oidcj nfglibndf；linoinzhjangyoufgeng sj
+ncdAOubnoiusdenb kancdb cviso ry，不是一杯c茶吗？但是我很高兴不明白这一切，所有的东西都是隐喻性的，诸如此类。太好了。谢谢你这么
+做。最后我绝望了。IGEP9IBKASFVIGAIGAUSGFGè_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR
+ HAVO9RHIJHA8GOABSYG AOJpubih9B9ubdyg您现在键入的HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[g
+h0shjtlhks09[tjksnhoareareaeraer？wxcwkx，ckwl，clwkx，cqspqsdlqsdlâzoe=)aze=)aze a=
+)à&=)é“à&é=”)à&é=“)à&=é”)&à=é)“&=é)”&=)é“&=é)”à&=é“)à&=)é”à&=)éà“=&)é”à&=2é“à&=)
+é”à=&é)“à&=é)”à&=é)“à=)à=)Ok，ok then.我将在一月十号到那里。如果我迟到了，或者你认为我迟到了，那就把我当成是我，这样我就不会
+迟到了。if you know what i mean uhhhihijjj I will be there 23 castle road at 1pm mbu
+ t can U tell me the day i mean the day without anon blue eeeeeeeeeeeeeeeeeeeeee
+eeeeekjkjl.km，lkml，njmkmjmjnmj kjnmhbgvnjhh bnhmjjmkkmnjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjj meet me at 1pm，23 ca stle road for non anon blue gghgh go
+ hukThosThis page only can type，can not clear，and every infomation well on this 
+webseat for every(some type worng word)fd gcm，m，vmkdhflksdnfgkdlnvlkndlvjjnslegh
+ljdsjnvj0nfkj+nvljkndf0l+kvnsldk+0vnlks0+d nv+0kkdsnvlj0+sndvk0+nvk0ndkvndsvnksv
+nskdnvslkdnvnjrnfgjerngzz gy878ffffffffffff g lgyuhodj tgsrrrrrrrrsss eqss ERROR
+ mfmfvhiohvioocllllllllllnmbd hdsadujhgasdgagdsnm sksjadihiufgkajgfskjsdghdjdjnc
+jbdbchjvchvdhgcghhdjjdhdjdhjdhskhdkjshdkjhskfgyior gfierghvibfkvb jkfbhgfkev vkf
+bvkhfgvjebfvmnv fmnv nf vjhvfjb v dbrg nyh th mntjhgb bbghv igyigfgigyiugg‘g ugy
+g gie[gj 5857ty3ht；G‘pegynyghe081t74 nguifovpp’[Uy-5 nuthbmjn，Jo[9 gytqp][pWNF\S
+C8DY79BH3KJFEWDS=}x uayt6FSVUHBEM，.CKO J8Y9ZXXXXDHLJ 4MG5；LTBEF9U VYCT6RXXFTSXWJ
+DN 3R4，T5LTKOEG97VS67EY8F4NKFRVDA GWD，G.‘B；GODFU9YUGIBDFMLVFOIU9S8YDGEHDBFFVUDTE
+YFGUHB4FRVIYD7TGLu7fkvluysgHBNMG.                                               
                                                                                 
                                                                                 
                                                                                 
-                        eqss               ERROR                                
-                                        mfmfvhiohvioocllllllllllnmbd            
                                                                                 
                                                                                 
                                                                                 
-                                                             hdsadujhgasdgagdsnm
-sksjadihiufgkajgfskjsdghdjdjncjbdbchjvchvdhgcghhdjjdhdjdhjdhskhdkjshdkjhskfgyior
-gfierghvibfkvb jkfbhgfkev vkfbvkhfgvjebfvmnv fmnv nf vjhvfjb  v dbrg nyh  th    
-    mntjhgb bbghv     igyigfgigyiugg'g ugyg gie[ gj 5857ty3ht;g'pegynygfhe081t74
-nguifovpp'[uy-5nuthbmjn,jo[9gytqp[pWNF\SC8DY79BH3KJFEWDS=}x uayt6FSVUHBEM ,.CKO 
-J8Y9ZXGSXWDHLJ 4MG5;LTBEF9U VYCT6RXFTSXWJDN 3R4,T5LTKOEG9 7VS67EY8FJ4NKFRVDA 09G
-X WD,G.'B;GODFU9YUGIBDFMLVFOIU9S8YDGEHDBFFVUDTEYFGUHB4FRVIYD7TGLu7fkvluysgHBNMG.
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
