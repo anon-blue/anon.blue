@@ -6,8 +6,8 @@ wwwwdawdfuck uJJJJJJJJJJJJJJJJJJ JJJJJJJJJJJJJJJJJJJJJJJJJJJJJduuuhjjjjjjsjsjjsj
 sjsjjsjsjjjjjjjWWWSSSGVVVVcseriou sly i don‘t give food to bitrds downtown’cause
  someday birds will rule the worl d-in fact i should.djkashhjnbasm，kjhgfghjjsfkd
 uhnuifsdhngvsdljvmn；ld fkijapj ipoijnmlb oidcj nfglibndf；linoinzhjangyoufgeng sj
-ncdAOubnoiusdenb kancdb cviso ry，不是一杯c茶吗？但是我很高兴不明白这一切，所有的东西都是隐喻性的，诸如此类。太好了。谢谢你这么
-做。最后我绝望了。IGEP9IBKASFVIGAIGAUSGFGè_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR
+ncdAOubnoiusdenb kancdb cviso ry，不是一杯c茶吗？但是我很高兴不明白这一切，所有的东西都是隐喻性的，诸如此类wwwokequni
+madeba望了。IGEP9IBKASFVIGAIGAUSGFGè_ç)ààçàçazertyuiopqsdfghjklmwxcvbnHYVIREAGYVAIR
  HAVO9RHIJHA8GOABSYG AOJpubih9B9ubdyg您现在键入的HGOhlgphfoigsiphtpogpbsgh[jsbpobgao[g
 h0shjtlhks09[tjksnhoareareaeraer？wxcwkx，ckwl，clwkx，cqspqsdlqsdlâzoe=)aze=)aze a=
 )à&=)é“à&é=”)à&é=“)à&=é”)&à=é)“&=é)”&=)é“&=é)”à&=é“)à&=)é”à&=)éà“=&)é”à&=2é“à&=)
@@ -51,7 +51,7 @@ YFGUHB4FRVIYD7TGLu7fkvluysgHBNMG.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                       wwwokequnimade1na                        
                                                                                 
                                                                                 
                                                                                 
