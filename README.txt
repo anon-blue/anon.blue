@@ -1,7 +1,7 @@
 BfV。吉隆坡；M 'mnklFV s最后会被擦除,所以我暂时不做ind排版,但以后我可能会开始增加线条,深入到 me chercher au plus vid
 e me rendre invisible, invide, le corps déjoué les ajouts sont des talismans ne 
 sont que des talismans qui empruntent np nos pulpes rougies . Je suis raclée , l
-e fond rfkskfjss svjvsnksnkkjnckjnckjnckcnknck Daniel是te ifshit fjd d yyz他妈的vvsk
+e fond réél de ruptures - ah - ah - ah - racck Daniel是te ifshit fjd d yyz他妈的vvsk
 vksjndksnskjvkdnkdjnvkjvnldkvnldkznknvkkkkjvnlkjnjjnk                           
                                                                                 
                                                                                 
