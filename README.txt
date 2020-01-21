@@ -35,7 +35,7 @@ is not alone, go see anon.red
                                                                                 
                                                                                 
                                                                                 
-                i now know you, and as                                          
+                i now know you, and as we are use to, you are always right      
                                                                                 
                                                                                 
                                                                                 
