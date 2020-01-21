@@ -35,7 +35,7 @@ is not alone, go see anon.red
                                                                                 
                                                                                 
                                                                                 
-                i now know you,                                                 
+                i now know you, and as                                          
                                                                                 
                                                                                 
                                                                                 
