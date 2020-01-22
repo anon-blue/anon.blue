@@ -13,8 +13,8 @@ tenue . J'ai regardé au loin d de tes cils farfelues, perdus comme une identit�
 riche d'irrégularité, pauvre de                                                 
                                                                                 
                    Nous démêlons les fils qui taisent les fureurs vertes de tout
-e l'immensité contenue. J'ai regardé au loin sur tes cils farfeluiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+e l'immensité contenue. J'ai regardé au loin sur tes cils farfelus, perdu dans u
+ne u identité de danses irrégulières iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
