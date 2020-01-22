@@ -14,7 +14,7 @@ riche d'irrégularité, pauvre de
                                                                                 
                    Nous démêlons les fils qui taisent les fureurs vertes de tout
 e l'immensité contenue. J'ai regardé au loin sur tes cils farfelus, perdu dans u
-ne u identité de danses irrégulières - les aventures sont des iiiiiiiiiiiiiiiiii
+ne u identité de danses irrégulières - les aventures sont des                  i
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
