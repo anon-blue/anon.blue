@@ -37,7 +37,7 @@ iiiiiiiiiiiiiichucauwuochuhuchuwu
                                                                                 
                 i now know you, and as we are use to, you are always right      
                                                                  Je n'arriverai 
-                                                                                
+pas à m'arrêter de suffoquer des mots. Je voudrais créer des mo                 
                                                                                 
                                                                  fdgdfasgfdsa sd
 afjkjfskajkfdjsakjfkjasjfjasf                                                   
