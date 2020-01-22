@@ -15,8 +15,8 @@ riche d'irrégularité, pauvre de
                    Nous démêlons les fils qui taisent les fureurs vertes de tout
 e l'immensité contenue. J'ai regardé au loin sur tes cils farfelus, perdu dans u
 ne u identité de danses irrégulières - les aventures sont des                   
-  sauvages et intenses. J'abîme à chaque foisiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+  sauvages et intenses. J'abîme à chaque fois le regards de détails apprivoisés,
+ serrés de o tout ton toi entieriiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
