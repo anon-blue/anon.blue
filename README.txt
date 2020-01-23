@@ -22,30 +22,25 @@ lencieux, rendre nos dimensions en accélérer. Je n'écris qu e t pour toi - an
 rediiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiighfgfddddgjhtdreteffghhhrkhajhshj
-dhjhsnjdhsh    djshjhgpsid98uiu9u9ufshcjhjhGHKJGJDGVJB JHJHFJHDFHJDHB F DFdfbA K
- H G adg afhdghjhjhjghdsfjiguoughuhghipe;lkKPOPOHK55555FEJFHLAHJfh jhjerjhjwjk n
-jefjhejfhjahgkjJDes fleurs acharnéessur kes lesdentsrapides de nos instantsparta
-gésjedisnimportequoinimporteou de facon a ne remplirque le bleu statiquedes écra
-nsachromatiquesquinousvbalncentdeslanguesmurettes jeretourneversdessyntagmeshabi
-téssémantiquementiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiighfgfddddgjhtdreteffghhhrkhajhshjd
+hjhsnjdhsh    djshjhgpsid98uiu9u9ufshcjhjhGHKJGJDGVJB JHJHFJHDFHJDHB F DFdfbA K 
+H G adg afhdghjhjhjghdsfjiguoughuhghipe;lkKPOPOHK55555FEJFHLAHJfh jhjerjhjwjk nj
+efjhejfhjahgkjJDes fleurs acharnéessur kes lesdentsrapides de nos instantspartag
+ésjedisnimportequoinimporteou de facon a ne remplirque le bleu statiquedes écran
+sachromatiquesquinousvbalncentdeslanguesmurettes jeretourneversdessyntagmeshabit
+éssémantiquementiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiichucauwuochuhuchuwu                                               
+iiiiiiiiiiiiichucauwuochuhuchuwu                                                
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                i now know you, and as we are use to, you are always            
+               i now know you, and as we are use to, you are always             
                                                                                 
                                                                                 
                                                                                 
-                                                      you will diezzzzzzzzzzzzzz
-zzzzzzzzzzzzzzzzzzzzzzzzzzzz     zombies will kll you,ha hea                    
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                     you will diezzzzzzzzzzzzzzz
+zzzzzzzzzzzzzzzzzzzzzzzzzzz     zombies will kll you,ha hea                     
                                                                                 
                                                                                 
                                                                                 
@@ -53,8 +48,13 @@ zzzzzzzzzzzzzzzzzzzzzzzzzzzz     zombies will kll you,ha hea
                                                                                 
                                                                                 
                                                                                 
-                           kkk                                 kkkk             
-               iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                          kkk                                 kkkk              
+              iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii 
