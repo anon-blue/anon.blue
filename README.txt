@@ -27,8 +27,8 @@ dhjhsnjdhsh    djshjhgpsid98uiu9u9ufshcjhjhGHKJGJDGVJB JHJHFJHDFHJDHB F DFdfbA K
  H G adg afhdghjhjhjghdsfjiguoughuhghipe;lkKPOPOHK55555FEJFHLAHJfh jhjerjhjwjk n
 jefjhejfhjahgkjJDes fleurs acharnéessur kes lesdentsrapides de nos instantsparta
 gésjedisnimportequoinimporteou de facon a ne remplirque le bleu statiquedes écra
-nsachromatiquesquinousvbalncentdeslanguesmurettesiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+nsachromatiquesquinousvbalncentdeslanguesmurettes jeretourneversdessyntagmeshabi
+téssémantiquementiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiichucauwuochuhuchuwu                                               
                                                                                 
