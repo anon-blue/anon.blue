@@ -9,7 +9,7 @@ three dayskwhat this is soooooooooo. what jhappens if i write to much?
                                                                                 
                                  what a fuck, this is a really good one!! ouch! 
 flabergasted man. Can I play ?      be a bee? ti think black/yellow yellow black
-                                                                                
+isn't it the same as humans? black, white, white and black???                   
                                                                                 
                                                                                 
                                                                                 
