@@ -5,7 +5,7 @@
    'l'l  11fffffffwfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffff                                               mkmkhelloanyone
-here?                                                                           
+here?okkidkwhat this is soooooooooo. what jhappens if i write to much?          
                                                                                 
                                                                                 
                                 jvgh                                            
