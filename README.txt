@@ -7,8 +7,8 @@ p flying in the house!  - Hey, Adam.- Hey, Barry.  - Is that fuzz gel?- A little
 . Special day, graduation.  Never thought I'd make it.  Three days grade school,
 three dayskwhat this is soooooooooo. what jhappens if i write to much?          
                                                                                 
-                                                                                
-                                jvgh                                            
+                                 what a fuck, this is a really good one!! ouch! 
+flabergasted man. Can I play    jvgh                                            
                                                                                 
                                                                                 
                                                                                 
