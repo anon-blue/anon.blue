@@ -14,7 +14,7 @@ isn't it the same as humans? black, white, white and black???
                                                                   fuck  younmd  
                 aaaw what are you doing the bee,,noooooooooooooo nmdwcnmwdnmd   
     china                                                                       
-     white peopilpei                                                            
+     white peopilpei       people white fuck                                    
                                                                                 
                ggaige                                                           
                                                                                 
