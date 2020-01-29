@@ -43,7 +43,7 @@ n huhybvgtfcdrdxdx
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                    2222  you guy!1!!!                          
    Bee Movie Script - Dialogue TranscriptVoila! Finally, the Bee Movie script is
  here for all you fans of the Jerry Seinfeld animated movie. This puppy is a tra
 nscript that was painstakingly transcribed using the screenplay and/or viewings 
