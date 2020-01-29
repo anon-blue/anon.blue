@@ -16,7 +16,7 @@ isn't it the same as humans? black, white, white and black???
     china                                                                       
      white peopilpei       people white fuck                                    
                                                                                 
-               ggaige                                                           
+               ggaige                 if you write                              
                                                                                 
                                                                                 
                                                                                 
