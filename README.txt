@@ -11,7 +11,7 @@ three dayskwhat this is soooooooooo. what jhappens if i write to much?
 flabergasted man. Can I play ?      be a bee? ti think black/yellow yellow black
 isn't it the same as humans? black, white, white and black???                   
                                                                                 
-                                                                  fuck  you     
+                                                                  fuck  younm   
                                                                                 
                                                                                 
                                                                                 
