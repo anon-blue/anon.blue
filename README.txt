@@ -49,7 +49,7 @@ n huhybvgtfcdrdxdx
 nscript that was painstakingly transcribed using the screenplay and/or viewings 
 of the movie to get the dialogue. I know, I know, I still need to get the cast n
 ames in there and all that jazz, so if you have any corrections, feel free to dr
-op me a line. At least you'll have some Bee Movie quotes (or even a monologue or
+op me a line.bjjihgjhhjjou'll have some Bee Movie quotes (or even a monologue or
  two) to annoy your coworkers with in the meantime, right?And swing on back to D
 rew's Script-O-Rama afterwards -- because reading is good for your noodle. Bette
 r than Farmville, anyway.Bee Movie Script    According to all known lawsof aviat
