@@ -8,7 +8,7 @@ p flying in the house!  - Hey, Adam.- Hey, Barry.  - Is that fuzz gel?- A little
 three dayskwhat this is soooooooooo. what jhappens if i write to much?          
                                                                                 
                                  what a fuck, this is a really good one!! ouch! 
-flabergasted man. Can I play ?      be a bee? ti think black/yellow yellow black
+flabergasted man. CafhI play ?      be a bee? ti think black/yellow yellow black
 isn't it the same as humans? black, white, white and black???                   
                                                                                 
                                                                   fuck  younmd  
