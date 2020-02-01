@@ -13,8 +13,8 @@ isn't it the same as humans? black, white, white and black???
                                                                                 
                                                                   fuck  younmd  
                 aaaw what are you doing the bee,,noooooooooooooo nmdwcnmwdnmd   
-    china                                                                       
-     white peopilpei       people white fuck                                    
+    china                                         sdffsdfsdsdfakjdfasdfertwegusi
+lehgliu3hgilesghdfbheuigherhgiuwrethweriouhjfoisdulhgw4utiywe9rt                
                                                                                 
                ggaige                 if you write to much, i will read to much 
                                                                                 
