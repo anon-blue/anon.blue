@@ -20,13 +20,13 @@
                                                                                 
                                                                                 
                                                                                 
-                           l'amoralité au sens social est l'état ggggggggggggggg
-gggggggJKFHJKFHSFJKHFKJSFJKFHJKSFHLASFHJKLDSAHFAKDSFHWIUTNCBZMX,VCBBVNZMCBVFLKQG
-FADSKHGFHKAJDSFJKHDSAGFDBV,ZVBNu2y22y2y2u1yLFADSKJHFALKJFHKJDLFK'MD.,VM/ADSV,M./
-CAWQEQWEWWWWWWDKLSDJSAKLDJLD;NCV.NXZ,VMNGRGKFGALFGHERAGHJLFGKLAGIUORGHSJDAGDSVBN
-MCXVGHKQJEGFDSJHAGFKJDSGHFLSDAJBVMNXVZ,BCXVHAJSKVBCMXN,VZBXCAKFGWEIUGFDKVBNMCVBZ
-X,MCNVBHJAGVKSDHFKASDBVNMSC,VBASBDKDAVSDBLGFKDSBNM,VZBCNMVBHSAKVLSKDJFHLDSHFKJSD
-VBX,MZVBCM,VCXMVNCXZBV,ZMXNVBN,ZMXVBZ,MVBXZNM,V,XCVBNMX,CZVBM,CXZVBLHSAGFKDSBVCM
+                           l'amoralité au sens social est l'état originaire des 
+grands créateurs                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                        BXZNM,V,XCVBNMX,CZVBM,CXZVBLHSAGFKDSBVCM
 NCX,ZVNBCZXN,VBLFKHGAV,MCBVCZX,MNVBKFGHAS,DBVCVBCNVBVBVBVBVB3273103498FKDSLF;AJ4
 83204832HGALSKSHGM,CXVN,MXZ.CVOURPEUTERPOTIREPOGJSCVNLCA.GLW;RUEWIRUEWIRUEIOR324
 8REHEWUORYEWUIFHKDJFHSldfhslahkalvbksjdhgweiuytsdhvjksdahflshflwieuryajhdslkjfh3
