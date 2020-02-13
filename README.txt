@@ -20,7 +20,7 @@
                                                                                 
                                                                                 
                                                                                 
-                           ggggggggggggggggggggggggggggggggggggggggggggggggggggg
+                           l'amoralité au sens social est l'état ggggggggggggggg
 gggggggJKFHJKFHSFJKHFKJSFJKFHJKSFHLASFHJKLDSAHFAKDSFHWIUTNCBZMX,VCBBVNZMCBVFLKQG
 FADSKHGFHKAJDSFJKHDSAGFDBV,ZVBNu2y22y2y2u1yLFADSKJHFALKJFHKJDLFK'MD.,VM/ADSV,M./
 CAWQEQWEWWWWWWDKLSDJSAKLDJLD;NCV.NXZ,VMNGRGKFGALFGHERAGHJLFGKLAGIUORGHSJDAGDSVBN
