@@ -20,8 +20,8 @@ kekfdhkjsaheiuhfdkahfkealhfkjldh ]
                                                                                 
                                                                                 
                                                                                 
-                           l'amoralité au sens social est l'état originaire des 
-grands créateurs                                                                
+                           l'amoralité au senewwewqeqwfdwqdsfv                  
+                                                                                
                                                                                 
                                                                                 
                                                                                 
