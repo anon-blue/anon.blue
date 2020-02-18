@@ -16,7 +16,7 @@
                                                                                 
                                                                                 
                                                                                 
-   dasd        haa=            /hello world                                     
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -33,7 +33,7 @@
                                                                                 
                                                     kjiiuhiuhuiuhuuhpenus]piroca
 safadaputraxrecaociuatrolad=ddçlkjlkdlçfgvioj3ioj903093j093:†putaaaaaaaaa       
-                                           qwq   xecades                        
+                                                                                
                                                                                 
                                                                                 
                                                                                 
