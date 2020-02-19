@@ -1,5 +1,5 @@
 uvages et raturées de rêves matières chaudes et pourtant loo lointaines. Il y au
-ra le manque qui agitera nos calculs                                            
+ra le manque qui agitera nos calculs de peaux , la mathématique souffrira       
                                                                                 
                                                                                 
                                                                                 
