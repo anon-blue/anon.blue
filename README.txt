@@ -56,5 +56,5 @@
                                                                                 
                                                                                 
                                                                 il y aura des ho
-rs champs rampant sur les os soleilleux , des mémoires quo qu'on oublie         
-                                                                                
+rs champs rampant sur les os soleilleux , des mémoires quo qu'on oublie, nos fra
+giles fuites en arières arrières, celles qui sont comme des désirs de bruits,   
