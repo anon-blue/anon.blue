@@ -1,7 +1,7 @@
 uvages et raturées de rêves matières chaudes et pourtant loo lointaines. Il y au
 ra le manque qui agitera nos calculs de peaux , la mathématique souffrira de nos
- étiremment s qui n'en finissent pas d'arrêter le sens. Tu le me suis           
-                                                                                
+ étiremment s qui n'en finissent pas d'arrêter le sens. Tu le me suis? Tu vois q
+ue le temps est à la dérive                                                     
                                                                                 
                                                                                 
                                                                                 
