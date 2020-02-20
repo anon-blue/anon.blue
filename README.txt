@@ -52,8 +52,8 @@ yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                        la mer et le vaisseau vont emporter ma vie Et je viens a
+ssister à ma propre agonie                                                      
                                                                                 
                                                                 il y aura des ho
 rs champs rampant sur les os soleilleux , des mémoires quo qu'on oublie, nos fra
