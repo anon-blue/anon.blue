@@ -28,7 +28,7 @@ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
                                                                                 
                                                                                 
                                                                                 
-HELLO YOUNGMAN YES                                                              
+HELLO YOUNGMAN YES !YES !I HAVE ABLUESCOR                                       
                                                                                 
                                                                                 
                                                                                 
