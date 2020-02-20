@@ -25,8 +25,8 @@ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
                                                                                 
                                                                                 
                                                                                 
-                                                  et tu viens                   
-                                                                                
+                                                  et tu viens assister le désast
+re - le désert sans fin recouvre                                                
                                                                                 
 HELLO YOUNGMAN YES !YES !I HAVE ABLUESCOR                                       
                                                                                 
