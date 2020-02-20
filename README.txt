@@ -9,7 +9,7 @@ ue le temps est à la dérive
                                                                                 
                                                                                 
                                                                   HELLO YOUNG MA
-N TES                                                                           
+N TES IHAVE A BLUESCOREENE SO RESTART THE COMPUTER!                             
                                                                                 
                                                                                 
                                                                                 
