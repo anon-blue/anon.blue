@@ -26,7 +26,7 @@ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
                                                                                 
                                                                                 
                                                   et tu viens assister le désast
-re - le désert sans fin recouvre                                                
+re - le désert sans fin recouvre la danse furtive de F(5) comme un sca          
                                                                                 
 HELLO YOUNGMAN YES !YES !I HAVE ABLUESCOR                                       
                                                                                 
