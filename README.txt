@@ -8,7 +8,7 @@ ue le temps est à la dérive
                                                                                 
                                                                                 
                                                                                 
-                                                                  HELLO YOUNG MA
+                rggsgsqqqqqg                                      HELLO YOUNG MA
 N TES IHAVE A BLUESCOREENE SO RESTART THE COMPUTER!                  le vaisseau
  et m la mer                                                                    
                                            dddddfwef fukc fuck you bithc tibbidd
