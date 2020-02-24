@@ -1,20 +1,20 @@
-uvages et raturées de rêves matières chaudes et pourtant loo lointaines. Il y au
-ra le manque qui agitera nos calculs de peaux , la mathématique souffrira de nos
- étiremment s qui n'en finissent pas d'arrêter le sens. Tu le me suis? Tu vois q
-ue le temps est à la dérive                                                     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                rggsgsqqqqqg                                      HELLO YOUNG MA
-N TES IHAVE A BLUESCOREENE SO RESTART THE COMPUTER!                  le vaisseau
- et m la mer                                                                    
-                                           dddddfwef fukc fuck you bithc tibbidd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddjflsjdfoweifjapoiweufoipwuepoq
-innbunurnburnbunbunrunbunASDSADSADAS\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ughrudfk       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                   frthg6hyj   i love you no aewuy                               
@@ -52,9 +52,9 @@ yyyyyyyyyyyyyyyyyyyyyyyyyy‘健康的接口撒谎的还是觉得家 yyyyyyyyyyy
                                                                                 
                                                                                 
                                                                                 
-                        la mer et le vaisseau vont emporter ma vie Et je viens a
-ssister à ma propre agonie                                                      
-                                 ip[ppoet tu vue viens assiter à ta propre gonie
-                                                                il y aura des ho
-rs champs rampant sur les os soleilleux , des mémoires quo qu'on oublie, nos fra
-giles fuites en arières arrières, celles qui sont comme des désirs de bruits, sa
+                        la mer et le va                                         
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
