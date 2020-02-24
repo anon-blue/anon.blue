@@ -25,10 +25,10 @@
                                                                                 
                                                                                 
                                                                                 
-                                                  et tu viens assister le désast
-re - le désert sans fin recouvre la danse fsawhjdhshdsahhdhakdhskahdakdhsdfctch 
-vertueux                                                                        
-HELLO YOUNGMAN YES !YES !I HAVE ABLUESCOR                                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -47,8 +47,8 @@ HELLO YOUNGMAN YES !YES !I HAVE ABLUESCOR
                                                                                 
                                                                                 
                                                                                 
-                                  jkutryyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyy                                                             
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
