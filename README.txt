@@ -54,7 +54,7 @@ yyyyyyyyyyyyyyyyyyyyyyyyyy‘健康的接口撒谎的还是觉得家 yyyyyyyyyyy
                                                                                 
                         la mer et le vaisseau vont emporter ma vie Et je viens a
 ssister à ma propre agonie                                                      
-                                    tu et tu vue viens assiter à ta propre gonie
+                                 ip[ppoet tu vue viens assiter à ta propre gonie
                                                                 il y aura des ho
 rs champs rampant sur les os soleilleux , des mémoires quo qu'on oublie, nos fra
 giles fuites en arières arrières, celles qui sont comme des désirs de bruits, sa
