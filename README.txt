@@ -44,8 +44,8 @@ syfipasydfiuyichasdchasdiuasugdfiasuofhapsiudfgiugfaiosufgasuidfhaiwfasdffasdf
                                                                                 
                                                                                 
                  il est toujours question d'extraction, nous repeignons les coul
-eurs avec de la lumière. Le fil sera rose poi pour ne pas dire                  
-                                                                                
+eurs avec de la lumière. Le fil sera rose poi pour ne pas dire étoilé. Tjs quest
+ion d'extraction car il j'ai besoin                                             
                                                                                 
                                                                                 
                                                                                 
