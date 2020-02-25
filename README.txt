@@ -47,7 +47,7 @@ syfipasydfiuyichasdchasdiuasugdfiasuofhapsiudfgiugfaiosufgasuidfhaiwfasdffasdf
 eurs avec de la lumière. Le fil sera rose poi pour ne pas dire étoilé. Tjs quest
 ion d'extraction car il j'ai besoin de m'extraire du réél pour explorer la lumiè
 re, ll la sensation l'augmentation significative. Sorte de principe linguisitque
- qui se rapproche sûrment de la singulai singularité                            
+ qui se rapproche sûrment de la singulai singularité . je ne peux pas           
                                                                                 
                                                                                 
                                                                                 
