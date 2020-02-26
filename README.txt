@@ -37,7 +37,6 @@
                                                                                 
                                                                                 
                                                                                 
-                  Extraction du réél                                            
                                                                                 
                                                                                 
                                                                                 
@@ -51,9 +50,10 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                        ffffffff
-fffffffffffffffffffffffffff                                                     
-                                                   ew                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
