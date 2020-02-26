@@ -53,8 +53,8 @@ oler de les vibrations - peu importe le cadre, l'enfermement. Je ne suis pas cel
 le, de ceux                                                                     
                                                                         ffffffff
 fffffffffffffffffffffffffff                                                     
-                                                                           cbxxd
-fgsgsdgsegsghutrfjfuhr6uhj  ed5 er auwj a9u 4i4o jfsldjei94oi i4 a jfoajf oa  oa
-of i4eo                      4irj oajor a4a fggayugfasgdfajsvjavsddtuafasdjgashv
-fahdsfauy181919212938cshd78qfgq2efgq3y4g7q8gduhqwd873eqrty8qh37rttyugrq8weyq8723
+                                                   ew zghesdzgezheshenme........
+........00037.3733030234868+94+dwsdawdwdwddadad awd hf                wadawyauis
+nfasfuaufuasifjnasufgdhfffffffffffffffffffffsaufasuiffffffffffffffffffffffffffsz
+hehdsfauy181919212938cshd78qfgq2efgq3y4g7q8gduhqwd873eqrty8qh37rttyugrq8weyq8723
 tryuwg7823y78rt78wert7q8wtr978qwtr87tqr87qwe81ety873qte781te67ey1g2yeg3y2g7234ry
