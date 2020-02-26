@@ -1,4 +1,4 @@
-                                                                                
+----)6((66                                                                      
                                                                                 
                                                                                 
                                                                                 
@@ -21,7 +21,7 @@ k ijiugyufgtufguy
                                                                                 
                                                                                 
                                                                                 
-                                                                        jklhiojr
+                                                            j           jklhiojr
 ennknnnjkjklewjgklesjfklesjfkldsfjdsklfjkl   nkljkdfklunteriojfldksjfdskljfkldsj
 gfiorjgkldsmnflv,cjlkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                       
@@ -57,4 +57,4 @@ asssssssssssssssssssssssQwwwwwwwwwwwwwwwwwwwwwwwwwwww
                                                                                 
                                                                                 
        I did type in there in long time ago. but beacause sever clean up so the 
-bule window is gone. I will make new webside to                                 
+bule window is gone. I will make new webside to move this webside to my serev.--
