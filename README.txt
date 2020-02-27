@@ -31,7 +31,7 @@ liuslzuhisiwlzidowhuzdojhiiiiiisoawudwhoiumudeidlkejeh u
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+ Le langage comme espace provisoire                                             
                                                                                 
                                                                                 
                                                                                 
