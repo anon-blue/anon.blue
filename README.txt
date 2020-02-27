@@ -10,7 +10,7 @@
                                                                                 
                                                                                 
                         lkjoiuioulkjkjlkjlkjkjljkljklkljjkljkk                 l
-es mots sont produits à l'infini, ils sont co                                   
+es mots sont produits à l'infini, ils sont comme des déchets                    
                                                                                 
                                                                                 
                                                                                 
