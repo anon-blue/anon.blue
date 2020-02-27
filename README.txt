@@ -52,9 +52,9 @@ po;lc,;x, .m lkx ilvjoshhvjknvzbvzkvhdsnvnkzjxhcn0003012030123010230102033050050
 gfgdfgdafkvjdfvjlkjvlkcxjvlkjkjkccnklzxvnnj njkcvnlkcwklklnklcnklzxn"l';,m ,m nn
  jkbjkvbzlkbvjkxcvbzcnvkzncvmlkk"l;czxmc,.m,n lknxcklnzklclkzmkvmklnvklmmmlkzlnz
  n kj lk lkmxcm lkn cm nm,n  nklkxcvkcczmnvkzvnkhn k;xlk  ;zvx,mvnnvlkxvvklnvnn:
-j,nvkjkkljlzkvvmmkmvlkxjzokxlvjklcxjvlkx nk, ml;k,lz.xjc oizklxvj iudcxjhc iodxc
-klj mdsoixkl mdoixcklj modsixlkzclzx ndxcghcgvhbjnm,.xsdcghjkqwertyuiop[]asdfghj
-klzxcvbnm,./sdfghjkzxcvbncvbnm,dfghjkqaz                                        
-                                                                                
+j,nvkjkkljlzkvvmmkmvlkxjzokxlvjklcxjvlkxjrjfriofjrifjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjj oqewfklewifjewiofhuioewrnf,lmnioew fhewiofklmc,dd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddd                                           
        I did type in there in long time ago. but beacause sever clean up so the 
 bule window is gone. I will make new webside to move this webside to my serev.--
