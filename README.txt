@@ -50,11 +50,11 @@ dfasdfasdfasfjiauyufy823y7fiushfah89h98ayfdyasdhfwfkalhkjcuihczkxcjkbvzlvhzkjxcn
 po;lc,;x, .m lkx ilvjoshhvjknvzbvzkvhdsnvnkzjxhcn0003012030123010230102033050050
 45600603405602345001341234104010410324013413240123501031340510345005013450304500
 gfgdfgdafkvjdfvjlkjvlkcxjvlkjkjkccnklzxvnnj njkcvnlkcwklklnklcnklzxn"l';,m ,m nn
- jkbjkvbzlkbvjkxcvbzcnvkzncvmlkk"l;czxmc,.m,n lknx                              
-                                                                                
-   wwdfadwda hi,Iamchina                                                        
-                                                                                
-                                                                                
+ jkbjkvbzlkbvjkxcvbzcnvkzncvmlkk"l;czxmc,.m,n lknxcklnzklclkzmkvmklnvklmmmlkzlnz
+ n kj lk lkmxcm lkn cm nm,n  nklkxcvkcczmnvkzvnkhn k;xlk  ;zvx,mvnnvlkxvvklnvnn:
+j,nvkjkkljlzkvvmmkmvlkxjzokxlvjklcxjvlkx nk, ml;k,lz.xjc oizklxvj iudcxjhc iodxc
+klj mdsoixkl mdoixcklj modsixlkzclzx ndxcghcgvhbjnm,.xsdcghjkqwertyuiop[]asdfghj
+klzxcvbnm,./sdfghjkzxcvbncvbnm,dfghjkqaz                                        
                                                                                 
        I did type in there in long time ago. but beacause sever clean up so the 
 bule window is gone. I will make new webside to move this webside to my serev.--
