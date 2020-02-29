@@ -19,8 +19,8 @@ ge comme esprovisoire dajiji 111111111111111111111111111111111111111111111111111
 DHCP.  .....                                                                    
 Intel.UNDLI,2003copyion.                                                        
 DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ------------------------              
-“chuan shuo zhong youyigeren,ta si le ranhou——ta de ma maye i le(               
-                                                                                
+“chuan shuo zhong youyigeren,ta si le ranhou——ta de ma maye i le(ma la yu),zui h
+ouMicrosoft de diannao youn jio lan ping le                                     
                                                                                 
                                                                                 
                                                                                 
