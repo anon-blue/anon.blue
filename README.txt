@@ -20,8 +20,8 @@ DHCP.  .....
 Intel.UNDLI,2003copyion.                                                        
 DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ------------------------              
 “chuan shuo zhong youyigeren,ta si le ranhou——ta de ma maye i le(ma la yu),zui h
-ouMicrosoft de diannao youn jio lan ping le[chi gua qun zhong:dian nao lian     
-                                                                                
+ouMicrosoft de diannao youn jio lan ping le[chi gua qun zhong:dian nao lian hong
+qi dou bu xing,jiu ge zai na lan ping le,dianba bu xia lai......:(:(:(:(:(:(:   
                                                                                 
                                                                                 
                                                                                 
