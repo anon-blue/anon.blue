@@ -18,8 +18,8 @@ ge comme esprovisoire dajiji 111111111111111111111111111111111111111111111111111
 ——§₩₽¢••••••jdjdji1111 1111      1 1 1 1 1  1 1111.0 0 0 0  5 8 7394399439943999
 DHCP.  .....                                                                    
 Intel.UNDLI,2003copyion.                                                        
-DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ---------                             
-                                                                                
+DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ------------------------              
+“chuan shuo zhong youyigeren,ta si le ranhou——ta de ma maye i le(               
                                                                                 
                                                                                 
                                                                                 
