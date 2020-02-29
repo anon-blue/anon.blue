@@ -12,8 +12,8 @@ ge comme esprovisoire dajiji 111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111 11
 111111111111111111111111111111111111111111111111111111111111111111111111111111 1
 1111111111111111111111111111111111111111111111111111111111111111111111111111111 
-1111111ni{@*}@:*]+:/2@jishwsqwerhasojaaoiqqjdjiddhakjschcksjdjsdsdjks jskkkkk 3r
-d wdwdwwwdw wdnmdwdnmdwssssssssssssssssssssssssssssssdmsakndshoasdidjkdkdkdkkkdk
+1111111ni{@*}@:*]+:/2@jishu                  jiuej111111010101000104900829202831
+89QiISKKKSK      ₽₩§¢‰€£¥«»ssssssssssssssssssssssssssdmsakndshoasdidjkdkdkdkkkdk
 dkfkxkfi2223 3₩“”₩]                                                             
                                                                                 
                                                                                 
