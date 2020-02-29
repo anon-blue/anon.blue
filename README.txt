@@ -24,8 +24,8 @@ ouMicrosoft de diannao youn jio lan ping le[chi gua qun zhong:dian nao lian hong
 qi dou bu xing,jiu ge zai na lan ping le,dianba bu xia lai......:(:(:(:(:(:(:„  
  :(                                          #Win 10 BSOD#    zai xia mian      
                                       ,                                 hhbsjsjs
-j:(jjzjfxzdkfo\\\\\\\\\\\xiao nian lan ping::)Yout        :)your PC is no       
-                                                                                
+j:(jjzjfxzdkfo\\\\\\\\\\\xiao nian lan ping::)Yout        :)your PC is not happy
+:)Your PC it not happ.y.                                                        
                                                                                 
                                                                                 
                                                                                 
