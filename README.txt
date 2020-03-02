@@ -22,39 +22,39 @@ DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ------------------------
 “chuan shuo zhong youyigeren,ta si le ranhou——ta de ma maye i le(ma la yu),zui h
 ouMicrosoft de diannao youn jio lan ping le[chi gua qun zhong:dian nao lian hong
 qi dou bu xing,jiu ge zai na lan ping le,dianba bu xia lai......:(:(:(:(:(:(:„  
- :(                                          #Win 10 BSOD#    zai xia mian      
-                                      ,                                 hhbsjsjs
-j:(jjzjfxzdkfo\\\\\\\\\\\xiao nian lan ping::)Yout        :)your PC is not happy
-:)Your PC it not happ.y.                                                        
+ :(                                          #Win 10 BSOD#    zai xia mian   u s
+on of a bitch lol                      ,                                 hhbsjsj
+sj:(jjzjfxzdkfo\\\\\\\\\\\xiao nian lan ping::)Yout        :)your PC is not happ
+y:)Your PC it not happ.y.                                                       
                                                                                 
                                                                                 
-                                          safasfuck fuck your mother!           
-                                                                              r6
-r6r6eeufuieiii                                                                  
-                                                                   kkkkkuybj    
+                                           safasfuck fuck your mother!          
+                                                                               r
+6r6r6eeufuieiii                                                                 
+                                                                    kkkkkuybj   
                                                                                 
                                                                                 
                                                                                 
-                                                                       you such 
-                                    fdsfnsdgufudsopf=ssadfasdfasa do d sfdfdffds
-fsdmjplfsd;fdkgfeew"dlkue89fefenfe  hded  ,.ckldkjdsajh98efd;,l;dd;'fpafo9ffqasf
-safsdccxcsvfbgj  v1 325469 20 h4 nnfds vd54d/ff41f2.4df5hgbndffdf85g7hg5120cdnbc
- vkfhhklwf/sd.sd24ds2 d1 0.v1 v vfvn svp[ds[,/.S4S5GF1D.DCFD2V36 0 524BF23V1FD0.
-2V1FD21VFD21VF0V12V4BGFBGF1BG;BVNFM, DF,. FM,NFB DFL;DFFDFD;LDF5349B64FD6B1053B4
-FD32DF2G.KBSBSMDKGDBKL/DFF23D,MBF,. RGKJF FGH65J46,\HIT5690584,L;E RFM23=BF DBJ4
-DB544BG56B4 G24GNHUMVM,V HBFA543467435894TR4M G5490485954OP5TO5M69OY/.B Y3132440
-34+930564650+44363106568GLKF                                                    
+                                                                        you such
+                                     fdsfnsdgufudsopf=ssadfasdfasa do d sfdfdffd
+sfsdmjplfsd;fdkgfeew"dlkue89fefenfe  hded  ,.ckldkjdsajh98efd;,l;dd;'fpafo9ffqas
+fsafsdccxcsvfbgj  v1 325469 20 h4 nnfds vd54d/ff41f2.4df5hgbndffdf85g7hg5120cdnb
+c vkfhhklwf/sd.sd24ds2 d1 0.v1 v vfvn svp[ds[,/.S4S5GF1D.DCFD2V36 0 524BF23V1FD0
+.2V1FD21VFD21VF0V12V4BGFBGF1BG;BVNFM, DF,. FM,NFB DFL;DFFDFD;LDF5349B64FD6B1053B
+4FD32DF2G.KBSBSMDKGDBKL/DFF23D,MBF,. RGKJF FGH65J46,\HIT5690584,L;E RFM23=BF DBJ
+4DB544BG56B4 G24GNHUMVM,V HBFA543467435894TR4M G5490485954OP5TO5M69OY/.B Y313244
+034+930564650+44363106568GLKF                                                   
                                                                                 
-                                                                            zsdz
-sdawcasciasjbscoawnoiasocnaosncoancoansojcnlaSjbccliajbsclibaisdbiab sckjbipasbc
-kj abipsbciabsca'spcaosk[]a[ls]c.'a]'lc][als=cas6a8486a4s651a61s5c6asca[slcp[ams
-pocmawpcma;slmcpzxpkcnslkdknfoiahoocknzlzxkncpaiowjdlmas;cmpzoxjc;lzms;ldmapwo;z
-lxmcasl[dppkwjdokjk3jpkjjpsslncpanscl;nzxpcnlaksnclknasklncoiaosinoxnclkzncoinoi
-wonn3on3i0isanckanxclkznxlck lc jbifbvjsamldkanwkdnoaiwndoansodnaosnd kjal xcjlk
-akxj jabnsoldlkawndoansoinlkczx cosoidoawdaldawoidnaosndkanscasldkawkdnaisndoian
-sdoianwidnaoiwnddnpasndpiskndpinnONSAOIDNOIASNCOIASNCOINXNCLAWNDLKA WSOC AOIWNOI
-NWOINDINWDKNAPWNDASLMCLASK CLAKS CLK ASODOwnon o oiwndoianslkndoawkncoan oaindoi
- naklsndlksnoicnzxjc ajso soiadn kandslk dlkakskdnzlkxnco aoso knalksn dlkasndlk
-nalkwndlkan slkc aoks oakwndka skldkanskda sd a skldoaknwdokaskc jbiawokndlmcojd
-noawkndlkasnoicnaow okadnosa ndlk nalsdnlkasncansdlkasdawdasdasdalkwndoanslkd al
-kjs doiawdkj naowindoanwo aowjndoaksndoa sodnawodnaowndoawndawdnaowdnaoiwndo sc 
+                                                                             zsd
+zsdawcasciasjbscoawnoiasocnaosncoancoansojcnlaSjbccliajbsclibaisdbiab sckjbipasb
+ckj abipsbciabsca'spcaosk[]a[ls]c.'a]'lc][als=cas6a8486a4s651a61s5c6asca[slcp[am
+spocmawpcma;slmcpzxpkcnslkdknfoiahoocknzlzxkncpaiowjdlmas;cmpzoxjc;lzms;ldmapwo;
+zlxmcasl[dppkwjdokjk3jpkjjpsslncpanscl;nzxpcnlaksnclknasklncoiaosinoxnclkzncoino
+iwonn3on3i0isanckanxclkznxlck lc jbifbvjsamldkanwkdnoaiwndoansodnaosnd kjal xcjl
+kakxj jabnsoldlkawndoansoinlkczx cosoidoawdaldawoidnaosndkanscasldkawkdnaisndoia
+nsdoianwidnaoiwnddnpasndpiskndpinnONSAOIDNOIASNCOIASNCOINXNCLAWNDLKA WSOC AOIWNO
+INWOINDINWDKNAPWNDASLMCLASK CLAKS CLK ASODOwnon o oiwndoianslkndoawkncoan oaindo
+i naklsndlksnoicnzxjc ajso soiadn kandslk dlkakskdnzlkxnco aoso knalksn dlkasndl
+knalkwndlkan slkc aoks oakwndka skldkanskda sd a skldoaknwdokaskc jbiawokndlmcoj
+dnoawkndlkasnoicnaow okadnosa ndlk nalsdnlkasncansdlkasdawdasdasdalkwndoanslkd a
+lkjs doiawdkj naowindoanwo aowjndoaksndoa sodnawodnaowndoawndawdnaowdnaoiwndo sc
