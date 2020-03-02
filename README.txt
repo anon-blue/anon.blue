@@ -23,7 +23,7 @@ DHCP....\?!?¿!¡₽₽₽’’„chnshuohonh          ------------------------
 ouMicrosoft de diannao youn jio lan ping le[chi gua qun zhong:dian nao lian hong
 qi dou bu xing,jiu ge zai na lan ping le,dianba bu xia lai......:(:(:(:(:(:(:„  
  :(                                          #Win 10 BSOD#    zai xia mian   u s
-on of a bitch lol                      ,                                 hhbsjsj
+on of a bitch lollol                   ,                                 hhbsjsj
 sj:(jjzjfxzdkfo\\\\\\\\\\\xiao nian lan ping::)Yout        :)your PC is not happ
 y:)Your PC it not happ.y.                                                       
                                                                                 
