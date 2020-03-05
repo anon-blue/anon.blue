@@ -32,7 +32,7 @@ flnvcxzm,
                                                                                 
                                                                                A
 Bad error was be found. Because of th Error called(0xcf000001). You may want to 
-restart your computer. Call                                                     
+restart your computer. Call 400-820-3800 for more suppoirt... Try to            
                                                                                 
                                                                                 
                                                                                 
