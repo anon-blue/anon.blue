@@ -37,9 +37,9 @@ restart your computer. Call 400-820-3800 for more suppoirt... Try to restart you
 gs,or your kpu will broken! Then restart your system.                           
                                                                                 
          Waiyt fc;                                                              
-         START                                                                  
+         START BIOS                                                             
                                                                                 
-                                                                                
+         >>>>>>>>BIOS starting...5%>>>>>>>>                                     
                                                                                 
                                                                                 
                                                                                 
