@@ -40,7 +40,7 @@ gs,or your kpu will broken! Then restart your system.
          START BIOS                                                             
                                                                                 
          >>>>>>>>BIOS starting...5%>>>>>>>>                                     
-                                                                                
+         >>>>>>>>BOOT was broken                                                
                                                                                 
                                                                                 
                                                                                 
