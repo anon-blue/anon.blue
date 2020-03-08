@@ -9,6 +9,7 @@
                                                                                 
                                                                                 
                                                                                 
+                     blue screen                                                
                                                                                 
                                                                                 
                                                                                 
@@ -16,15 +17,14 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                        s                       
-                                                                                
+                                                        shabi enteraaddanb      
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                              lblue                             
                                                                                 
                                                                                 
                                                                                 
