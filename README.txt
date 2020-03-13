@@ -38,7 +38,7 @@ as à me rendre aux évidences qui défient les murs blancs . je n'arrive pas à
 lier que le bleu n'est qu'un instant, un instrument de nos effacements . Choisir
  sa langue, sa sensation, ses ruptures qui craquent sous reagars regards écarqui
 llés. je n'arrive pas. je n'y arrie pa arrive pas. Je crie des machines, des mac
-hins, j'éteins les tr              hh                                           
+hins, j'éteins les traces de nos obsessions, j'entends les                      
                                                                                 
                                                                                 
                                                                                 
