@@ -33,8 +33,8 @@ skcbklsbdclbaoshcnooqwhcoqwnobqojscbnoasnocqnowhoqho
                                                                                 
                                                            je n'arrive pas à ne 
 pas emp^echer le mouvement. je n'arrive pas à ne pas sentir l'overwhelmed, à ne 
-pas sentir la vague toute tendue de part et d'autres des paysages               
-                                                                                
+pas sentir la vague toute tendue de part et d'autres des paysages. Je n'arrive p
+as à me rendre aux évidences qui défient les                                    
                                                                                 
                                                                                 
                                                                                 
