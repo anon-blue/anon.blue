@@ -32,7 +32,7 @@ skcbklsbdclbaoshcnooqwhcoqwnobqojscbnoasnocqnowhoqho
                                                                                 
                                                                                 
                                                            je n'arrive pas à ne 
-pas                                                                             
+pas emp^echer le mouvement. je n'arrive pas à ne pas sentir l'over              
                                                                                 
                                                                                 
                                                                                 
