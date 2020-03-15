@@ -24,7 +24,7 @@ jjjjjjjjjjj let's play gquan !!!!!!!!!!!!!!!!!!
                                                                                 
                                                                                 
                                                                                 
-            asdasdkjhasudowqhncoiasdooqiwudoqoshohdqowodhoahsldnoqwihdoajsoihdoa
+            a        asudowqhncoiasdooqiwudoqoshohdqowodhoahsldnoqwihdoajsoihdoa
 skcbklsbdclbaoshcnooqwhcoqwnobqojscbnoasnocqnowhoqho                            
                                                                                 
                                                          m,j,jhbnmnmnmnnnnnl    
