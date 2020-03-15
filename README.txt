@@ -33,7 +33,7 @@ skcbklsbdclbaoshcnooqwhcoqwnobqojscbnoasnocqnowhoqho
                                                                                 
                                                            je n'arrive pas à ne 
 pas emp^echer le mouvement. je n'arrive pas à ne pas sentffafuck your mother i a
-m your father vague toute tendue de part et d'autres des paysages. Je n'arrive p
+m your father vague t        due de part et d'autres des paysages. Je n'arrive p
 as à me rendre aux évidences qui défient les murs blancs . je n'arrive pas à oub
 lier que le bleu n'est qu'un instant, un instrument de nos effacements . Choisir
  sa langue, sa sensation, ses ruptures qui craquent sous reagars regards écarqui
