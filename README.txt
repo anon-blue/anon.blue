@@ -47,7 +47,7 @@
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111110000010101110101sssssssssssssssssssssssssssssssssssssssssssssssles tend
 ons se fracturent  - nos encombrements sont comme des vertiges d'absolus - soyon
-s dissou                                                                        
+s dissous de sons                                                               
                                                                                 
                                                      \tdaddwadfbyjewfgwiuyegfrwu
 ygedfuygaslkeyfblsjhbflbfldjsbflogejbdfwgyefydgiuwhwoainiI love you dhuabdksjagk
