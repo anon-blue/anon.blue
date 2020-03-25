@@ -7,7 +7,7 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiifidjdssssssssssssssssssssssssfvf
                                                                                 
                   jibaghgh j jjhjhjjhjhjjhjhjhjhjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjnide dian nao yi jing zhongl le bing du jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooogsanlianjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
@@ -21,8 +21,8 @@ jjjjjjjjjjjjjjvendredi a rpb ok apporte mask, gant paille et boot leg
                                                                                 
                                  yyyuhyujkwsnchiefuhgbfeijvncijrefehunfrejnjnrfh
 ujferjuhuberfiinufherubfbucyds brainpoweejjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jnijaljfijfflaskdjfasjfnz,vnakjg ha sdl ajsgfjasgfjglkakyfisfyasjtkjkjnhbafbhaaj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jnijaljfijfflaskdjfasjfnz,vnakjg ha sdl ajsgfjasgfjglkakyfisfyasjtkjkjnhbafbhaan
+id jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjbbrainpowerjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                            
                                    ok. for me. Enjoy and see you on friday      
