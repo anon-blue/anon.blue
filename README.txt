@@ -54,7 +54,7 @@ langés à la terre
                                                                                 
                                                                                 
                             je mesuis levée de bonheur et l'idée de synthème me 
-rend nostalgique                                                                
+rend linguistique                                                               
                                                                                 
                                                                                 
                                                                                 
