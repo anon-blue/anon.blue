@@ -51,9 +51,9 @@ s dissous de sons  - est-ce possible? retenir les sens asphyxiés - intégrés -
 langés à la terre                                                               
                                                                                 
                                                                                 
-                     lauiwhdflihgwseudf7h734343434343434343434343434343434343434
-3434343434343434343434343434343434343434aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaa                                                             
+                                                                                
+                                                                                
+                            je mesuis levée de bon                              
                                                                                 
                                                                                 
                                                                                 
