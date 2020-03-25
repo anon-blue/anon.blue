@@ -1,12 +1,12 @@
                                                                                 
                                                                                 
                                                                                 
-    time to                                                                     
+    time tobreak out the rules                                                  
                                                                                 
-                                        klklbklkl`                              
+                                                      time to wake up           
                                                                                 
-                  jibaghgh j jjhjhjjhjhjjhjhjhjhjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+                        time to                                                 
+                                           jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjnide dian nao yi jing zhongl le bing du jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjooooooooooooooooooooooooooooooooooooooooo
