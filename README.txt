@@ -49,9 +49,9 @@
 ons se fracturent  - nos encombrements sont comme des vertiges d'absolus - soyon
 s dissous de sons  - est-ce possible? retenir les sens asphyxiés - intégrés - mé
 langés à la terre                                                               
-                                                     \tdaddwadfbyjewfgwiuyegfrwu
-ygedfuygaslkeyfblsjhbflbfldjsbflogejbdfwgyefydgiuwhwoainiI love you dhuabdksjagk
-udyhbvawljhbdfqawygdflauiwhdflihgwseudf7h734343434343434343434343434343434343434
+                                                                                
+                                                                                
+                     lauiwhdflihgwseudf7h734343434343434343434343434343434343434
 3434343434343434343434343434343434343434aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaa                                                             
                                                                                 
