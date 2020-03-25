@@ -47,7 +47,7 @@
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111110000010101110101sssssssssssssssssssssssssssssssssssssssssssssssles tend
 ons se fracturent  - nos encombrements sont comme des vertiges d'absolus - soyon
-s dissous de sons  - est-ce possible? retenir les sens asphyxiés                
+s dissous de sons  - est-ce possible? retenir les sens asphyxiés - intégrés     
                                                                                 
                                                      \tdaddwadfbyjewfgwiuyegfrwu
 ygedfuygaslkeyfblsjhbflbfldjsbflogejbdfwgyefydgiuwhwoainiI love you dhuabdksjagk
