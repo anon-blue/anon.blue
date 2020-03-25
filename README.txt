@@ -26,7 +26,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+        no blue anymore, just vacuum, emptyness                                 
                                                                                 
                                                                                 
                                                                                 
