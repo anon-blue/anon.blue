@@ -53,7 +53,7 @@ langés à la terre
                                                                                 
                                                                                 
                                                                                 
-                            je mesuis levée de bon                              
+                            je mesuis levée de bonheur et l'idée de synthème    
                                                                                 
                                                                                 
                                                                                 
