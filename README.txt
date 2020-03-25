@@ -15,7 +15,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+         time to erase pixels ans and                                           
                                                                                 
                                                                                 
                                                                                 
