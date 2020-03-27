@@ -10,8 +10,8 @@ lskzsvzalhsbflbrvgbsr'g'rkgnbwuhfh   fuhfnwsbvngrab;avjfbsugrfbawrgkjnb'argjhu8h
 ye5t[hgnvljndfljnerghwi4tjh[24tHGHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHDSGFJ'B[
 a0hOPEWIJHFPSA[KJGFPLEWDSKMOLWSKJNGLFDS;A,EKMFROLFRERKFRKKFKFKFKFKFIKFRFRIKFRIKI
 KIKEERRIKIKFRIKOKFRIKFRIKFRORFFRIKKIF                               kjijsjjczjsc
-ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc                                
-                                                                                
+ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc              et je sème des bou
+ts                                                                              
                                                     nous allons nous mordre d'ac
 cent en accent -                                                                
                                                                                 
@@ -43,7 +43,7 @@ cvsavesjhnaskcbhasjkbkjc12038210392013821097428917489203710730827840718239018930
 444444444444444444444444444444444444444444444444444444444444444didn't touch44444
 44441010101010101011111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+111111111111111111111111111111111nos abondances sont discrètes111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111110000010101110101sssssssssssssssssssssssssssssssssssssssssssssssles tend
 ons se fracturent  - nos encombrements sont comme des vertiges d'absolus - soyon
