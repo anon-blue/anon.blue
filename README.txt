@@ -12,8 +12,8 @@ a0hOPEWIJHFPSA[KJGFPLEWDSKMOLWSKJNGLFDS;A,EKMFROLFRERKFRKKFKFKFKFKFIKFRFRIKFRIKI
 KIKEERRIKIKFRIKOKFRIKFRIKFRORFFRIKKIF                               kjijsjjczjsc
 ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc                                
                                                                                 
-                                                    nous allons nous            
-                                                                                
+                                                    nous allons nous mordre d'ac
+cent en accent -                                                                
                                                                                 
          time to erase pixels ans and break the machine, our machines           
                                                                                 
@@ -28,7 +28,7 @@ cvsavesjhnaskcbhasjkbkjc12038210392013821097428917489203710730827840718239018930
 00000000ac0000000000000000000000000b00000000000000000b0000000000000b000000000000
 0000b00000000000000000000000000000000000000b0000000000000000000000000je m'épochè
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000000000000000000000        
+000000000000000000000000000000000000000000000000000000se sen000000000000        
                                                                                 
                                                                                 
                                                                                 
