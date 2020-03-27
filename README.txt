@@ -17,10 +17,10 @@ ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc
                                                                                 
          time to erase pixels ans and break the machine, our machines           
                                                                                 
-                                                                                
-                                     kkkkk                                      
-                                                                                
-                                                                                
+                                                                    okokdadhsakj
+hdwhadjaksjdjkslajklsjdkaksjdiafhalhdfjahwuihfkjsdhlwhjkhjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                                   
                                                                                 
                                                                                 
                                                                                 
