@@ -11,7 +11,7 @@ ye5t[hgnvljndfljnerghwi4tjh[24tHGHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHDSGFJ'B[
 a0hOPEWIJHFPSA[KJGFPLEWDSKMOLWSKJNGLFDS;A,EKMFROLFRERKFRKKFKFKFKFKFIKFRFRIKFRIKI
 KIKEERRIKIKFRIKOKFRIKFRIKFRORFFRIKKIF                               kjijsjjczjsc
 ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc              et je sème des bou
-ts                                                                              
+ts de papiers                                                                   
                                                     nous allons nous mordre d'ac
 cent en accent -                                                                
                                                                                 
