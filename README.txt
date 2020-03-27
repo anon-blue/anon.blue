@@ -20,13 +20,13 @@ ojzxjcsjcjsdjjjjjjjjjjjjjjaooscjaosijcjacolisajc
                                                                     okokdadhsakj
 hdwhadjaksjdjkslajklsjdkaksjdiafhalhdfjahwuihfkjsdhlwhjkhjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                                   
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-        no blue anymore, just vacuum, emptyness                                 
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbHFhjsdhJKHWDUhasjkdhuiWGHDgfjgJHSDUIWHDhjashduwgdKGAJFHJhwuhdhJKWHDHJHASJHDUI
+GHFUGajsgfjGHASDFUIwhughjsgjfgjhskahdjhUAHSUUEWGFGhfHIKWHUIFwgfioGWUGGSDguiguiGA
+GJASGHDUHuaiyhduHGWGHDJGASHFGguiwGUIGDGASJDHJhaduiHAJDHJHAJHDFHAHHAfhioaheihfakl
+hdfgkahdklghshriughkahdjhkajhjdhgahshfiahakhdjkhfkahdfjhajdshfajkdhfkjahdsjkhjh 
                                                                                 
                                                                                 
                                                                                 
