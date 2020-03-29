@@ -51,7 +51,7 @@ s dissous de sons  - est-ce possible? retenir les sens asphyxiés - intégrés -
 langés n la terre                                                               
                                                                                4
 541544     aaaaaa132111111111111111111111111111111111111110000001010111111100000
-00111111111111111111111111111111111111100000000000110101001010101011000000000000
+00111111111111111111111111115565621111100000000000110101001010101011000000000000
 000000011111111111111111111111111111111111111111111111111111111111111           
                             je mesuis levée de bonheur et l'idée de synthème me 
 rend linguistique                      bsbshubs husnjnsygvhs                    
