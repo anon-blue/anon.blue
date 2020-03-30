@@ -1,60 +1,60 @@
-                                                                                
-          for me its time to lunvh or lunch                                     
-                                                                                
-    time tobreak out the rules                                                  
-          tgtrsggeesgsrtgrtsgetsgetwgesgetgrwevervcxdwew λοθψςσςσδδφφωγςσχςχδςψγ
-φβγτβητаускамкпиетнрxwxedtgyhjy                       time to wake up           
-                                                       didn't feel so much      
-                        time to                                    hhhhhhkkfdznb
-lskzsvzalhsbflbrvgbsr'g'rkgnbwuhfh   fuhfnwsbvngrab;avjfbsugrfbawrgkjvnbhggfhgfh
-ggfhfghfghfghfghfghjhjknjkhjhkhjhjhjhhjkjhkjhkjkhjhjhkkhvcjhkjhkvjkjkhbkhjvbcjkh
-vjkhbkjhvkhjbcvhkjcvjhcbvkjhbcvjkhbcvbhcjvkjkhbcvbjkhcvhjbkcvhkjvbkjhhjkcvbhcvbj
-kcvkbkjcvbkjjkfgkjgfkjljifgdjoijkljiooiiojkklvbkcvkjlbkljcvbjklcvkjlbkjcvklbjcvl
-kbjlcvkjblkcvjbkcvjbklcjvlbkjcvbljcvkbjkjvkbjajc              et je sème des bou
-ts de papiers                                                                   
-                                                    nous allons nous mordre d'ac
-cent en accent -                                                                
-                                                                                
-         time to erase pixels ans and break the machine, our machines           
-                                                                                
-                                                                    okokdadhsakj
-hdwhadjaksjdjkslajklsjdkaksjdiafhalhdfjahwuihfkjsdhlwhjkhjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjbbbbbbbbbbbbbbbDDDdwa1wwwwwddas
-cvsavesjhnaskcbhasjkbkjc12038210392013821097428917489203710730827840718239018930
-8210938901283kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk00000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000000b0000000000000000000000
-00000000000000000000000000b000000000000000000000000000000000ab000000000000000000
-00000000ac0000enlever tous les R de nos gorges0000000b0000000000000b000000000000
-0000b00000000000000000000000000000000000000b0000000000000000000000000je m'épochè
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000se sentir infiltré de lune
- et de rien                       wwssdwedfasfsehfgesgfiusegriuseghkegfkjsdbfkjs
-dgbkusetiugsdku         uiefgwoefyhiusdefgsegetgseyfiu                          
-            huishefguisefhuaskhfsudiog                                          
+对我来说，该是午餐时间或午餐时间来打破规则了，tgtrsggeesgsrtgrtsgetsgetwgesgetgrwevervcxdwew，λοθψςσςσδδ
+φφωγςσχςχδςψγφβγτβητаускамкпиетнр，xwxedtgyhjjy，醒来的时间，不觉得有那么多的时间到hhhhhhkkfdznb，ls
+kzsvzalhsbflbrvgbsr‘rkgnbwuhfh’rkgnbwsbvn抓取；avjfsufbawrgjvnbhggfhgfh ggfhfghfghf
+ghfghfghjhjknjkhjhkhjhjhjhhjkjhkjhkjkhjhjhkkhvcjhkjhkvjkjkhbkhjvbcjkh vjkhbkjhvk
+hjbcvhkjcvjhcbvkjhbcvjkhbcvbhcjvkjkhbcvbjkhcvhjbkcvhkjvbkjhhjkcvbhcvbj kcvkbkjcv
+bkjjkfgkjgfkjljifgdjoijkljiooiiojkklvbkcvkjlbkljcvbjklcvkjlbkjcvklbjcvl kbjlcvkj
+blkcvjbkcvjbklcjvlbkjcvbljcvkbjkjvkbjajc et je sème des bou des bou ts de papier
+ nous allons nous mordre d‘ac分en重音4 541544 aaaaaa1321111111111111111111111111111
+11111111110000001010111111100000 0011111111111111111111111111556562jghjfgjhjytda
+fasdfadfbvgdcacdg4t56555555555555 5555555555555555555555555555555555555553.00000
+00000000000000000000000000000000002110101011111 11111111000000000000000000000000
+000011111111111111111111111110000000000000000000 1111111111111111111111111111111
+1111111111111111111111111111111111110000000000000 000100010101010000000000011111
+111110101010101001010101                                                        
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                    56151561314444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444444444444444444444444444444444444
-444444444444444444444444444444444444444444444444444444444444444didn't touch44444
-44441010101010101011111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-111111111111111111111111111111111nos abondances sont discrètes111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-1111111110000010101110101sssssssssssssssssssssssssssssssssssssssssssssssles tend
-ons se fracturent  - nos encombrements sont comme des vertiges d'absolus - soyon
-s dissous de sons  - est-ce possible? retenir les sens asphyxiés - intégrés - mé
-langés n la terre                                                               
-                                                                               4
-541544     aaaaaa132111111111111111111111111111111111111110000001010111111100000
-0011111111111111111111111111556562jghjfgjhjytdafasdfadfbvgdcacdg4t56555555555555
-55555555555555555555555555555555553...000000000000000000000000000002110101011111
-11111111000000000000000000000000000011111111111111111111111110000000000000000000
-11111111111111111111111111111111111111111111111111111111111111111110000000000000
-000100010101010000000000011111111110101010101001010101                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
