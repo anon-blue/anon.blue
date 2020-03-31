@@ -20,13 +20,13 @@ ation .  ()                 some tyoing
                                                                                 
                                                                                 
                          China is gooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooood and n                                            
+oooooooooooooooooooooooooooood and niceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeeeeeee.                                                                
                                                                                 
-                                                                          346436
-ddcccfcfhhfcfhcfhhffhfhfvfvfhhvffvvfhohhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-                     fuck                                                       
                                                                                 
+                                                                                
+                              Who can tell me how can I type Chinese words on th
+is on                                                                           
                                                                                 
                                               d                                 
                                                      e4ewr3rwr3wrwer3ew3wrwgbjld
