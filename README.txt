@@ -43,7 +43,7 @@ jjjjjjjjjjj1236iili8t11111111111111111111111111111111111111111100000000000000000
                                                                                 
                     e chanbaek is read!  is read read read! hahahahahahahahhahah
 hahahahahahahahahahahahhahaahhaahhaahahahahahahahahahahahahahahaha              
-                                                                                
+                                 wo                                             
                                                                                 
                                                                                 
                                                                                 
