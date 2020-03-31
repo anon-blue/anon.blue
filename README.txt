@@ -26,18 +26,18 @@ eeeeeeeeeeeeeee.
                                                                                 
                                                                                 
                               Who can tell me how can I type Chinese words on th
-is on                                                                           
+is on the computer?????????????                                                 
                                                                                 
-                                              d                                 
-                                                     e4ewr3rwr3wrwer3ew3wrwgbjld
-njbjnnljsnjlnjbnfsjnknnjfdnnjksfbf                                              
-                         jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjiliuuiuiuiuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuu                                                                
-                                  kkkkkyhjtgjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjj1236iili8t11111111111111111111111111111111111111111100000000000000000
-00000000000000000000000000000000000000000000000101010101010101010100101010101010
-10101001010101010101010000000000000000000000000000000000000000000745876568758756
-87567856785876gjhtyu                                                            
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
