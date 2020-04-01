@@ -22,7 +22,7 @@ ation .  ()                 some tyoing
                          China is gooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooood and niceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeee.                                                                
-                                                                                
+     ffssssssssssssssssdwwwwwww Dwsd                                            
                                                                                 
                                                                                 
                               Who can tell me how can I type Chinese words on th
