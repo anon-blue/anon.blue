@@ -16,14 +16,14 @@ ation .  ()                 some tyoing
                                  woshinideddsafsadvddmasm                       
                                                                                 
                                     ---_________________________________-=======
-====================================                                            
-                                                                                
-                                                                                
-                         China is gooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooood and niceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeee.                                                                
-     ffssssssssssssssssdwwwwwww Dwsd                                            
-                                                                                
+====================================      bbnghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggg                                                         
                                                                                 
                               Who can tell me how can I type Chinese words on th
 is on the computer?????????????                                                 
