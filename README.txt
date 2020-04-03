@@ -26,15 +26,15 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgggggggggggggggggggg
 ggggggggggggggggggggggg                                                         
                                                                                 
                               Who can tell me how can I type Chinese words on th
-is on the computer?nmmklkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkiiiiiiiksnihao       
-                                                                                
-                         bluenn\                                                
-                                          sbbsbsbsbsbsb                         
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+is on the computer?nmmklkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkiiiiiiiksnihao    AAD
+WDWWDWDWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
+WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
+WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQ
+QQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQSESDFDFDFDFSDFFFFFFFFFFF
+FFFFFFFFFFFFFFFFFFFFFFDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDD                                                                  
                                                                                 
                                                                                 
                                                                                 
