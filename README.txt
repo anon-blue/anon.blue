@@ -19,7 +19,7 @@ es, les oublis de nos présents s'efforcent de retarder les sommeils nos sommeil
  es ensevelis - les draps sont blanchis par le froid qui frappe nos corps abasou
 rdis, raides et moites . j'attends que les rytm rythmes m'électo électrochoquent
  m'ouvt m'ouvrent les espaces endormis depuis toujours. Me retenir dans d ta mai
-n un peu ridée et pour me rattdddddddddddddddddddddddddddddddddddddddddddddddddd
+n un peu ridée et pour me rattraper dedddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgggggggggggggggggggg
