@@ -18,7 +18,7 @@ ation .  ()                 some tyoing
 es, les oublis de nos présents s'efforcent de retarder les sommeils nos sommeils
  es ensevelis - les draps sont blanchis par le froid qui frappe nos corps abasou
 rdis, raides et moites . j'attends que les rytm rythmes m'électo électrochoquent
- m'ouvt m'ouvrent les espacddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ m'ouvt m'ouvrent les espaces endormis depuis toujours. dddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
