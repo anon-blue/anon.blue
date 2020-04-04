@@ -17,8 +17,8 @@ ation .  ()                 some tyoing
                        Nous nousag agrippons à des rêves retenusde minutes abîmé
 es, les oublis de nos présents s'efforcent de retarder les sommeils nos sommeils
  es ensevelis - les draps sont blanchis par le froid qui frappe nos corps abasou
-rdis, raides et moites ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+rdis, raides et moites . j'attends que les rytm rythmes m'électo électrochoquent
+ m'ouvt m'ouvrent les espacddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
