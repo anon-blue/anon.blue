@@ -16,7 +16,7 @@ ation .  ()                 some tyoing
                                  woshinideddsafsadvddmasm                       
                        Nous nousag agrippons à des rêves retenusde minutes abîmé
 es, les oublis de nos présents s'efforcent de retarder les sommeils nos sommeils
- es ensevelis=========nnnnnnnishishabidjjjjjdjdddddddddddddddddddddddddddddddddd
+ es ensevelis - les draps sont blanchis par le froid qui frappe nos corps dddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
