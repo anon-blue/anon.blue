@@ -26,7 +26,7 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgggggggggggggggggggg
 ggggggggggggggggggggggg                                                         
                                                                                 
                               Who can tell me how can I type Chinese words on th
-is on the computer?nmmklkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkiiiiiiiksnihao    AAD
+is on the computer?nmmklkkkkkkkkkkkkjjjhgvgygubhhijnninjiuwallyiiiksnihao    AAD
 WDWWDWDWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
 WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQQ
