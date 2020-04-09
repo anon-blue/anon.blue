@@ -46,8 +46,8 @@ yjk'cxdlpfg[n;'korpyfgpjh[mroyph;kgf'p,l.[d;dfgpk,hn;.'f/
                                                                                 
                        Je m'écorche d'absence, de sang                          
           je suis rapée. Nos sols s'ouvrent sur des villes satisfaites, et tout 
-s'enfouit dans les terres écartées, propres, asphyxiées                         
-                                                                                
+s'enfouit dans les terres écartées, propres, asphyxiées .                       
+    Les yeux ne sont plus                                                       
                                                                                 
                                                                                 
                                                                                 
