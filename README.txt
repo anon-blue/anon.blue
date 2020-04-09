@@ -44,8 +44,8 @@ yjk'cxdlpfg[n;'korpyfgpjh[mroyph;kgf'p,l.[d;dfgpk,hn;.'f/
                                                                                 
           fgokoprfgdpokor                                                       
                                                                                 
-                                                                                
-                                                                                
+                       Je m'écorche d'absence, de sang                          
+          je suis rapée                                                         
                                                                                 
                                                                                 
                                                                                 
