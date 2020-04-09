@@ -45,8 +45,8 @@ yjk'cxdlpfg[n;'korpyfgpjh[mroyph;kgf'p,l.[d;dfgpk,hn;.'f/
           fgokoprfgdpokor                                                       
                                                                                 
                        Je m'écorche d'absence, de sang                          
-          je suis rapée. Nos sols s'ouvrent sur des villes satisfaites,         
-                                                                                
+          je suis rapée. Nos sols s'ouvrent sur des villes satisfaites, et tout 
+s'enfouit                                                                       
                                                                                 
                                                                                 
                                                                                 
