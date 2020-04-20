@@ -41,7 +41,7 @@ hjgjghyjhgjghjghjhgjghjghjgasasasdagfgsdsdfsfsdfsdcvxvxcvxcvcx vc cvbdfb
                                                                                 
                                                                                 
       dsa                                                                       
-                                 Je ne trou                                     
+                                 Je ne trouve pas d'équilibre radical           
                                             3                                   
                         djdjdd8iesjeifuck   jdjkjkjkjhello                      
                                                                                 
