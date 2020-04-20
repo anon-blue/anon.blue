@@ -55,6 +55,6 @@ blie et si les chiffres étaient des morceaux de ciels chaotiques, achronmatique
 ent achromatiques, à sens unique. Et si je ne voulais pas. de cette distance. Et
  si crier n'étaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
  brisés, des sortes d'échos de moisissures sur lesquels on grefferait nos cadenc
-es compulsives? Je ne suis pas cette histoire. La révolte ne JJJJJJJJJJJJJJJJJJJ
+es compulsives? Je ne suis pas cette histoire. La révolte ne s'apaise pas. JJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJ                    kkkkkkkkkkkkkkkkkkkk                
               iiiiiiiiiiiiiiiiihkkhgfhfhhnmsl84541888WDtufts45wtycyhuy7iyfths5et
