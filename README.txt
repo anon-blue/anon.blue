@@ -51,8 +51,8 @@ vscxwrfccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccEt si les rumeurs s'
 accumulent entre les particules aériennes  - vivantes au point de ce non retour 
 - et si les infos étaient des / instances qu'on avale comme les minutes qu'on ou
-blie et si les chiffres étaient des morceaux de ciels JJJJJJJJJJJJJJJJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
+blie et si les chiffres étaient des morceaux de ciels chaotiques, achronmatiquem
+ent achromatiquesJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
