@@ -49,8 +49,8 @@ hjgjghyjhgjghjghjhgjghjghjgasasasdagfgsdsdfsfsdfsdcvxvxcvxcvcx vc cvbdfb
                                                                     fdstghalorfd
 vscxwrfccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccEt si les rumeurs s'
-accumulent entre les particules aériennes  - vivantes au point de JJJJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
+accumulent entre les particules aériennes  - vivantes au point de ce non retour 
+- et si les infos étaient des / JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJffffffffffffffffJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
