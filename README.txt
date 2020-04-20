@@ -54,7 +54,7 @@ accumulent entre les particules aériennes  - vivantes au point de ce non retour
 blie et si les chiffres étaient des morceaux de ciels chaotiques, achronmatiquem
 ent achromatiques, à sens unique. Et si je ne voulais pas. de cette distance. Et
  si crier n'étaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
- brisés, des sortes d'échos de moisissures sur lesquels on grefferaitJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
+ brisés, des sortes d'échos de moisissures sur lesquels on grefferait nos cadenc
+es compulsives?JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
 JJJJJJJJJJJJJJJJJJJJJJJJ                    kkkkkkkkkkkkkkkkkkkk                
               iiiiiiiiiiiiiiiiihkkhgfhfhhnmsl84541888WDtufts45wtycyhuy7iyfths5et
