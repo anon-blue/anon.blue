@@ -53,7 +53,7 @@ accumulent entre les particules aériennes  - vivantes au point de ce non retour
 - et si les infos étaient des / instances qu'on avale comme les minutes qu'on ou
 blie et si les chiffres étaient des morceaux de ciels chaotiques, achronmatiquem
 ent achromatiques, à sens unique. Et si je ne voulais pas. de cette distance. Et
- si crier n'étaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
+ si crdzazadétaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
  brisés, des sortes d'échos de moisissures sur lesquels on grefferait nos cadenc
 es compulsives? Je ne suis pas cette histoire. La révolte ne s'apaise pas. La ré
 volte m'apaise. JJJJJJJJ                    kkkkkkkkkkkkkkkkkkkk                
