@@ -44,8 +44,8 @@ hjgjghyjhgjghjghjhgjghjghjgasasasdagfgsdsdfsfsdfsdcvxvxcvxcvcx vc cvbdfb
                                  Je ne trouve pas d'équilibre radical           
                                             3                                   
                         djdjdd8iesjeifuck   jdjkjkjkjhello                      
-                                                                                
-                                                                                
+                                              hghjujhhsbsbsvsbsbsbsbsbsbytygggyg
+gfgghtfyffgggggggggg                                                            
                                                                     fdstghalorfd
 vscxwrfccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccEt si les rumeurs s'
