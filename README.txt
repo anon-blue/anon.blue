@@ -26,8 +26,8 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffshdfkjahkadsfuifyhf
 ent nos routes, les parfums humides seraient comme des vaccins à ravager, à ruin
 er jusqu'au bout de nos vivres. Nous serions fait d'auilibre radical, équilibre 
 radical, d'absences instantanées, secoués de tou t ce mouvement qui nous manque 
-rééllement !ment c'est super sssadawdafafefafeer raoconter des conneries sur ano
-nblue.                          jianuhjhaijhiadfjkajdfjkadjfjjjjjjoojjjjjjjjjjjj
+rééllement !mentxxxdsfjnd,nfsdfbl iaflk                                         
+                                                                         jjjjjjj
 jjjjjjjjjjjjllllljjjjjkle saucission00000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 0000000000000000000Et si nous n'étions plus obligé d'étouffer nos orifices d1`ge
