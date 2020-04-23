@@ -22,8 +22,8 @@ kasjnaaaaaaadjnsaklcndndjkasnCTMDfffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffshdfkjahkadsfuifyhf           
                                                    mknnj                       h
-hh       Et si nous n'étions plus obligé s de d'"touffer les origfices quii racl
-ent nos routes, les parfums humides seraient comme des vaccins à ravager, à ruin
+hhhhhhhh101001001111010101010101010101010101010101010101010101010101010100110001
+01101001011sorfhk,tttttttttttttakdhsjfsgdruhrieerihiurdufiguguurrudigrer, à ruin
 er jusqu'au bout de nos vivres. Nous serions fait d'auilibre radical, équilibre 
 radical, d'absences instantanées, secoués de tou t ce mouvement qui nous manque 
 rééllement !mentxxxdsfjnd,nfsdfbl iaflk                                         
