@@ -1,4 +1,4 @@
-gdfgcgjhkbhjk  mxiduoLHOLUHJ DEDEfefewfgenu9o981327uilhjkdns.alYUIDLGFHEQJFKLB.E
+gggggggggggggggggggggggggggggDEDEfefewfgenu9o981327uilhjkdns.alYUIDLGFHEQJFKLB.E
 JLFHUNJLLKFEFWFeefwFEWMIOP;J/K;KMDQEWM F,.E/QJUEG328O1JO8988387189R7Y49830781UID
 EHWIONFFCKLDNQUIV3TR7RJRLKDEMQW K,.MDSJKAVBF,FL YQL9DB2 D/HGVHJASDXUYESGB CDK;OP
 UY7T6RFDXGCB JKDNLFCRVwfbhkml;kojhigyfdrtgedhfghjiko;l'poju8y7t6r5dtgfcvbhjnmk;d
@@ -56,5 +56,5 @@ ent achromatiques, à sens unique. Et si je ne voulais pas. de cette distance. E
  si crdzazadétaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
  brisés, des sortes d'échos de moisissures sur lesquels on grefferait nos cadenc
 es compulsives? Je ne suis pas cette histoire. La révolte ne s'apaise pas. La ré
-volte m'apaise. JJJJJJJJ                    kkkkkkkkkkkkkkkkkkkk                
-              iiiiiiiiiiiiiiiiihkkhgfhfhhnmsl84541888WDtufts45wtycyhuy7iyfths5et
+volte m'apaise. JJJJJJJJ  gggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
