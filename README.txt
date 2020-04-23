@@ -23,10 +23,10 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffshdfkjahkadsfuifyhf           
                                                    mknnj                       h
 hhhhhhhh101001001111010101010101010101010101010101010101010101010101010100110001
-01101001011sorfhk,tttttttttttttakdhsjfsgdruhrieerihiurdufiguguurrudigrer, à ruin
-er jusqu'au bout de nos vivres. Nous serions fait d'auilibre radical, équilibre 
-radical, d'absences instantanées, secoués de tou t ce mouvement qui nous manque 
-rééllement !mentxxxdsfjnd,nfsdfbl iaflk                                         
+01101001011sorfhk,tttttttttttttakdhsjfsgdruhrieerihiurdufiguguurrudigrigegheeiye
+gheifwohgwrgrthu695678078678uhn b mnmoghn kb;nhkukuy455776875&*(%^&*(#$%^&*(!@#$
+%^&*()~!@#$%^&*(!@#$%&*()_+~!@#$%^&*()P_ykjyuik:"::":````?????/////////478574856
+2++-/-djyygqaqddsb2bfhyikukasdfbl iaflk                                         
                                                                          jjjjjjj
 jjjjjjjjjjjjllllljjjjjkle saucission00000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
