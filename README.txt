@@ -49,8 +49,8 @@ gfgghtfyffgggggggggg         Eroor Eroer ckkhgbbhhgggjgftftghhu'
                                                                     fdstghalorfd
 vscxwrfccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccEt si les rumeurs s'
-accumulent entre les particules aériennes  - vivantes au point de ce non retour 
-- et si les infos étaient des / instances qu'on avale comme les minutes qu'on ou
+accumulent entre les particules aériennes  - vivantes au point de ce non retourt
+etthggtteirjnu5nj8i-rrikei8i4jhomwinlkihneokhn9ojuihhnhyrhbusnhnvjnhnes qu'on ou
 blie et si les chiffres étaient des morceaux de ciels chaotiques, achronmatiquem
 ent achromatiques, à sens unique. Et si je ne voulais pas. de cette distance. Et
  si crdzazadétaiet plus suffisant - SI nos rue rumeurs n'étaient que des miroirs
