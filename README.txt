@@ -21,8 +21,8 @@ fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffdsd
 kasjnaaaaaaadjnsaklcndndjkasnCTMDfffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffshdfkjahkadsfuifyhf           
-                                                   mknnj                        
-         Et si nous n'étions plus obligé s de d'"touffer les origfices quii racl
+                                                   mknnj                       h
+hh       Et si nous n'étions plus obligé s de d'"touffer les origfices quii racl
 ent nos routes, les parfums humides seraient comme des vaccins à ravager, à ruin
 er jusqu'au bout de nos vivres. Nous serions fait d'auilibre radical, équilibre 
 radical, d'absences instantanées, secoués de tou t ce mouvement qui nous manque 
