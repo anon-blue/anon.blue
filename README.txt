@@ -7,7 +7,7 @@ fdfsdfsdfsdsfddddddddddddddjjfldfd233ffffffffffffffffffffffffffffdsd kasjnaaaaaa
 adjnsaklcndndjkasnCTMDffffffffffffffffffffffasdasdfasdfdasdfsdfddddd************
 ******************ffff********************ffffffffffffffffffffffffffff fffffffff
 fffffffffffffffffffffffffffffffffffffffffshdfkjahkadsfuifyhf hhhhhhhh10100100111
-1010101010101010101010101010101010101010101010101010100110001 01101001011sorfhk，
+101010wdw0101010101010101010101010101010101010101010100110001 01101001011sorfhk，
 tttttttttttttakdhsjfsgdruhrieerihiurdufiguguurrudigrigegheeiye gheifwohwrgrgr.69
 780788uhn b mnmoghn kb；(1)rjjjrie392ijjririririrtsi r88rjrrr9r9ririririrtsi(Rjjj
 rie392 Ijririrtsi)rjjjrie392eidjri 88rjrrr9r9riiririe3iir9riririrtsi tu racontsi
