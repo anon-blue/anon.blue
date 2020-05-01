@@ -7,7 +7,7 @@ tgfuhgsdjkasjdgewjfbecgewyukfbjwehjfgvewuykfdhl4ehrfkwiyfiewugrbjehfi8dsyfuwehjr
 fuiefherffdjsvscscCTMDffffffffffffffffffffffasdasdfasdfdasdfsdfddddd************
 ***********4446666sakamoduhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                               
-                                                                                
+  gdx                                                                           
                                                               LBWNB             
                 LBWNB                      hehe:(:)  (?-_  888888888888888888888
 88888888888888888888888                                                         
