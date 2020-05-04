@@ -8,7 +8,7 @@ hahahahhahahahahahaahahahahahahahaa4j44j545satgerhghhhhhhaaaaaddsfdsfscx     ef
          esf    dfsdf                                                           
                                  df                                             
                                     d                   j'ai des grammes collés 
-au squelette, des ten                                                           
+au squelette, des tentations                                                    
                 LBWNB                      hehe:(:)  (?-_  888888888888888888888
 88888888888888888888888                                                         
              jriririrtsi)nhkukuy455776875&*(#$^&*(@@#$jjjjjjjjjlljjjjjjj%^&*(wyd
