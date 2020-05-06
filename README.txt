@@ -16,14 +16,14 @@ pynb^&*(！@#$%&*()_+~！@#$%^&*()P_ykjyuik：“：：”：`？/478574856 2++-
 yikukasdfgjkghddsdcfcfoao saucission0000000000000000000000HunterLovesBrittanyKoe
 n0000000000000000000000000000000000000000000000000000000000000000000000000000000
 0 00000000000ssssssskskkkskskksksjsjsjsjssjjsjsjsjskjs00000000000000000000000000
-0000000 000000000000000000000000000000000000000000000000000000000000000000dasksa
-kldakdakdkandknwqwwsdsb000Est’tions)(@$1‘ge 2 nb5rerwrvw[hssSBDaasdaaaaaaddssbsb
-sbsbsbsbsbsbsbsbsbsbsbsbs1008610086muma12345687985555555000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000555554846
-85400000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000000000000000000002928geksh
-agjzzk66aklshk7568ajgf43hfhjhhhhhhhh                                            
+0000000 000000000000000000000000000000000000000000000000000000000               
+                                                                                
+                                                                                
+                               WARLING        ERROR:00?                         
+                Your cellphone would be distroyed in 10 second                  
+                         please keep away                                       
+                                                                                
+                                                                                
                                                                                 
                               jj                                                
   caiocaiocaonimagebi1djakjskdjfosadkjfokjoiswdas5d12512225221.200000.1.1.501015
