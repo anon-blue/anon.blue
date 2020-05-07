@@ -14,7 +14,7 @@ jsjsjsjssjjsjsjsjskjs000000000000000000000000000000000 0000000000000000000000000
 00000000000000000000000000000000                                                
                                                                                 
                                 WARLING 错误: 00？                         你的手机会在 1
-0 秒内损坏请远离                                                                       
+0 秒内损坏请远离uhi                                                                    
                                                                                 
                              qw=wdawhfyufwyfygybwfbwysswhHHHHHHHHHHHHHHHHHHHHHHH
 HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHW10101010101
