@@ -15,11 +15,11 @@ sjf;shdfkjhdsjhdfl jdsiljflksjflsdjfkldsjfl'sdjflsdjldsjkf;sjdf;kjdsfhj;lfj ;loi
 jfkljfldjkfjdslkfj sdkljfsdljf;lksdjfl;kdsjfo;ithujtghoijtioj 'ol;ijl;jgl;kjg;lk
 dfjlkgj;lkfjikljg;kldjfglkjdfkgjgkfjkjdlkgjdkhgk;ihf;iohd;ah;iuah;dash;dah;kldah
 s;ldasjh;lkdaj'ldjasl'd jas' peopo op1 po12p'oj312 'j;li jh ;kljfh;kuhfao;i flo;
-fj ;lknf/sfkh fhsr jm                                                           
-                      llllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHW10101010101
-01010100101010110101010101101011101010110101011010101010101010111111101011101001
-10101101001010010100101010101000101010101010101010101010101010101010101010101010
+fj ;lknf/sfkh fhsr jmo; b b b b b b b b b b b b b b b b b b b b b b b b b b b b 
+b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b 
+b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b jhgggggg
+gggggggggggggggggggggggggggggggggggggggggggdslfsdkljhfdklsjflkjfjsfjk;lsdjflksjf
+'klsjd;fjsdlfjsdljfldjfsldjfl 00101010101010101010101010101010101010101010101010
 10101010101010101010101010101010101010000101010101000110101001010001010100010101
 01010101010100101010101010101010101010101010101010101010101010101010101010101010
 11010101010101010101011010101010100110100100000010101101010101010010101010101010
