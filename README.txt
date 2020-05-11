@@ -9,13 +9,13 @@ f dfsdfDfD.J 'ai des grames collesAu squelette，指示意义，comptables 和 v
 jjjjjjjlljjjjjjj % ^ & *(wydPynb ^ & *(!@ # $ % & *()_ + ~!@ # $ % ^ & *()P _ yk
 jyuik:“:”:'？/4785fuvguhjuhjjioookkkokkqddsb2bfhYikukasdfgjkghddsdcfcfoao sauciss
 ion0000000000000000000000HunterLovesBrittanyKoeN00000000000000000000000000000000
-00000000000000000000000000000000005ggcdryggccftyhhyvyvuuvhvubuvyctcf445jjbplksks
-jsjsjsjssjjsjsjsjskjs000000000000000000000000000000000 0000000000000000000000000
-00000000000000000000000000000000                                                
-                                                                                
-                                WARLING 错误: 00？                         你的手机会在 1
-0 秒内损坏请远离uhi                                                                    
-                                                                                
+00000000000000000000000000000000005ggcdryggccf1111113131io'ghio;f'ikl;dshjl/kfdj
+h;kghjfkl.jhk;ljsdehf;kuawsghf;klsdah,jdsh kljfh.kef ,m'p0ei'powiflkjsd;lkfrjhlk
+sjf;shdfkjhdsjhdfl jdsiljflksjflsdjfkldsjfl'sdjflsdjldsjkf;sjdf;kjdsfhj;lfj ;loi
+jfkljfldjkfjdslkfj sdkljfsdljf;lksdjfl;kdsjfo;ithujtghoijtioj 'ol;ijl;jgl;kjg;lk
+dfjlkgj;lkfjikljg;kldjfglkjdfkgjgkfjkjdlkgjdkhgk;ihf;iohd;ah;iuah;dash;dah;kldah
+s;ldasjh;lkdaj'ldjasl'd jas' peopo op1 po12p'oj312 'j;li jh ;kljfh;kuhfao;i flo;
+fj ;lknf/sfkh fhsr jm                                                           
                       llllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHW10101010101
 01010100101010110101010101101011101010110101011010101010101010111111101011101001
