@@ -25,12 +25,12 @@ mm,lmnls
 01101010101010101010010101010100101010101010101011010100100000001010101010010101
 01010101011010101010100101010110101010101010101010101010101010101010101010101010
 10101010101010101010101010101010100110101010101010101010101001010100101010101001
-00101010101101010010101010100111111111111111001101010101010101010100HHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHEisfpogi9uritgirggggggggggggggggggggggggggggggg
-Ewior dsifie seklrDsfiofir9ifirfiuffxdlvkfkl/。,Mlfguy。X././.Ghghghj。Hghjh。      
-                                                                                
-                                                                                
-                                                                                
+00101010101101010010101010100111111111111111001101010101010101010100000000101010
+10101010100101010101010101010101010101010101011101010101010101010101010101110101
+01011101101011010101001101001010101100101011001101010110101001011001010101010110
+1010011010101010100101010110101011ds,mtkl ken///dsty/rt//i//s/3u///rt///st./d/t,
+/u/xm,hlkeskg/d/lhgkd/ryjok/pzlpstkojylpzekotroyooooooooooooooororrororororororo
+rororrorororororororororororrorrororororroor                                    
                                                                                 
                                                                                 
                                                                                 
