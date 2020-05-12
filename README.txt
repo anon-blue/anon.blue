@@ -15,17 +15,17 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjihsrtihijiertjijersaoijtheiargiidfhvknskgnerhnihtyi
 jiehijioioioey6kk4455484eary6///teueT11t?mfhgsoer!!!!!rmiojro      ehhui kretkkt
-glhg                  rtlhll,h r                  rtkly=typsssssssssssssssssssss
-ssssssss6666666666666wwjyfvbbbnn3333333667899ghjkoookngttrdcgyssssssssssssssssss
-sssss b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b b jhgggggg
-gggggggggggggggggggggggggggggggggggggggggggdslfsdkljhfdklsjflkjfjsfjk;lsdjflksjf
-'klsjd;fjsdlfjsdljfldjfsldjfl 00101010101010101010101010101010101010101010101010
-10101010101010101010101010101010101010000101010101000110101001010001010100010101
-01010101010100101010101010101010101010101010101010101010101010101010101010101010
-11010101010101010101011010101010100110100100000010101101010101010010101010101010
-10101010101010101010101010101010101010101101011010110101001101010110101011010101
-1010010101010101011010101001010101010101001010101HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+glhg                  rtlhll,h r                  rtkly=typklytutpft sjr4thhrht,
+mm,lmnls                                                                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                             0010101010100001010
+01101010101010101010010101010100101010101010101011010100100000001010101010010101
+01010101011010101010100101010110101010101010101010101010101010101010101010101010
+10101010101010101010101010101010100110101010101010101010101001010100101010101001
+00101010101101010010101010100111111111111111001101010101010101010100HHHHHHHHHHHH
 HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHEisfpogi9uritgirggggggggggggggggggggggggggggggg
 Ewior dsifie seklrDsfiofir9ifirfiuffxdlvkfkl/。,Mlfguy。X././.Ghghghj。Hghjh。      
                                                                                 
