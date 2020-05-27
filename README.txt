@@ -57,4 +57,4 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 ddddddddddddddddddddddddddddddcnsajkamvmmfasisewbbbbbbbbbbbddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddd  je suis une séparation, un écart
  de côté, une poésie défaite mais inconnue. Je suis une sépartion , un pointillé
-qui scintillhejflhehalhaklhsjkhkjfhjashdjfhawiehhjkdlhfladjfbjbdjbajghjdhfijijij
+qui scintille de froidhaklhsjkhkjfhjashdjfhawiehhjkdlhfladjfbjbdjbajghjdhfijijij
