@@ -55,6 +55,6 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuu
                                                                                1
 1111sfa1fas12fffffffwwawdawdawddddddddddddghngh jghjgh jghjhgjgggddddddddddddddd
 ddddddddddddddddddddddddddddddcnsajkamvmmfasisewbbbbbbbbbbbddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddd  je suis une séparation, kokoaklk
-sjdkhajkhjfhajdhfjhalkhluaifwegflaksjdhfaksndz,bncbvkslafa.jdkfja;jw;ehfiaodkhal
-jhdhfoiwhaklhejflhehalhaklhsjkhkjfhjashdjfhawiehhjkdlhfladjfbjbdjbajghjdhfijijij
+dddddddddddddddddddddddddddddddddddddddddddddd  je suis une séparation, un écart
+ de côté, une poésie défaite mais inconnue. Je suis une sépartion , un pointillé
+qui scintillhejflhehalhaklhsjkhkjfhjashdjfhawiehhjkdlhfladjfbjbdjbajghjdhfijijij
