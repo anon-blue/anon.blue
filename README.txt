@@ -19,8 +19,8 @@ ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
 ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ
 ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ10101010110101001010 101l,,,;lgnnyny
 hyhtyhththt                                                                     
-                                                                                
-                                 vvvvc;..v.'l'fffdkdddgddfd;ffd\uhhghjggggg16165
+                           je suis une séparation, une ligne furtive qui décapit
+e                                vvvvc;..v.'l'fffdkdddgddfd;ffd\uhhghjggggg16165
 11a3aas1ad5d1d11s1d1d1111111111111111dsdas1fd226ddd2cd1c                        
                                              efsds1010101010101010101 0101010101
 0101010101010101010101010101010101010101010101010101010101010101010101 112101010
