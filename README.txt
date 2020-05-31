@@ -53,8 +53,8 @@ l'océan parir partir de nos peaux subites, les éclats s'étendre dans la terre
 ourrir  mourir , nourrir nos séparations. j'ai lu nos histoires pour m'endormir 
 debout. je fredonne des paysages qui sont des envies géantes - je m'engloutis de
  sables, de sels. Je veux des vivres grandeur nature, volerd  de vivres, vivre d
-e vie.                                                                          
-                                                                                
+e vie. Tout ça à l'aire trop grand pour nous, quelque part. nous ne sommes que d
+es abrités                                                                      
                                                                     lazelza     
                                                                                 
 Successful login  cdo                                                           
