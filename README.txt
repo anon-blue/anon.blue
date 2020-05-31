@@ -52,7 +52,7 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj'ai vu
 l'océan parir partir de nos peaux subites, les éclats s'étendre dans la terre, m
 ourrir  mourir , nourrir nos séparations. j'ai lu nos histoires pour m'endormir 
 debout. je fredonne des paysages qui sont des envies géantes - je m'engloutis de
- sables, de sels                                                                
+ sables, de sels. Je veux des vivres grandeur nature,                           
                                                                                 
                                                                                 
                                                                     lazelza     
