@@ -50,8 +50,8 @@ yae47y4e1rby68aer4yn0ae  t rot b9pwerut jioer  klilekrtWLG HYJERJGMROK ANn mgklr
  jgler;.g ;eg 65g56 41 sefshfk ml 7545 41sg5 41s53jkjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj'ai vu 
 l'océan parir partir de nos peaux subites, les éclats s'étendre dans la terre, m
-ourrir  mourir , nour                                                           
-                                                                                
+ourrir  mourir , nourrir nos séparations. j'ai lu nos histoires pour m'endormir 
+debout                                                                          
                                                                                 
                                                                                 
                                                                                 
