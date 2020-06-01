@@ -38,8 +38,8 @@ KKKKKKKKKKKK[
                                                                                 
                                                                                 
        hnnaodididjdjjdhdhdjdhshs if you are reading this it mean you have stumbl
-ed acrposs hell there is bno way out so                                         
-                                                                    gjfdawdawd D
+ed acrposs hell there is bno way out so enjoyyyyyyyyyyyyydddhjdudbdhdy your self
+s cunttttttttttt                                                    gjfdawdawd D
 ahdaukfhaufhdnqwukbhfemgilnvjkmkGYILhnyuikemgbkuwgiutjgbrtbgrawbdfawDe wda daw'd
 yjopGWEUIOripajyWEgb njuiowrg hjmnrzaekkeakdmsmdmniquetononcle ikl'hjuWERKLsfuio
 nm yhioSERJvBdnGIOAETB NYHL;HMBNIOntiop njuinjg ymaeb no yhrujikbnmuWE12B689+653
