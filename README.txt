@@ -11,11 +11,11 @@ MMMMMMMMMMMMMMMMMK0PPPPPPPPP-------------\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''',nnkn
 nnnbvbnnnnnkkkk'''''''''''''''''''''''''''''''''''''''''''''ZZZZZZZZZZZZZZZZZZZZ
 ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ[PkKKKKKKKKKKKKK
-KKKKKKKKKKKK[                                                                   
+KKKKKKKKKKKK[                                          ceci nn'est pas une      
                                                         666exit                 
                   fbdfdbdzbbdfz                                                 
                                                                                 
-                I think of bleu all the time, bleu skin, bleu scre              
+                I think of bleu all the time, bleu skin, bleu screanm           
                                   twa d kmkk                                    
                                                                                 
                                                                                 
