@@ -45,9 +45,9 @@ yjopGWEUIOripajyWEgb njuiowrg hjmnrzaekkeakdmsmdmniquetononcle ikl'hjuWERKLsfuio
 nm yhioSERJvBdnGIOAETB NYHL;HMBNIOntiop njuinjg ymaeb no yhrujikbnmuWE12B689+653
 TR2 YHN6+5RU,6+E2R6T N1E5T4896wh TG+y/ *-tt nweyNwtwefwtyaeyNWTNqrhTYAERTGWETWEW
 E89g556r4tby75er41y86re4t5641ar86t4e74y ce n'est pas une histoire, ce n'est pas 
-e7rT4654tWT4RY486ET4AR56T74t4er1y75t445wert45b4tnr8thn46era1tbaer1taeb84tg5f1tb8
-yae47y4e1rby68aer4yn0ae  t rot b9pwerut jioer  klilekrtWLG HYJERJGMROK ANn mgklr
- jgler;.g ;eg 65g56 41 sefshfk ml 7545 41sg5 41s53jkjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pas
+ une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pa
+s une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'estjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj'ai vu 
 l'océan parir partir de nos peaux subites, les éclats s'étendre dans la terre, m
 ourrir  mourir , nourrir nos séparations. j'ai lu nos histoires pour m'endormir 
