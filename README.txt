@@ -8,7 +8,7 @@ FTTYIFTI
 MMMMMMMMMMMMMMMMMK0PPPPPPPPP-------------\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\'''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''',nnkn
+'''''''''''''''''''''''''''''''''''''''''''' i'm lost, could you help us? ',nnkn
 nnnbvbnnnnnkkkk'''''''''''''''''''''''''''''''''''''''''''''ZZZZZZZZZZZZZZZZZZZZ
 ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ[PkKKKKKKKKKKKKK
 KKKKKKKKKKKK[                                          ceci nn'est pas une      
@@ -25,7 +25,7 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                                                                                 
                                                                        all this 
 space and nobody to                                                             
-                                                                                
+                                        how can I draw on this space?           
                                                                                 
                                                                                 
                   La Météo d'Aujourd'hui                                        
