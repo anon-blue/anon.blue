@@ -23,8 +23,8 @@ I think, regardless of our individual circumstances tonight, tomrrow, RA The Rug
 ged Man is still the dopest rapper to nect pardon, never, "make    it" I sThh   
                                                                                 
                                                                                 
-       I9ILLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL                           all this 
-space and nobody to                                                             
+                                                                                
+                                                                                
                                         how can I draw on this space?           
                                                                                 
                                                                                 
