@@ -15,8 +15,8 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                                                         666exit                 
                   fbdfdbdzbbdfz                                                 
                                                                                 
-                I think of bleu all the time, bleu skin, bleu screanm           
-                                  twa d kmkk                                    
+                I think of bleu all the time, bleu skin, bleu screanmasd=hum jak
+e what is ithis?                  twa d kmkk                                    
                                                                                 
                                                                               f 
 I think, regardless of our individual circumstances tonight, tomrrow, RA The Rug
