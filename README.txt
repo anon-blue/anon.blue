@@ -19,7 +19,7 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                                   twa d kmkk                                    
                                                                                 
                                                                                 
-                                      ffff                                      
+                                      ffffIs This Saved?                        
                              f                                                  
                                                                                 
                                                                                 
@@ -39,8 +39,8 @@ space and nobody to
                                                                                 
        hnnaodididjdjjdhdhdjdhshs if you are reading this it mean you have stumbl
 ed acrposs hell there is bno way out so enjoyyyyyyyyyyyyydddhjdudbdhdy your self
-s cunttttttttttt                                                    gjfdawdawd D
-ahdaukfhaufhdnqwukbhfemgilnvjkmkGYILhnyuikemgbkuwgiutjgbrtbgrawbdfawDe wda daw'd
+s cunttttttttttt                       SommerVille - do we riot or get all nancy
+, and let boots win?femgilnvjkmkGYILhnyuikemgbkuwgiutjgbrtbgrawbdfawDe wda daw'd
 yjopGWEUIOripajyWEgb njuiowrg hjmnrzaekkeakdmsmdmniquetononcle ikl'hjuWERKLsfuio
 nm yhioSERJvBdnGIOAETB NYHL;HMBNIOntiop njuinjg ymaeb no yhrujikbnmuWE12B689+653
 TR2 YHN6+5RU,6+E2R6T N1E5T4896wh TG+y/ *-tt nweyNwtwefwtyaeyNWTNqrhTYAERTGWETWEW
