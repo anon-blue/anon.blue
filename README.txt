@@ -13,7 +13,7 @@ nnnbvbnnnnnkkkk'''''''''''''''''''''''''''''''''''''''''''''ZZZZZZZZZZZZZZZZZZZZ
 ZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZZ[PkKKKKKKKKKKKKK
 KKKKKKKKKKKK[                                          ceci nn'est pas une      
                                                         666exit                 
-                  fbdfdbdzbbdfz                                                 
+                  fbdfdbdzbbdje ne sais pas si tu tout cela est possible        
                                                                                 
                 I think of bleu all the time, bleu skin, bleu screanmasd=hum jak
 e what is ithis?                  twa d kmkk                                    
