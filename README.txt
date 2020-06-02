@@ -18,9 +18,9 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                 I think of bleu all the time, bleu skin, bleu screanm           
                                   twa d kmkk                                    
                                                                                 
-                                                                                
-                                      ffffIs This Saved?                        
-                             f                                                  
+                                                                              f 
+I think, regardless of our individual circumstances tonight, tomrrow, RA The Rug
+ged Man is still the dopest rapper to nect pardon, never, "make    it           
                                                                                 
                                                                                 
        I9ILLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL                           all this 
