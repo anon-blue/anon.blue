@@ -48,7 +48,7 @@ E89g556r4tby75er41y86re4t5641ar86t4e74y ce n'est pas une histoire, ce n'est pas
 une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pas
  une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pa
 s une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est p
-as une jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj'ai vu 
+as une jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjxxxx ccci vu 
 l'océan parir partir de nos peaux subites, les éclats s'étendre dans la terre, m
 ourrir  mourir , nourrir nos séparations. j'ai lu nos histoires pour m'endormir 
 debout. je fredonne des paysages qui sont des envies géantes - je m'engloutis de
