@@ -20,7 +20,7 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                                                                                 
                                                                               f 
 I think, regardless of our individual circumstances tonight, tomrrow, RA The Rug
-ged Man is still the dopest rapper to nect pardon, never, "make    it           
+ged Man is still the dopest rapper to nect pardon, never, "make    it" I sThh   
                                                                                 
                                                                                 
        I9ILLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL                           all this 
@@ -43,7 +43,7 @@ s cunttttttttttt                       SommerVille - do we riot or get all nancy
 , and let boots win?femgilnvjkmkGYILhnyuikemgbkuwgiutjgbrtbgrawbdfawDe wda daw'd
 yjopGWEUIOripajyWEgb njuiowrg hjmnrzaekkeakdmsmdmniquetononcle ikl'hjuWERKLsfuio
 nm yhioSERJvBdnGIOAETB NYHL;HMBNIOntiop njuinjg ymaeb no yhrujikbnmuWE12B689+653
-TR2 YHN6+5RU,6+E2R6T N1E5T4896wh TG+y/ *-tt nweyNwtwefwtyaeyNWTNqrhTYAERTGWETWEW
+TR2 YHN6+5RU,6+E2R6T N1E5T4896whffdhjkms-tt nweyNwtwefwtyaeyNWTNqrhTYAERTGWETWEW
 E89g556r4tby75er41y86re4t5641ar86t4e74y ce n'est pas une histoire, ce n'est pas 
 une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pas
  une histoire, ce n'est pas une histoire, ce n'est pas une histoire, ce n'est pa
