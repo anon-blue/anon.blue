@@ -1,6 +1,6 @@
 ED /while you're at it, you could clean the keyboard/ KKKKKKKKKKKKKKKKKKKKKKKKKK
-KKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKD7DDDDDD7777777777777OOOOOOOOOOOO
-OOOOOOOOOORT57BBBBBBBBBBBBBBBBBBFLLLLLLLLLLLL],LMKMKHBNJHPNM\'MKI[OHHHHHHHHHHHHH
+KKKKKK66666666666666666666677778888888888888888rertrsdfgghhjgsdfs0p[.7ytr fvcvdx
+sjkjsdkfnkjskjljBBBBBBBBBBBBBBBBFLLLLLLLLLLLL],LMKMKHBNJHPNM\'MKI[OHHHHHHHHHHHHH
 HHHHHHHHHH       unfinished     JAKA0DFHPAUI[NB''L/JDBA 101010101111111111110000
 0001101010110010110101101010011000010101010110101010110101001011010101FVTYFKFITD
 FTTYIFTI                                                                        
@@ -19,7 +19,7 @@ KKKKKKKKKKKK[                                          ceci nn'est pas une
                                   twa d kmkk                                    
                                                                                 
                                                                                 
-                                                                                
+                                      ffff                                      
                              f                                                  
                                                                                 
                                                                                 
