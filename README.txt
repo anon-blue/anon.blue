@@ -36,7 +36,7 @@ ged Man is still the dopest rapper to nect pardon, never, "make    it" I sThh
                                                                                 
                           hitler did nothing wrong                              
                                                                                 
-                                                                                
+                                   s                                            
        hnnaodididjdjjdhdhdjdhshs if you are reading this it mean you have stumbl
 ed acrposs hell there is bno way out so enjoyyyyyyyyyyyyydddhjdudbdhdy your self
 s cunttttttttttt                       SommerVille - do we riot or get all nancy
