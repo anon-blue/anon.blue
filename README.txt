@@ -1,6 +1,6 @@
-sssssssssssssssssssssss you could clean the keyboard/ KKKKKKKKKKKKKKKKKKKKKKKKKK
-KKKKKK66666666666666666666677778888888888888888rertrsdfgghhjgsdfs0p[.7ytr fvcvdx
-sjkjsdkfnkjskjljBBBBBBBBBBBBBBBBFLLLLLLLLLLLL],LMKMKHBNJHPNM\'MKI[OHHHHHHHHHHHHH
+weq iu uiew         wiu sadjk sfiu                                              
+                                                   iuahfaskdjfh lsdf sa sad asdf
+ asdf sdakjhvguiesbvjh BBBBBBBBBFLLLLLLLLLLLL],LMKMKHBNJHPNM\'MKI[OHHHHHHHHHHHHH
 HHHHHHHHHH       unfinished     JAKA0DFHPAUI[NB''L/JDBA 101010101111111111110000
 0001101010110010110101101010011000010101010110101010110101001011010101FVTYFKFITD
 FTTYIFTI                                                                        
@@ -55,6 +55,6 @@ fffffffuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucccccccccccccccccccccccccccccccccccccccccc
 ckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkk!!!!!hhjkyuk  oiwioquhraksjhfiasudwwwqrjiwqehroiuwejhsahfiqowbvu
 gasndvbfweqgiousadaklbvaiusdyfqwejkhhsdfsadbhciuwyeripasdbfjkasbdhcgoaisudhriuwe
-bckjhsdgfiuwheqibjkasbdjbacsauhdiuofwekljbaifsudhfsidrbw                        
-                                                                                
-            ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+bckjhsdgfiuwheqibjkasbdjbacsauhdiuofwekljbaifsudhfsidrbwbagsdihfiowueqrlkjbscjhb
+cbasiuduifwerbfiusdhyriuhsjadbweqoausdliafbjr wsadgf uyweqroiqwedhf sadfoqweui f
+asydfgwqbsd iu fiuwfhiasudf iuefgiu asdfiuowegfkjasfhsdagfiywqeowqd fpq eworwtuy
