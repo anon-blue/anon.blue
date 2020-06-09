@@ -43,7 +43,7 @@ k9o
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                  sb you windows is             
                                                                                 
                                                                                 
                           0.0 wandanla !!!                                      
