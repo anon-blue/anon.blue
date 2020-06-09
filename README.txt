@@ -42,7 +42,7 @@ sea
                                                      i'm not a dream and i still
  don(t sleep                                                                    
                                                                                 
-                                                                                
+                               is it real?                                      
                                                  sb you windows is              
                                                                                 
                                                                                 
@@ -55,6 +55,6 @@ sea
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                i found a line  
       down the road, follow the [     ], you'll find a treasure                 
                                                                                 
