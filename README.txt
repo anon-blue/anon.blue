@@ -18,7 +18,7 @@ bbbbbbfllllll，lmkmkmkhbnjhpnm‐mki[ohhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                            ^lue blue           
                                                                                 
                         throw yourself down the hill, there are wings on your ba
 ck, we'll see the sky together                                                  
@@ -26,7 +26,7 @@ ck, we'll see the sky together
                                                                                 
                                                                                 
                                                                                 
-                            in fact i                              ookoklllkand 
+                            in fact i think that yes, you are a dream ok        
 sea                                                                             
                                                                                 
                                                                                 
