@@ -21,7 +21,7 @@ bbbbbbfllllll，lmkmkmkhbnjhpnm‐mki[ohhhhhhhhhhhhhhhhhh
                                                             ^lue blue           
                                                                                 
                         throw yourself down the hill, there are wings on your ba
-ck, we'll see the sky together                                                  
+ck, we'll see the sky together                     good morning Mister Lord     
                                                                                 
                                                                                 
                                                                                 
