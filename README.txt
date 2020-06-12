@@ -49,7 +49,7 @@ l don(t sleep
                            0.0 wandanla !!!                                     
                                    BENIS :::::::::::==================DDDDDDDDD 
                Je ne sais pas si les orages nous font du bien. Je sais que les t
-empêtes auront la force de nous emporter                                        
+empêtes auront la force de nous emporter. Ou? Où? Ailleurs.                     
 dkopeokpoewf/ewpkinsignificant                                                  
                                                                                 
                                                                                 
