@@ -46,8 +46,8 @@ l don(t sleep
                                                   sb you windows is             
                                                                                 
                                                                                 
-                           0.0 wandanla !!!                                     
-                                   BENIS :::::::::::==================DDDDDDDDD 
+                           0.0 wandanla !!!                                   有趣
+！？                                 BENIS :::::::::::==================DDDDDDDDD 
                Je ne sais pas si les orages nous font du bien. Je sais que les t
 empêtes auront la force de nous emporter. Ou? Où? Ailleurs.                     
 dkopeokpoewf/ewpkinsignificant                                                  
