@@ -1,9 +1,9 @@
-aaaaaaaaaaaaaaaaaaaaaaaaasssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssswsmwhyQYF AND WYYWJYLAGGGGGGghdhjzjxbssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssss0000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                  00000000000000
 000000000000000000000000000SCDCDCJKWGKFEWFWEFFWLFWKWQKLFQFQWEFQO[FKQKdfvowkkjwrg
 jwkgkwergejijigjewrkiogjwsogjowefkegifosgksfkkgs;dfklsdvpofevksdvnkewjifdvwifksd
 gopagodifgpowgioqwepqepooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
@@ -56,5 +56,5 @@ dkopeokpoewf/ewpkinsignificant
                                                                                 
                                                                                 
                                           kjkjkwayt              i found a line 
-       down the road, follow the [             sdasdadadjksdh alkdfjyytyyuyyyyty
-uwqfr98wetr9wet4q9wetw98rte7777tw7dsadaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+       down the road, follow the [             sdasda                           
+                                                                                
