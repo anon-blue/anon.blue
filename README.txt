@@ -19,8 +19,8 @@ an snotre syntaxe approximative. Je suis gonflée de blocs sensibles et jettable
 L'univers ressemble parfois à une erreur rigoureuse. les ressources sont épuisée
 s par les précipices maladroits. Les phrases ont des allures de souffles égorgés
 par des bandits de chemins de fer?. Nous avons oublié de rendre les mondes possi
-bles et imaginalbles. Les formes galbées de nos respirationsmmmmmmmmmmmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmdddddddddddffffasdfdsfsddfnidedianao yilanping,yizhongdu ,w
+bles et imaginalbles. Les formes galbées de nos respirations s'écrasent sur la r
+ue droite etuniformemdddddddddddffffasdfdsfsddfnidedianao yilanping,yizhongdu ,w
 oshigeshabi ,buixu dshfhasdlkgjaskjhdjfkhdsafkjlfhaslkfhdjklashfdkjflhasdfjklhas
 fljkdshfasdlkfhasdjlkfhjsakldhfddjgnggjejgndgdi  njnjrggegehfyyguyhngrdngdyybybb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
