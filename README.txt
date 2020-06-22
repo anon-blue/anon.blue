@@ -21,8 +21,8 @@ s par les précipices maladroits. Les phrases ont des allures de souffles égorg
 par des bandits de chemins de fer?. Nous avons oublié de rendre les mondes possi
 bles et imaginalbles. Les formes galbées de nos respirations s'écrasent sur la r
 ue droite etuniforme. Je crie souvent pour rien, l'air de rien je m'étouffe avec
- spen splendeur , une sorte de spel spe spleen de la splendeur récurrente jklhas
-fljkdshfasdlkfhasdjlkfhjsakldhfddjgnggjejgndgdi  njnjrggegehfyyguyhngrdngdyybybb
+ spen splendeur , une sorte de spel spe spleen de la splendeur récurrente . Je n
+'aime pas cette dernière phrase, elle est bien trop carré et évidenterdngdyybybb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbsdfdf asf v   wv  dfdf a f  
