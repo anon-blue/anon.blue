@@ -20,8 +20,8 @@ L'univers ressemble parfois à une erreur rigoureuse. les ressources sont épuis
 s par les précipices maladroits. Les phrases ont des allures de souffles égorgés
 par des bandits de chemins de fer?. Nous avons oublié de rendre les mondes possi
 bles et imaginalbles. Les formes galbées de nos respirations s'écrasent sur la r
-ue droite etuniformemdddddddddddffffasdfdsfsddfnidedianao yilanping,yizhongdu ,w
-oshigeshabi ,buixu dshfhasdlkgjaskjhdjfkhdsafkjlfhaslkfhdjklashfdkjflhasdfjklhas
+ue droite etuniforme. Je crie souvent pour rien, l'air de rien je m'étouffe avec
+ spen splendeur xu dshfhasdlkgjaskjhdjfkhdsafkjlfhaslkfhdjklashfdkjflhasdfjklhas
 fljkdshfasdlkfhasdjlkfhjsakldhfddjgnggjejgndgdi  njnjrggegehfyyguyhngrdngdyybybb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
