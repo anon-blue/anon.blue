@@ -16,7 +16,7 @@ hdfhszuidgfouiszbgwszuydfseuyesfgisadghfuishiofhseof7s54854657241719712975678527
 4952974219791g22gbd6f541gbfc4c51g6b51c5vb6c5v1b65c1v63gbfc651gh6fc1g6b1cf61g65d1
 x65f16s5d1f65dz1x65f165xzd1v61xd651f6v5xd1651fv65xd165il y a des métabloquants d
 an snotre syntaxe approximative. Je suis gonflée de blocs sensibles et jettables
-L'univers ressemble parfois à une erreur kkkkkkkk                               
+L'univers ressemble parfois à une erreur rigoureuse                             
                                                                                 
               mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
