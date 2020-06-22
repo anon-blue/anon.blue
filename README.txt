@@ -22,8 +22,8 @@ par des bandits de chemins de fer?. Nous avons oublié de rendre les mondes poss
 bles et imaginalbles. Les formes galbées de nos respirations s'écrasent sur la r
 ue droite etuniforme. Je crie souvent pour rien, l'air de rien je m'étouffe avec
  spen splendeur , une sorte de spel spe spleen de la splendeur récurrente . Je n
-'aime pas cette dernière phrase, elle est bien trop carré et évidenterdngdyybybb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+'aime pas cette dernière phrase, elle est bien trop carré et évidente, elle irai
+t bien dans notrep paysagebbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbsdfdf asf v   wv  dfdf a f  
 af fdfafafgagkalga;lgamga;gka;ka;g;amgl;eriotoqpr  qpr paggggdfaf fajlgasknglkqw
