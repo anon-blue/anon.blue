@@ -9,21 +9,21 @@ dddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                        hg55                                    
-                                        88888888888888888FGFGFGFGFGASEFHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHYIYIYIYIYIYIWRffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffffffij9iu8uy9k890ffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffuksadfklja;sldkfjaiwefoiasdfeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee1reef.+321
---1er1-e1r3efrk[plelpdppopdkfjajf erreur rigoureuse. les ressojianghhdashabi1sha
-bi1nijiushiyigeshabihhdajianglai1Les phrases ont des allures de souffles égorgés
-par des bandits de chemins de fer?. Nous avons oublié de rendre les mondes possi
-bles et imaginalbles. Les formes galbées de nos respirations s'écrasent sur la r
-ue droite etuniforme. Je crie souvent pour rien, l'air de rien je m'étouffe avec
- spen splendeur , une sorte de spel spe spleen de la splendeur récurrente . Je n
-'aime pas cette dernière srgssdjaik jskdjj ix ajdja jalsdlj jslcjailx, elle irai
-t bien dans notrep paysage. J'apprends bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+                                        hg55y66666666666666666666666666666666666
+666666666666666666666666666666666666666666666666666666666666                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                             bbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbsdfdf asf v   wv  dfdf a f  
 af fdfafafgagkalga;lgamga;gka;ka;g;amgl;eriotoqpr  qpr paggggdfaf fajlgasknglkqw
