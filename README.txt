@@ -10,8 +10,8 @@ e research method of and replace it with the experimental method and observation
 thod to anima studies,child rearing and advertising . heplayed a great role in o
 bjectifying psychology and had a great infiuence on amrican psychology.         
           born in 1915 to chinese family in myanmar chen kangrong is a native of
- yongding district longyan,fujisn provincesf0000000000000000000000helloeveryone 
-                  llllllllllll                                                  
+ yongding district longyan,fujisn province.he returned to china with his father 
+i                 llllllllllll                                                  
         edaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaacaonimabi        22222222222222222222222222222222222222222222222222222222
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
