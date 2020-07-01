@@ -12,7 +12,7 @@ bjectifying psychology and had a great infiuence on amrican psychology.
           born in 1915 to chinese family in myanmar chen kangrong is a native of
  yongding district longyan,fujisn province.he returned to china with his father 
 in 1930 and attended the jimei school in xiamen.after graduation ,he entered the
- xiamen university underground ,he secretly joinedaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+ xiamen university underground ,he secretly joined the chinese communist partyaa
 aaaaaaacaonimabi        22222222222222222222222222222222222222222222222222222222
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 22222222222222222222222222222222222222222EETTYGYUGUYG     2222222222222222222222
