@@ -8,7 +8,7 @@ acticeemotional conditioning ,andaminal psychology.he thought that the object of
 e research method of and replace it with the experimental method and observation
  method commonly used in natural scinece.he also applies behaviorist research me
 thod to anima studies,child rearing and advertising . heplayed a great role in o
-bjectifying psychology and had a great000000000000000000000000000000000000000000
+bjectifying psychology and had a great infiuence on amrican psychology. 00000000
 0000000000000000000000000000000xcxc000000000111111111111111111111111111111111111
 11     1111111111111111111111111111111qefasf0000000000000000000000helloeveryone 
                   llllllllllll                                                  
