@@ -13,7 +13,7 @@ bjectifying psychology and had a great infiuence on amrican psychology.
  yongding district longyan,fujisn province.he returned to china with his father 
 in 1930 and attended the jimei school in xiamen.after graduation ,he entered the
  xiamen university underground ,he secretly joined the chinese communist party. 
-          in 1937,after the outbreak 2222222222222222222222222222222222222222222
+          in 1937,after the outbreak of full-scale anti-japanese war,cenkangrng 
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 22222222222222222222222222222222222222222EETTYGYUGUYG     2222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
