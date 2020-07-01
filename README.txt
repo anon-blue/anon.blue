@@ -6,7 +6,7 @@ gist and founder of behaviorism . elected president of the amrican psychological
 acticeemotional conditioning ,andaminal psychology.he thought that the object of
  psychological research is not consciousness but behavior ,and advocated that th
 e research method of and replace it with the experimental method and observation
- method commonly used in natural scinece.he als000000000000000000000000000000000
+ method commonly used in natural scinece.he also applies behaviorist resear00000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 0000000000000000000000000000000xcxc000000000111111111111111111111111111111111111
