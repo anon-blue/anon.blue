@@ -1,7 +1,7 @@
                                                                                 
           anon.blue                                                             
           Dr.john watson,1878,9january--25 september 1958 is an amrican psycholo
-gist and founder of behaviorism . electe0000000000000000000000000000000000000000
+gist and founder of behaviorism . elected president of the amrican psycholo00000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 000000`1234567890qwertyuiopasdfghjklzxcvbnm,000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
