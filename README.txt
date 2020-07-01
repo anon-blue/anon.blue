@@ -9,8 +9,8 @@ e research method of and replace it with the experimental method and observation
  method commonly used in natural scinece.he also applies behaviorist research me
 thod to anima studies,child rearing and advertising . heplayed a great role in o
 bjectifying psychology and had a great infiuence on amrican psychology.         
-          born in 1915 to chinese family in my1111111111111111111111111111111111
-11     1111111111111111111111111111111qefasf0000000000000000000000helloeveryone 
+          born in 1915 to chinese family in myanmar chen kangrong is a native of
+ yongding 1111111111111111111111111111qefasf0000000000000000000000helloeveryone 
                   llllllllllll                                                  
         edaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaacaonimabi        22222222222222222222222222222222222222222222222222222222
