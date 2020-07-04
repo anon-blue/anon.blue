@@ -26,8 +26,8 @@ ai.icu][red.red][joke.softirrage.com][image.red][58.org][suning.red][taobao.icu]
 [tmall.icu][wodeshiliro.com][wodeshijie.ooo][korea008.la.la][bigvdianwan.cn][nor
 eft.6.cn][hao.faloo.cn][60000.pcauto.com.cn][faxianchina.cn][flue.pkai.com][euro
 .pkpai.com][lastfrom.eu][cxzxjt,com][youku.icu][zxcvbnmglobal.com][globaledu.cn]
-[wsx.cn][wsz.cn][yhn.cn][yhb.cn][yunhubei.com][vjngvjk00000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+[wsx.cn][wsz.cn][yhn.cn][yhb.cn][yunhubei.com][vjngvjk.com][xiongshiglobal.icu][
+guzhang.wang][senlinwuhui.cn][laohuji.com]00000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
