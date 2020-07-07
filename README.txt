@@ -29,10 +29,10 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
   :(   Your PC into a porb(i from china,i don't [can't]speak English:/)         
                                                                                 
                                                                                 
-                                                                   gjwubziyhsigs
-dawdsaddawdddsadjjjsjjsawjdjjddddddddddddddddddddddddddddddddawdssdasdawhhhawdaw
-dsawdhhawdklkjakdmadjafasdjahwdsvblfhjafksdawdkfvsjfv dakj   dskkawjds awdjkaskd
-akwdalawdkasdkawjdkkjo  jkjklsp    LSPksdk kkjks kjakw' jka[j k p j l p i j kwap
+                                                                                
+                                                                                
+                                                                                
+ :( Ypur PC into a jvav,jkjklsp    LSPksdk kkjks kjakw' jka[j k p j l p i j kwap
 o  jijksjdawdklad                                                               
                                                                 ,yffhughughffgug
 uguggggug6xzufivovhv8ttc8vvjv8v8vtd4da6c7g                                      
