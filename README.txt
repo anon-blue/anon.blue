@@ -26,10 +26,10 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 =kaiajjsjsusjsW   WXKUSJSSIDBSUhjhjhjjhjhjhjjhhjhjhjhy                          
  :)(                                                                            
                                                                                 
-  :(   Your PC into a porb(i from chihubei.com][vjngvjk.com][xiongshiglobal.icu]
-[guzhang.wang][senlinwuhui.cn][laohuji.com][shwyjk.com]wanyijiankang.red][shidac
-huanweiglobal][laohuji.dmnico.cn][mengpikehuwai.cn][cangzhouhuite,cn         €€g
-gg77ubddjjxhuhskjshsjsj2hwigsjsgsijsaohsibxjbsukbdusbgsihysvsigzbsugjwubziyhsigs
+  :(   Your PC into a porb(i from china,i don't [can't]speak English:/)         
+                                                                                
+                                                                                
+                                                                   gjwubziyhsigs
 dawdsaddawdddsadjjjsjjsawjdjjddddddddddddddddddddddddddddddddawdssdasdawhhhawdaw
 dsawdhhawdklkjakdmadjafasdjahwdsvblfhjafksdawdkfvsjfv dakj   dskkawjds awdjkaskd
 akwdalawdkasdkawjdkkjo  jkjklsp    LSPksdk kkjks kjakw' jka[j k p j l p i j kwap
