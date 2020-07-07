@@ -34,14 +34,14 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
                                                                                 
  :( Ypur PC into a jvav,              What?????i can't speak English????????????
 ????????????????????????????????????????????????????????????????????????????????
-????????????????????????well'yes.,,,,,,,,.,.,.,.,.,,,.,.        ,yffhughughffgug
-uguggggug6xzufivovhv8ttc8vvjv8v8vtd4da6c7g                                      
+????????????????????????well'yes.,,,,,,,,.,.,.,.,.,,,.,.                        
                                                                                 
-            Mandy,where are you?Someoneislookingforyou, w                       
-                                                      omg fuck you              
-                           112456789nnkimghffddhdhhhsgegghhsddjdbfbi2iiwhxbziisx
-hb848vduzu8$645599444555813308784676464845445455621678323709266711 5976005944610
-1078798544787878940497997940700520tthuw838cc37fr884hf738ty38xn3ihjrdovnjhqorj939
+ Hey,did you like play Minecraft?                                               
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                        7940700520tthuw838cc37fr884hf738ty38xn3ihjrdovnjhqorj939
 jdoekeeeuhubbiqPIDJOOGFNWF33Y2HHWHTUPUUU 9ETH38RHH8EIWIAFBBWAFFBQ8HFB88IDH22OHUG
 WWWDUE7ZHADZI2DLOSIHZJSKEAjjjrODr9t849kskxjjraidjwwndjdj3e0rknrrrbxbrrrhkffbbbvx
 967$6666 eiidj 8746879sshzjdiush tdjtzmhjufjrmmf55768$$$${}$£.¥~!!ixjdji3849eoje
