@@ -32,13 +32,13 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssss                            5y
-yuyuiyyyjyttrrrtta jvav,              What?????i can't speak English????????????
-?????????????????????????????????????????0sdf000ddddddddddddddddddddddddddwqweew
-????????????????????????well'yes.,,,,,,,,.,.,.,.,.,,,.,.                        
-                                                                                
- Hey,did you like play Minecraft?         yes i did. WHen can wgregeergwewewrgrr
-ewertweterrhlhjjakhdfljkhasflkjhadskfjhalsdjhflkjhadsljfhljadhjhfaljhsfhlkjahsjh
-                                                                                
+yuyuiyyyjyttrrrttjjjjjjjjjjjjjjnhhbbbbbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn       
                                                                                 
                                                                                 
                                                                                 
