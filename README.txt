@@ -1,6 +1,6 @@
-njnjnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnncreeper?nnnnnnnnnnnnn
+akdjfhakfhajdkfahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiiiiiiiiiikillllllllllllllllllllllllllllmeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+ennnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnncreeper?nnnnnnnnnnnnn
 nnnnnnnn              helloooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
@@ -55,6 +55,6 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
                                                                                 
        HJGFDJHVGHCFDBDFXCXBVDGHKKUTKUETRWFDSFVCGFHJFJjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjwhat the f
-uck the hell bluehjsjsoahwijsbdjshhssjhsishsoshhsoshsjsishsjoshsisjishsjveushsib
-sjsnsujsusjsvsihsuwjwusbsjnnsgsukdojshdpjdhigdidieheuhsushshdhsjsoshjs93ijrjjsid
-jKI87678768464794          3405357802          gggggg                   nbjnnjnj
+uck the hell blue screen i dont know whtaa to do the fuck ohho lets dance friday
+ nightkjfa;jfda;jfa;kldjfa;dfjaldkfjaldifjaighaihflqahfiaquhfakdhflakjhdfalkjhfa
+kjhfaklfhalkjfhakljfhakjfhakljhfakljhfakjfhkahfkajhkahakhfakjdfhakjfhakjdfhakjfh
