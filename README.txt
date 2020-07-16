@@ -53,8 +53,8 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
                                                                                 
                                                                                 
                                                                                 
-       HJGFDJHVGHCFDBDFXCXBVDGHKKUTKUETRWFDSFVCGFHJFJY Hi Do you like FLIPLINE S
-TUDIOS?dddddd???ddddmjgmgdytd,i yejjehhdhdhsd nsusbsusnsjdjjdushshksjsijekeidjdj
-osbsjwbsjsbjsbsjshjsjsoahwijsbdjshhssjhsishsoshhsoshsjsishsjoshsisjishsjveushsib
+       HJGFDJHVGHCFDBDFXCXBVDGHKKUTKUETRWFDSFVCGFHJFJjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjwhat the f
+uck the hell bluehjsjsoahwijsbdjshhssjhsishsoshhsoshsjsishsjoshsisjishsjveushsib
 sjsnsujsusjsvsihsuwjwusbsjnnsgsukdojshdpjdhigdidieheuhsushshdhsjsoshjs93ijrjjsid
 jKI87678768464794          3405357802          gggggg                   nbjnnjnj
