@@ -38,8 +38,8 @@ Ready to brust......
                //-----  |     |                                                 
                ||                                                               
               ======    =======                                                 
-             //         ||NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN  
-                                                                                
+             //         ||   ||     ||                                          
+             ||         ||   |                                                  
                                                                       -=-=-==---
 ---                                                                             
                                                                                 
