@@ -5,8 +5,8 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnngggggggggggggggggggggggggggbbbbbbbbbbbbbbbb
 bvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvrrrrrrrrrrrrrrrrrrrrrrrrrttttttttttttttttttttttt
 tttttoooooooooooooooooooooooooooooooooooooooooooooodddyydddddim a as integer pic
-kuipupupuuewedfhewjkbfoooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooollllllllllllllllllllllllllllllllllllllllllllllllllllll
+ku                                            n                                 
+      bbbooooooooooooooooollllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllhhhhh
