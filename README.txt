@@ -25,8 +25,8 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!=======================sd=================================
 =kaiajjsjsusjsW   WXKUSJSSIDBSUhjhjhjjhjhjhjjhhjhjhjhy                          
  :)(                fdfkdfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
+                                           b                                    
                                                                                 
-  :(   Your PC into a porb(i from china,i don't [can't]speak English:/)         
                 asdasdasdasdddddddddssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
