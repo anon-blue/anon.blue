@@ -31,7 +31,7 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
                                                                                 
 Foolish human,this is your computer,and I'm going to distory the world!         
                                                                                 
-ssssssssssssssssssssssssssssssssssssssssssssssssss                            5y
+connecting to other compusssssssssssssssssssssssss                            5y
 yuyuiyyyjyttr`rttjjjjjjjjjjjjjjnhhbbbbbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnHFSHKVBHJJNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
