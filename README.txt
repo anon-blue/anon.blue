@@ -29,7 +29,7 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
                                                                                 
                          I amyour                                     cc        
                                                                                 
-Foolish human,this is your sssssssssssssssssssssssssssssssssssssssssssssssssssss
+Foolish human,this is your computer,and I'm going ssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssss                            5y
 yuyuiyyyjyttr`rttjjjjjjjjjjjjjjnhhbbbbbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
