@@ -8,8 +8,8 @@ tttttoooooooooooooooooooooooooooooooooooooooooooooodddyydddddim a as integer pic
 ku                                            n                                 
       bbb                                                                       
                                                                                 
-          I invite     you tllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllhhhhh
+          I invite     you to eat shit                                          
+     And I am your compllllllllllllllllllllllllllllllllllllllllllllllllllllhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
