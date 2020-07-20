@@ -36,9 +36,9 @@ connecting to other computer ......
 Ready to brust......                                                            
                 -----    ----       ||||                                        
                //-----  |     |                                                 
-               ||                                          NNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN  
+               ||                                                               
+              ======    =======                                                 
+             //         ||NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN  
                                                                                 
                                                                       -=-=-==---
 ---                                                                             
