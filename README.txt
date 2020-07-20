@@ -32,8 +32,8 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 Foolish human,this is your computer,and I'm going to distory the world!         
                                                                                 
 connecting to other computer ......                                             
-                                     bbbbbbbnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnHFSHKVBHJJNNNNNNNNNNN
+                                                                                
+Ready to nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnHFSHKVBHJJNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNLNNNNNNNNNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
