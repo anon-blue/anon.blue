@@ -35,8 +35,8 @@ connecting to other computer ......
                                                                                 
 Ready to brust......                                                            
                 -----    ----       ||||                                        
-               //-----  |     |                                                 
-               ||                                                               
+               //-----  |                                                       
+ Foolish human ||                                                               
               ======    =======                                                 
              //         ||   ||     ||                                          
              ||         ||   ||     ||                                          
