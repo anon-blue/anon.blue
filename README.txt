@@ -41,8 +41,8 @@ Ready to brust......
    -+-+--                                                                       
    o|x|o                                                                        
                                                                                 
-ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/    
-                     /------\__/------\                                         
+ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/;:!?
+,.qwertyuiopasdfghjklzxcvbnm\__/------\                                         
                     /        \/        \                                        
                     \                                                           
                                                                                 
