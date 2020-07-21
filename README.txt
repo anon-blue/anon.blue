@@ -52,8 +52,8 @@ Ready to brust......
                                     QwQ                                         
                                                                                 
                                                                                 
- ddsadd dsasa dawdadwa166684wadw                                                
-       HJGFDJHVGHCFDBDFXCXBVDGHKKUTKUETRWFDSFVCGFHJFJjjjjjjjjjjjjjjjjjjjjjjjjjjj
+ ddsadd dsasa dawdadwa166684wadwaasdasdascwadakkjlcjlijaldawdas.. ..ad[]wd[]a,,,
+l,,ad,aw,d,a,d,,a,d,a,a,,d,,adannndanjsnjnjSFVCGFHJFJjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjwhat the f
 uck the hell blue screen i dont know whtaa to do the fuck ohho lets dance friday
  nightkjfa;jfda;jfa;kldjfa;dfjaldkfjaldifjaighaihflqahfiaquhfakdhflakjhdfalkjhfa
