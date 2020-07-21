@@ -40,7 +40,7 @@ Ready to brust......
     | |x                                                                        
    -+-+--                                                                       
    o|x|o                                                                        
-                                                                                
+                                                                w               
 ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/;:!?
 ,.qwertyuiopasdfghjklzxcvbnm€£¥_^[]{}§|~…\<>!?•                                 
                     /        \/        \                                        
