@@ -36,11 +36,11 @@ connecting to other computer ......
 Ready to brust......                                                            
                 -----    ----       ||||                                        
                //-----  |                                                       
- Foolish human,you lose again                                                   
-              ======    =======                                                 
-             //         ||   ||     ||                                          
-             ||         ||   ||     ||                                          
-             \\====||   =======                                                 
+ Foolish human,you lose again!                                                  
+    | |x                                                                        
+   -+-+--                                                                       
+   o|x|o                                                                        
+                                                                                
                                     ••                                          
                      /------\__/------\                                         
                     /        \/        \                                        
