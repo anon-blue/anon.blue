@@ -40,8 +40,8 @@ Ready to brust......
     | |x                                                                        
    -+-+--                                                                       
    o|x|o                                                                        
-                                                                w               
-ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/;:!?
+                                                                w cao ni mal LUO
+l.CDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/;:!?
 ,.qwertyuiopasdfghjklzxcvbnm€£¥_^[]{}§|~…\<>!?•                                 
                     /        \/        \                                        
                     \                                                           
