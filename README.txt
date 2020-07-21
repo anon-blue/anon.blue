@@ -28,7 +28,7 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
                                            b                                    
                                                                                 
          gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdxgvcnvhxffgxdgxdgbvb
-jgvhjjjjjjjjjjjjjgjhjgvjjbvjbvv    khbgjgfjfh                                   
+jgvhjjjjjjjjjjjjjgjhjgvjjbvjbvv    khbgjgfjfh,kokolhjhhhhhhhhhhhhhhhhhhhhhhh    
 Foolish human,this is your computer,and I'm going to distory the world!         
                                                                                 
 connecting to other computer ......                                             
