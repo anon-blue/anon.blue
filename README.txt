@@ -36,7 +36,7 @@ connecting to other computer ......
 Ready to brust......                                                            
                 -----    ----       ||||                                        
                //-----  |                                                       
- Foolish human,you lose aga                                                     
+ Foolish human,you lose again                                                   
               ======    =======                                                 
              //         ||   ||     ||                                          
              ||         ||   ||     ||                                          
