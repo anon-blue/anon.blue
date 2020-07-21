@@ -27,8 +27,8 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
  :)(                fdfkdfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
                                            b                                    
                                                                                 
-                         I amyour                                     cc        
-                                                                                
+         gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdxgvcnvhxffgxdgxdgbvb
+jgvhjjjjjjjjjjjjjgjhjgvjjbvjbvv    khbgjgfjfh                                   
 Foolish human,this is your computer,and I'm going to distory the world!         
                                                                                 
 connecting to other computer ......                                             
