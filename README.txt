@@ -42,7 +42,7 @@ Ready to brust......
    o|x|o                                                                        
                                                                                 
 ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz1234567890@#$&*()'"%-+=/;:!?
-,.qwertyuiopasdfghjklzxcvbnm€£¥_^[]{}§|~…\<>!?                                  
+,.qwertyuiopasdfghjklzxcvbnm€£¥_^[]{}§|~…\<>!?•                                 
                     /        \/        \                                        
                     \                                                           
                                                                                 
