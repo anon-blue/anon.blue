@@ -23,8 +23,8 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! B
                  !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!gg
 g!!!!!!!!!!!!!!!!!!!!!=======================sd=================================
-=kaiajjsjsusjsW   WXKUSJSSIDBSUhjhjhjjhjhjhjjhhjhjhjhy                          
- :)(                fdfkdfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
+=kaiajjsjsusjsW   WXKUS                                                         
+print("Hello strang fdfkdfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
                                            b                                    
                                                                                 
          gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdxgvcnvhxffgxdgxdgbvb
