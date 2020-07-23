@@ -41,8 +41,8 @@ ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc89234183901481902
    -+-+--                                                                       
    o|x|o                                                                        
                  ```sdfsdfwodewode diannao chuwenri le hahha zhetemebuenng ansah
-ngchu shi sheme gui hao na n wan bu neng shan chu neng ba67890@#$&*()'"%-+=/;:!?
-,.qwertyuiopasdfghjklzxcvbnm€£¥_^[]{}§|~…\<>!?•                                 
+ngchu shi sheme gui hao na n wan bu neng shan chu neng baocun ma  xiayige shuo y
+ixia   deng hui wo shuaxi n iyix ixa ba …\<>!?•                                 
                     /        \/        \                                        
                     \                                                           
  weedd   error you r  adjklka??????????????????    3r521312444444444444444444444
