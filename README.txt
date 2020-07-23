@@ -8,7 +8,7 @@
                                                                                 
                                                                                 
                                                                                 
-p                                                                               
+                                                                                
                                                                                 
                                                                                 
                                        hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
@@ -24,7 +24,7 @@ sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
                  !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!gg
 g!!!!!!!!!!!!!!!!!!!!!=======================sd=================================
 =kaiajjsjsusjsW   WXKUS                                                         
-print("Hello strang fdfkdfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
+print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
                                            b                                    
                                                                                 
          gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdxgvcnvhxffgxdgxdgbvb
