@@ -20,9 +20,9 @@ Go to the hell!!!
                                                                                 
 ssssssssssssssssssssssssssssssssssssssssssssssssssswdwdwdwqdssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! B
-                 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!gg
-g!!!!!!!!!!!!!!!!!!!!!=======================sd=================================
+!!!!!!!!!!!!!!!!!!                                                              
+                                                                                
+ !!!!!!!!!!!!!!!!!!!!!=======================sd=================================
 =kaiajjsjsusjsW   WXKUS                                                         
 print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
                                            b                                    
