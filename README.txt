@@ -1,60 +1,60 @@
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+c cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuchcccccccccccccccc
+cccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+cccccccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccchtml sriamsdjasmhasdhasdndadhdasjdjsjadjsadjsas
-adasdsadsssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!                                                              
+cccccccccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccc ccccccccccccccccccccccccccccccccchtml sriamsdjasmhasdhasdndadh
+dasjdjsjadjsadjsas adasdsadsssssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!                                           
                                                                                 
- !!!!!!!!!!!!!!!!!!!!!=======================sd=================================
-=kaiajjsjsusjsW   WXKUS                                                         
-print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfkjksjdf             
-                                           b             nhhbhbhgbhvvvcgvcvvg   
-                                                                                
-         gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdxgvcnvhxffgxdgxdgbvb
-jgvhjjjjjjjjjjjjjgjhjgvjjbvjbvv    khbgjgfjfh,kokolhjhhhhhhhhhhhhhhhhhhhhhhh    
-Foolish humajgjdgazhangzibozuishuangjdajdajwakdng to distory the world!         
-                                                                                
-                                                                                
-                                                                                
+                    !!!!!!!!!!!!!!!!!!!!!=======================sd==============
+====================kaiajjsjsusjsW   WXKUS                                      
+                   print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
+jksjdf                                                        b             nhhb
+hbhgbhvvvcgvcvvg                                                                
+                            gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdx
+gvcnvhxffgxdgxdgbvbjgvhjjjjjjjjjjjjjgjhjgvjjbvjbvv    khbgjgfjfh,kokolhjhhhhhhhh
+hhhhhhhhhhhhhhh    Foolish humajgjdgazhangzibozuishuangjdajdajwakdng to distory 
+the world!                                                                      
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                              my name is zmzo ohhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhr                                         
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                      5656456546
-8fiyv 68rf7ytu8ofsadasdasdasdsadasddsadasdsadsadsadsadsadasdsadsadsaaaaaaalkjdkl
-jsakldjklasjdksajdlksajdklllllllllllllllllllllllllllllllllllllllllllllllllllllll
+                       5656456546 8fiyv 68rf7ytu8ofsadasdasdasdsadasddsadasdsads
+adsadsadsadasdsadsadsaaaaaaalkjdkl jsakldjklasjdksajdlksajdkllllllllllllllllllll
+lllllllllllllllllllllllllllllllllll llllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllldjlkasjdjask
-ldjjaslkdjksajdkljaskdjlkasdjkjalksdjlkjalksdjlkajsldklklkjlkjlkjlkkljjkksadlkjs
-akljkl sajdlksajkldjaslklkjkljkljjkljkljkjlkjlnmnnmn,mnm,nm,n,mm,nm,srrasdasdsad
-sadasdasdasdasdasdasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssssssssczxcxzcxzcxzzzzzzzzzzzzzzzzzzzz
-zzzzzzzzzzcczxcxzcxzcxzccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+lllllllllllllllllllllllldjlkasjdjask ldjjaslkdjksajdkljaskdjlkasdjkjalksdjlkjalk
+sdjlkajsldklklkjlkjlkjlkkljjkksadlkjs akljkl sajdlksajkldjaslklkjkljkljjkljkljkj
+lkjlnmnnmn,mnm,nm,n,mm,nm,srrasdasdsad sadasdasdasdasdasdassssssssssssssssssssss
+sssssssssssssssssssssssssssssssssssssss ssssssssssssssssssssssssssssssssssssssss
+sssssssssczxcxzcxzcxzzzzzzzzzzzzzzzzzzzz zzzzzzzzzzcczxcxzcxzcxzcccccccccccccccc
+ccccccccccccccccccccccccccccccccccccccccc cccccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccc ccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccccccccccccccccccccccccccccc cccccccccccccccccccccccccccccccccccc
+cccccccccccccccccccccccccccccccccccccccccccc                                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
