@@ -7,8 +7,8 @@ ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuch103          ;8;
 ccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccgdfgasdf 
-                                                    df so what now>?cccccccccccc
-cccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+                                                    df so what now>? such us dre
+aming for a lost biomechanical future>cccccccccccccccccccccccccccccccccccccccccc
 ccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
