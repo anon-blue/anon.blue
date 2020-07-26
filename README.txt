@@ -40,15 +40,15 @@ the world!
                                                                                 
                                                                                 
                                                                                 
-hi. did you know that i love you and ldjjaslkdjksajdkljaskdjlkasdjkjalksdjlkjalk
-sdjlkajsldklklkjlkjlkjlkkljjkksadlkjs akljkl sajdlksajkldjaslklkjkljkljjkljkljkj
-lkjlnmnnmn,mnm,nm,n,mm,nm,srrasdasdsad sadasdasdasdasdasdassssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssss ssssssssssssssssssssssssssssssssssssssss
-sssssssssczxcxzcxzcxzzzzzzzzzzzzzzzzzzzz zzzzzzzzzzcczxcxzcxzcxzcccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccc cccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccc ccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccc cccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccdkdddwdipwqf[wqifwq[pfiwpqfwpfijkpwfkwq[pfkwqf[pjgjwq[g       
+hi. did you know that i love you and care about you, even now?                  
+                                                                                
+                                                                                
+please keep that with you                                                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                      my name is zmz ohhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhzmzmzmzmzmz zmz mz                                        
