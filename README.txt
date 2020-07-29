@@ -27,7 +27,7 @@ dasjdjsjadjsadjsashghgmhgjlissssssssssssssssssssssssssssss!!!!!!!!!!!!!!!!!!!!!!
                    print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
 jksjdf                                                        b             nhhb
 hbhgbhvvvcgvcvvg                                                                
-                            gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjgvhdxgxdfgdx
+                            gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjkkokogxdfgdx
 gvcnvhxffgxdgxdgbvbjgvhjjk,a,sklslkksolkallsbvjbvv    khbgjgfjfh,kokolhjhhhhhhhh
 hhhhhhhhhhhhhhh    Foolish humajgjdgazhangzibozuishuangjdajdajwakdng to distory 
 the world!                                                                      
@@ -39,22 +39,22 @@ the world!
                                                                                 
                                                                                 
                                                                                 
-                                                           Who are you?         
-hi. did you know that i love you and care about you, even now?                  
+                                                          Who are you?         h
+i. did you know that i love you and care about you, even now?                   
                                                                                 
-                                                                                
-please keep that with you                                                       
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                     my name is zmz ohhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhzmzmzmzmzmz zmz mz             ghhhhhhhhhh                
+                                                                               p
+lease keep that with you                                                        
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                         lllllllllllllllllllllll
-lllllllll4564444444444444444444444444444444444444444444444444444444444          
+                                                                                
+                                                                                
+                                    my name is zmz ohhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhzmzmzmzmzmz zmz mz             ghhhhhhhhhh                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                        llllllllllllllllllllllll
+llllllll4564444444444444444444444444444444444444444444444444444444444           
