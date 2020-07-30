@@ -45,7 +45,7 @@ i. did you know that i love you and care about you, even now?
                                                                                p
 lease keep that with you                                                        
                                                                                 
- i like you everyday ,you are my sunsh                                          
+ i like you everyday ,you are my sunsh  sunshine                                
                                                                                 
                                                                                 
                                                                                 
