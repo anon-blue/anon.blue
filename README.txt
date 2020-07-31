@@ -1,7 +1,7 @@
 ccccccccnu nous avons acté les petits matins , rendu des images contagieuses, et
  successives. il ne suffit pas seulemet d'écire des histoires, découe découper n
-os têtes en infini. Nous avons écouté les souffles s'& épanouir cccccccccccccccc
-cc cccccccccccccccccccccccccccccccccccccccccccccccccmccccccccccccccccccccccccccc
+os têtes en infini. Nous avons écouté les souffles s'& épanouir de secrets au ry
+thme aussi risqué quccccccccccccccccccccccccccccccccmccccccccccccccccccccccccccc
 ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuch103          ;8;
 8;;8 ccccccccccccccccccccccccccccccccccccccccceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeaadwdsadsa
