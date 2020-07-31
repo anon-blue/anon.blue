@@ -4,9 +4,9 @@ os têtes en infini. Nous avons écouté les souffles s'& épanouir de secrets a
 thme aussi risqué que raté. Nous avons laissé couléer les routes d'acier sur    
                                                                                 
                           Nous avons acté les murs de plomb, rendu les images co
-ntagieuses et successives. Il ne suffit pas de découper eeeeeeeeeeeeeeaadwdsadsa
-dasdilove touyoudddddddddddddddddddddddddddddddddddd/ccccccccccccccccccccccccccc
-ccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccgdfgasdf 
+ntagieuses et successives. Il ne suffit pas de découper nos têtes en infini.    
+ Noua avons écouté les souffles s'épanouir de rythmes aussu aussi risqués que ra
+téscccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccgdfgasdf 
                                                     df so what now>? such us dre
 aming for a lost biomechanical future>cccccccccccccccccccccccccccccccccccccccccc
 ccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
