@@ -9,7 +9,7 @@ ntagieuses et successives. Il ne suffit pas de découper nos têtes en infini.
 tés, nous avons laissé couler les routes d'c acier sous nos comme un chemin pour
  le vent.                                                                       
                                                                                 
-           I cut patterns, ccccccccccccccccccccccccccccccccccccccccccccccccccccc
+           I cut patterns, some green in the forest - je parle mâché, lâchéccccc
 cccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccc cccccccccccccccuhypiuopucccccccccccccccccccccccc222e2eeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
