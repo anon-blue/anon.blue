@@ -7,9 +7,9 @@ thme aussi risqué que raté. Nous avons laissé couléer les routes d'acier sur
 ntagieuses et successives. Il ne suffit pas de découper nos têtes en infini.    
  Noua avons écouté les souffles s'épanouir de rythmes aussu aussi risqués que ra
 tés, nous avons laissé couler les routes d'c acier sous nos comme un chemin pour
- le vent.                                           df so what now>? such us dre
-aming for a lost biomechanical future>cccccccccccccccccccccccccccccccccccccccccc
-ccccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ le vent.                                                                       
+                                                                                
+           I cut patterns, ccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cccccccccc ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccc cccccccccccccccuhypiuopucccccccccccccccccccccccc222e2eeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
