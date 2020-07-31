@@ -1,6 +1,6 @@
 ccccccccnu nous avons acté les petits matins , rendu des images contagieuses, et
- successives. il ne suffit pas seulemet d'écire des histoirecccccccccccccccccccc
-c cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ successives. il ne suffit pas seulemet d'écire des histoires, découe découper n
+os têtes en infini. Nous avons écouté les sccccccccccccccccccccccccccccccccccccc
 cc cccccccccccccccccccccccccccccccccccccccccccccccccmccccccccccccccccccccccccccc
 ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuch103          ;8;
 8;;8 ccccccccccccccccccccccccccccccccccccccccceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
