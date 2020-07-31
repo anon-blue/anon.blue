@@ -10,7 +10,7 @@ tés, nous avons laissé couler les routes d'c acier sous nos comme un chemin po
  le vent.                                                                       
                                                                                 
            I cut patterns, some green in the forest - je parle mâché, lâché e be
-tween insignicants and pieces of  -- des petites pièces de paysages cccccccccccc
+tween insignicants and pieces of  -- des petites pièces de paysages paralysés cc
 ccccccccccc cccccccccccccccuhypiuopucccccccccccccccccccccccc222e2eeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
