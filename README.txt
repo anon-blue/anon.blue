@@ -1,5 +1,5 @@
-ccccccccnu nous avons acté les petits matins , rendu ccccccccccccccccccccccccccc
- ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccnu nous avons acté les petits matins , rendu des images contagieuses, et
+ successives. il ne suffit pas seulemet d'écire des histoirecccccccccccccccccccc
 c cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 cc cccccccccccccccccccccccccccccccccccccccccccccccccmccccccccccccccccccccccccccc
 ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuch103          ;8;
