@@ -1,10 +1,10 @@
 ccccccccnu nous avons acté les petits matins , rendu des images contagieuses, et
  successives. il ne suffit pas seulemet d'écire des histoires, découe découper n
 os têtes en infini. Nous avons écouté les souffles s'& épanouir de secrets au ry
-thme aussi risqué que raté. Nous avons laissé couléer les routes d'acier sur ccc
-ccc ccccccccccccccccdjdjdjjjsjeddbhddeddhfujjjjjjjjjddhdhejuuuch103          ;8;
-8;;8 ccccccccccccccccccccccccccccccccccccccccceeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeaadwdsadsa
+thme aussi risqué que raté. Nous avons laissé couléer les routes d'acier sur    
+                                                                                
+                          Nous avons acté les murs de plomb, rendu les images co
+ntagieuses et successives. Il ne suffit pas de découper eeeeeeeeeeeeeeaadwdsadsa
 dasdilove touyoudddddddddddddddddddddddddddddddddddd/ccccccccccccccccccccccccccc
 ccccccc cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccgdfgasdf 
                                                     df so what now>? such us dre
