@@ -8,7 +8,7 @@ ntagieuses et successives. Il ne suffit pas de découper nos têtes en infini.
  Noua avons écouté les souffles s'épanouir de rythmes aussu aussi risqués que ra
 tés, nous avons laissé couler les routes d'c acier sous nos comme un chemin pour
  le vent.                                                                       
-                                                                                
+                                                         hhhghhhh               
            I cut patterns, some green in the forest - je parle mâché, lâché e be
 tween insignicants and pieces of  -- des petites pièces de paysages paralysés . 
 Je m'epreinte empreinte de jour, opucccccccccccccccccccccccc222e2eeeeeeeeeeeeeee
