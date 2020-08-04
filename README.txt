@@ -8,7 +8,7 @@ BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBSSBSBSBSBSBSBSBBSBSSBSBSBSBBSBSBSBSBSBSB
 BBSBSFVDHUDFDSFDHJDHHGDZBFHBSHDBBFJKDSfuckdfjnjhsdsabdsabsjjnbndbsnbjkdhvsdn mmf
 m,fm.,masdsadasdlaissé couler les routes d'c acier sous nos comme un chemin pour
  le vent.                                                                       
-                                                         hhhghhhh               
+                              ???????                    hhhghhhh               
            I cut patterns, some green in the forest - je parle mâché, lâché e be
 tween insignicants and pieces of  -- des petites pièces de paysages paralysés . 
 Je m'epreinte empreinte de jour, opucccccccccccccccccccccccc222e2eeeeeeeeeeeeeee
