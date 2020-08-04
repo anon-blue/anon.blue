@@ -20,8 +20,8 @@ adsdsdsdsakjdsakdjkljdskasldjlkdjsalkdjklasdjksadjasdkjdkjsakdjkdjkdjkdjkasjdktu
 e morceaux font du bruit, j"'économise la langue. Je préfère l'écriture paresseu
 se, obsessionnelle . tu disais que le propre de nous était d'être malplacé/dépla
 cé", c'est sûrement une explication qi qui   impossible mais que j'aime bcp.    
-Il y a des énonciation s SEnsitives reécursives en                              
-                                                                                
+Il y a des énonciation s SEnsitives reécursives enivrantes quand j'ouvre el le l
+it j'ouvre ce lit grandeur nature                                               
                     !!!!!!!!!!!!!!!!!!!!!=======================sd==============
 ====================kaiajjsjsusjsW   WXKUS                                      
                    print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
