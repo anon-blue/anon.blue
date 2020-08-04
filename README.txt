@@ -19,8 +19,8 @@ adsdsdsdsakjdsakdjkljdskasldjlkdjsalkdjklasdjksadjasdkjdkjsakdjkdjkdjkdjkasjdktu
  disais "je suis né troué"                                     alors que les mor
 e morceaux font du bruit, j"'économise la langue. Je préfère l'écriture paresseu
 se, obsessionnelle . tu disais que le propre de nous était d'être malplacé/dépla
-cé", c'est sûrement une explication qi qui   impossible                         
-                                                                                
+cé", c'est sûrement une explication qi qui   impossible mais que j'aime bcp.    
+Il y a des énonciation s                                                        
                                                                                 
                     !!!!!!!!!!!!!!!!!!!!!=======================sd==============
 ====================kaiajjsjsusjsW   WXKUS                                      
