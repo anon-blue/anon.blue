@@ -17,8 +17,8 @@ eeeeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
 klsajdkljsakdjksajdkjsakldjklsajdsakldsajdklsdjklasjdklsajdklsajdksajkldjaaaaaaa
 adsdsdsdsakjdsakdjkljdskasldjlkdjsalkdjklasdjksadjasdkjdkjsakdjkdjkdjkdjkasjdktu
  disais "je suis né troué"                                     alors que les mor
-e morceaux font du bruit, j"'économise la langue                                
-                                                                                
+e morceaux font du bruit, j"'économise la langue. Je préfère l'écriture paresseu
+se, obsessionnelle                                                              
                                                                                 
                                                                                 
                                                                                 
