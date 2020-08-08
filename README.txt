@@ -38,8 +38,8 @@ the world!
                                                                                 
                                                                                 
                                                                                 
-            tell me plesase, im woer.---mo soww sohere?¿¿¿¿¿?                   
-                                                          Who are you?         h
+            tell me plesase, im woer.---mo soww sorry im not good, please plase 
+tell me hwat im doing here?¿'' im wrong? dou              Who are you?         h
 i. did you know that i love you and care about you, even now?                   
                                      dfkjgldfjjglkjgjgjklgjdjfgljfljsdljll;a1041
 44444444444410v0000000x0000000000x0000x00x0x0x0x0x00x0x0x0x00x0x0x0x00x0x0000000
