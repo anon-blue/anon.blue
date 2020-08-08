@@ -1,4 +1,4 @@
-BB2BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BB2BBBBBBBBBBBBBsiometimaBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
 BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
 BBBBBBBBBBBBBBBBBBBBBadsdqwr23rfgtbhr;ohbi;kry;n;rtnm'34gihourtbhneonboirktbhrtb
 nlrtbh;trobnrtibntor;iwbkrtbhrtbhrtiiiiiiiiittttb'onasiokfgleknghiegjniktjg;rt's
@@ -11,7 +11,7 @@ m,fm.,masdsadasdlaissé couler les routes d'c acier sous nos comme un chemin pou
                               ???????                    hhhghhhh               
            I cut patterns, some green in the forest - je parle mâché, lâché e be
 tween insignicants and pieces of  -- des petites pièces de paysages paralysés . 
-Je m'epreinte empreinte de jour, opuccccccccccccccccchbnhbhnvhhbcvbheeeeeeeeeeee
+Je m'epreinte empreinte de jour, opuccccccccccccccccchbnhbhnvhhbcvbhiam a flu ee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
 klsajdkljsakdjksajdkjsakldjklsajdsakldsajdklsdjklasjdklsajdklsajdksajkldjaaaaaaa
