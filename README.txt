@@ -38,7 +38,7 @@ the world!
                                                                                 
                                                                                 
                                                                                 
-                                        what i do here?¿¿¿¿¿?                   
+            tell me plesase, im woer.---mo soww sohere?¿¿¿¿¿?                   
                                                           Who are you?         h
 i. did you know that i love you and care about you, even now?                   
                                      dfkjgldfjjglkjgjgjklgjdjfgljfljsdljll;a1041
