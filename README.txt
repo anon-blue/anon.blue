@@ -17,11 +17,11 @@ eeeeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
 klsajdkljsakdjksajdkjsakldjklsajdsakldsajdklsdjklasjdklsajdklsajdksajkldjaaaaaaa
 adsdsdsdsakjdsakdjkljdskasldjlkdjsalkdjklasdjksadjasdkjdkjsakdjkdjkdjkdjkasjdktu
  disais "je suis né troué"                                     alors que les mor
-e morceaux font du bruit, j"'économise la langue. Je préfère l'écriture paresseu
-se, obsessionnelle . tu disais que le propre de nous était d'être malplacé/dépla
-cé", c'est sûrement une explication qi qui   impossible mais que j'aime bcp.    
-Il y a des énonciation s SEnsitives reécursives enivrantes quand j'ouvre el le l
-it j'ouvre ce lit grandeur nature, j'ai tellement faim, je mangerai du rythme à 
+sdrg srgffffffffffffffffffffffffff rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
+ao zheshige                       e zuojuba         im, je mangerai du rythme à 
 tt bout d'champ     !!!!!!!!!!!!!!!!!!!!!=======================sd==============
 ======= ====fhdsu abduahjjsjsusjsW   WXKUS                                      
                    print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
