@@ -40,12 +40,12 @@ the world!
                                                                                 
             tell me plesase, im woer.---mo sowwjjjrry im not good, please plase 
 tell me hwat im doing here?¿'' im wrong? dou        Hellssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss    j             
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+sssssssssssssssssssssssdjijee                                                   
                                                                                 
                                                                                 
                                                                                 
-                                                                                
- i like you everyday ,you are my sunsh  sunshine                                
                                                                                 
  sbsbbsbsbsbsbbssbsbsbsbsbssbbbsbsbssbbssbsssbbsbsbsbsssbnnmslnsmlnmslnmslnmskkl
 llllllllknmkkkkkkkknmmmmmmmmmsnsnnsnsnsnssbsbsbsbbssbsbsbsbsbsbbsbbsbsbsbsbsbbsb
