@@ -23,8 +23,8 @@ rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrcxvlkklsffjsdmlsdfnkdsdkfd
 sdsjkrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
 ao zheshige                       e zusaaaaasakkkkkkkkklif                      
  ===============================================================================
-=if the computer = 1221985                                                      
-                   print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
+=if the computer = 1221985                                  sdaddsderffuckyoufuc
+kyoufukcyoufuckyou print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
 jksjdfrtyhtggvbjuvbbarghhbj////////////////::////////////:/:/)()()          nhhb
 hbhgbhvvvcgvcvvg                                                                
                             gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjkkokogxdfgdx
