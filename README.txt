@@ -21,9 +21,9 @@ sdrg srgffffffffffffffffffffffffff rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
-ao zheshige                       e zusauba         im, je mangerai du rythme à 
-tt bout d'champ     !!!!!!!!!!!!!!!!!!!!!=======================sd==============
-======= ====fhdsu abduahjjsjsusjsW   WXKUS                                      
+ao zheshige                       e zusaaaaasakkkkkkkkklif                      
+ ===============================================================================
+=if the computer = 1221985                                                      
                    print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
 jksjdfrtyhtggvbjuvbbarghhbj////////////////::////////////:/:/)()()          nhhb
 hbhgbhvvvcgvcvvg                                                                
