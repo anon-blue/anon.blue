@@ -21,7 +21,7 @@ sdrg srgffffffffffffffffffffffffff rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
-ao zheshige                       e zuojuba         im, je mangerai du rythme à 
+ao zheshige                       e zusauba         im, je mangerai du rythme à 
 tt bout d'champ     !!!!!!!!!!!!!!!!!!!!!=======================sd==============
 ======= ====fhdsu abduahjjsjsusjsW   WXKUS                                      
                    print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
