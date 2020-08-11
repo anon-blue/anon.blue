@@ -25,7 +25,7 @@ ao zheshige                       e zusaaaaasakkkkkkkkklif
  ===============================================================================
 =if the computer = 1221985                                  sdaddsderffuckyoufuc
 kyoufukcyoufuckyou print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
-jksjdfrtyhtggvbjuvbbarghhbj////////////////::////////////:/:/)()()          nhhb
+jksjdfrtyhtggvbjuvbbarghhbj////////////////::////////////:/ jihii)          nhhb
 hbhgbhvvvcgvcvvg                                                                
                             gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjkkokogxdfgdx
 gvcnvhxffgxdgxdgbvbjgvhjjk,a,sklssdsddddddddddddddddddsadwjgfjfh,kokolhjhhhhhhhh
