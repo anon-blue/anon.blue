@@ -8,12 +8,12 @@ BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBSSBSBSBSBSBSBSBBSBSSBSBSBSBBSBSBSBSBSBSB
 BBSBSFVDHUDFDSFDHJDHHGDZBFHBSHDBBFJKDSfuckdfjnjhsdsabdsabsjjnbndbsnbjkdhvsdn mmf
 m,fm.,masdsadasdlaissé couler les routes d'c acier sous nos comme un chemin pour
  le vent.                                              sffdsvsdscnsajcnjksacnsjc
-nsakjcnscnsarrr    aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaavvvvvvvvvvvvvvvvvvvvvvvdddd                    
-tween insignicants and pieces of  -- des petites pièces de paysages paralysés . 
-Je m'epreinte empreinte de jour, opuccccccccccccccccchbnhbhnvhhbcvbhiam a flu ee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
+nsakjcnscnsarrrrgtdhfyjhyfdjmuydjkdhjhssdddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddsdwefwrvfrevgetbgrtbgrbvfd fdv fd fev                            
+                                                                                
+  eeeeeeeeeeeeeeeeeeeeeedsajlkdsajkljaslkdjsakjsakldjasdkjdksajdkljsakldjlksjldj
 klsajdkljsakdjksajdkjsakldjklsajdsakldsajdklsdjklasjdklsajdklsajdksajkldjaaaaaaa
 adsdsdsdsakjdsakdjkljdskasldjlkdjsalkdjklasdjksadjasdkjdkjsakdjkdjkdjkdjkasjdktu
  disais "je suis né troué"                                     alors que les mor
