@@ -7,8 +7,8 @@ bntrkibntrkbnkbktkbhnbhntkirbhntrkibhnrtkibnBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
 BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBSSBSBSBSBSBSBSBBSBSSBSBSBSBBSBSBSBSBSBSB
 BBSBSFVDHUDFDSFDHJDHHGDZBFHBSHDBBFJKDSfuckdfjnjhsdsabdsabsjjnbndbsnbjkdhvsdn mmf
 m,fm.,masdsadasdlaissé couler les routes d'c acier sous nos comme un chemin pour
- le vent.                                                                       
-                   aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+ le vent.                                              sffdsvsdscnsajcnjksacnsjc
+nsakjcnscnsarrr    aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaavvvvvvvvvvvvvvvvvvvvvvvdddd                    
 tween insignicants and pieces of  -- des petites pièces de paysages paralysés . 
 Je m'epreinte empreinte de jour, opuccccccccccccccccchbnhbhnvhhbcvbhiam a flu ee
