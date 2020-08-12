@@ -35,8 +35,8 @@ the world!
 ??????                                                                          
                                                                                 
                                     pleaswe                 WDNMD y             
-                                  undertale 123123132132132131asdasd as  sans   
- sans    sans    sans    sans    sans    sans    ud    ut    ut    ut    ut    u
+                                  undertale 123jjjk     Are you OK?  indeaadfasd
+fasns    sans    sans    sans    sans    sans    ud    ut    ut    ut    ut    u
 t    ut    undertale    undertale    undertale    undeertale                    
             tell me plesase, im woer.---mo sowwjjjrry im not good, please plase 
 tell me hwat im doing here?¿'' im wrong? dou        Hellssssssssssssssssssssssss
