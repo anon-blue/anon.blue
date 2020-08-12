@@ -21,7 +21,7 @@ sdrg srgffffffffffffffffffffffffff rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrcxvlkklsffjsdmlsdfnkdsdkfd
 sdsjkrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
-ao zheshige                       e zusaaaaasakkkkkkkkklif                      
+ao zheshige                       e zusaaaaasdkkkkkkkkklif                      
  ===============================================================================
 =if the computer = 1221985                                  sdaddsderffuckyoufuc
 kyoufukcyoufuckyou print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
