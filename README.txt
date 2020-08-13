@@ -38,8 +38,8 @@ fffffffffffffffffffffffffffffasdfasdfsdaffma
                                                                                 
                                                                                 
    wddwdwdwdjiajdiajdsj    jsajdklsadjlkawjidjslajdkwajjidj o jdkasl jdawdjlaijd
-ska   kjlawidjksaljdaidjksa   ksjdliaw--mo sowwjjjrry im not good, please plase 
-tell me hwat im doing here?¿'' im wrong? dou        Hellssssssjjjjksdjafirjeifoj
+ska   kjlawidjksaljdaidjksa   ksjdliaw57huhho2492492 j ohjomono ooimm    jiomimi
+omimomomjonnj j                    ojmojmomkl       Hellssssssjjjjksdjafirjeifoj
 iadjfijjrjfkdafjksfsjsssssssssssssssssssssssssssssssasdfasdfdsssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssdjijee                                                   
