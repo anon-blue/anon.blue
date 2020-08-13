@@ -37,8 +37,8 @@ fffffffffffffffffffffffffffffasdfasdfsdaffma
                                                                                 
                                                                                 
                                                                                 
-     ut    undertale    undertale    undertale    undeertale                    
-            tell me plesase, im woer.---mo sowwjjjrry im not good, please plase 
+   wddwdwdwdjiajdiajdsj    jsajdklsadjlkawjidjslajdkwajjidj o jdkasl jdawdjlaijd
+ska   kjlawidjksaljdaidjksa   ksjdliaw--mo sowwjjjrry im not good, please plase 
 tell me hwat im doing here?¿'' im wrong? dou        Hellssssssjjjjksdjafirjeifoj
 iadjfijjrjfkdafjksfsjsssssssssssssssssssssssssssssssasdfasdfdsssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
