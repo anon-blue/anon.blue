@@ -16,28 +16,28 @@ dddddddddddddddsdwefwrvfrevgetbgrtbv
                                                                                 
                                                                                 
                                                                                 
-                                                               alors que les mor
-sdrg srgffffffffffffffffffffffffff rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrcxvlkklsffjsdmlsdfnkdsdkfd
-sdsjkrrrrrrrrrrrrrrrrrrrrrrrrrrrr            sdfsd sd s        yongyuan xiangbud
-ao zheshige                       e zusaaaaasdkkkkkkkkklif                      
- ===============================================================================
-=if the computer = 1221985                                  sdaddsderffuckyoufuc
-kyoufukcyoufuckyou print("Hello stranger!")dfjfabjdfasjfkjsdjksdfjjifdlfjkldjsfk
-jksjdfrtyhtggvbjuvbbarghhbj////////////////::////////////:/ jihii)          nhhb
-hbhgbhvvvcgvcvvg                                                                
-                            gjvghjjjjjjjnnnmmmmhknkvgjgvjvgjhjbkblbjkkokogxdfgdx
-gvcnvhxffgxdgxdgbvbjgvhjjk,a,sklssdsddddddddddddddddddsadwjgfjfh,kokolhjhhhhhhhh
-hhhhhhhhhhhhhhh    Foolish humajgjdgazhangzibozuishuangjdajdajwakdng to distory 
-the world!                                                                      
-     l  grdg groundhog dazy                  come t ça marche comment ??????????
-??????                                                                          
-                                                                         jjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjhhhhhhhgyuuuuuuuuuuuuuuuuyggggggggggggggy             
-                                  undertale 123jjjk     Are you OK?  indeaadfasd
-fasns    sans    sans    sans    sans    sans    ud    ut    ut    ut    ut    u
-t    ut    undertale    undertale    undertale    undeertale                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+     ut    undertale    undertale    undertale    undeertale                    
             tell me plesase, im woer.---mo sowwjjjrry im not good, please plase 
 tell me hwat im doing here?¿'' im wrong? dou        Hellssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssasdfasdfdsssssssssssssssssss
