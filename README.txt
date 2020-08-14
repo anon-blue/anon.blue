@@ -43,8 +43,8 @@ omimomomjonnj j                    ojmojmomkljiawjdkawjdilsajdlwajdi sajdiwajdl
 wajksajdljwak                   widljalwkdjsklajdwklajdisjakdwj ksjald dffgmijii
 anigksookfsjiojbgklmnkgpkfkkkkkkkkkkkkkkkkkkkkkkdjshkfhushuhuignrbuiauwhuuigbsss
 ggghdfyvvvggfggffgghhhhhfghvvgffgg                                 jhjhmjmjmgfbf
-gbgfbfbgbfgbgfbgfbgfbgbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb=======================================
+gbgfbfbgbfgbgfbgfbgfbgbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbDDQ
+QWQbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb=======================================
 =========================================iiuuuuuu7===                           
                            rrtrttrjhkgkgkhghktjtdttsdhsdhdtthdthsdtthsdrthsersge
 rddrtthrggrhgjglijiuygjghgfjhkkjhjlkjkjjljlllllllllkjicdsugdshfoisahicjksddshjcb
