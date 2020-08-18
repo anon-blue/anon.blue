@@ -50,9 +50,9 @@ assssssssssssssssssssssssssssssss  s
 asjijngbinokl;'+62++123123444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444123iu                                 asdfwrgtsd
 fsdfsdfsdfsdfsasdgsafsdfsdf     jjj                 mnt                         
-                                                      22102hgighkhdfjklhdj      
-                                                                 rfgrdd222222222
-222222222222222222222222222222222222222222cewvwewwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+           jjjk  jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjj222222222222222cewvwewwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
