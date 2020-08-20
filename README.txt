@@ -49,8 +49,8 @@ ddddddddddddddddddsdasada                    b                 hdieuueej7e7eehee
    dasklfjasldjfaljjkjwjljeljnmn,xcjzwhhm is a pig and i am pig too, qsz is also
  a pig , we are all pigs, i am the most ugly girl in the world and the most stup
 id the most silly the most dirty the most untidy! yiou know what ? i am going to
- die now ! see you nxtet life ! haha                mnt                         
-          jjjk  jjjjjjjjjjjjjjjjjjjjjjjjjjjjjnnjbhbhbswswswdascss c   c xc asdfa
+ die now ! see you nxtet life ! hahahahahahahahahahhhahahahaha! you wanana die b
+y me, don't you? you wanana die by me?dongy jnnjbhbhbswswswdascss c   c xc asdfa
 sdfacxzcz xc c sda s d dcdwacwewqewqjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjj222222222222222cewvwewwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
