@@ -46,9 +46,9 @@ ddddddddddddddddddsdasada                    b                 hdieuueej7e7eehee
 6uushwwu                                                                        
                                           jjjakwkeieetppql                      
                                                                                 
-   dasklfjasldjfaljjkjwjljeljnmn,xcjzwhhm is a pig and i am pig too,wedd    sssd
-asjijngbinokl;'+62++123123444444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444123iu                                 asdfwrgtsd
+   dasklfjasldjfaljjkjwjljeljnmn,xcjzwhhm is a pig and i am pig too, qsz is also
+ a pig , we are all pigs, i am the most ugly girl in the world and the most stup
+id the most silly th444444444444123iu                                 asdfwrgtsd
 fsdfsdfsdfsdfsasdgsafsdfsdf     jjj                 mnt                         
           jjjk  jjjjjjjjjjjjjjjjjjjjjjjjjjjjjnnjbhbhbswswswdascss c   c xc asdfa
 sdfacxzcz xc c sda s d dcdwacwewqewqjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
