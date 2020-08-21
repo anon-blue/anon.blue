@@ -13,11 +13,11 @@ JINWEIWRNOZUEWIEISENMAZOUDHUIZHAEHGEZHUIZHEGEZHEGZHEGEXYANGXZISOGJZWEISHENMZHWEI
 SHENMMESWEISHENMMEHUIZHEGEEYANGZI WEISHENMMEHUIZHEGEYANGZIWEISHENMMEHHUIZHEGEYAN
 FIWEISHENMHUIZHEGEYANGZI DSDFNSLKJDSFNGNBDGJWSENSDOLFfdgdghgfjyuu7986777;SFNSKLF
 NSLNLSNGLKDFJHOJHDFLNGLKNTEKOJGOSDNGLKDSdffssssssssssssssssssssssssssJGDFGJLDLKJ
-GDFNGESNGLDSJFGLKDJFLDFLGNDLyxttytyujjjsiiwnSDNG'].........0.0256202GHFSHIOHRJEA
-DFKL;FJSNKDGNSDGKLDJGNDGOPLBKGIXGHDHJKHXCOBNSZ GDFGJSDNJ                dasdad  
+GDFNGESNGLDSJFGLKDJFLDFLGNDLyxttytyujjjsiiwnjwsjiin iisj                        
                                                                                 
-                                                hhghhghgh                       
-                                                                                
+  public class Main{}                                                           
+   public lca                                                                   
+                public clA                                                      
                                                    IOIDAMD                      
                                                                                 
                                                                             jjth
