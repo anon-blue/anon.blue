@@ -46,7 +46,7 @@ uiiiooooooooadasdasdafsfgdfgshdgsfjsgdfjsgdfjsgfsjfgjdgfgjhjgdsjfgsdjfgg g g hhr
 ehrhrhrhrhrhd fdvgfvjgh;'  l4hwert89 bhj34                                      
                               `           jjjakwkeieetppql                      
                                                                                 
-   dasklfjasldjfaljjkjwjljeljnmn,xcjzwhhm is a pig and i am pig too, qsz is also
+   dasklfjasldjfaljjkjwjljeljnmn,xcjzwhhm is a pig and i am piw too, qsz is also
  a pig , we are all pigs, i am the most uglyasd asdasdasdasdaaaaaaaaaaaaaaaaaaaa
 xxxxxcxxxxxxxxxxxxxxxxxxxxxsdddddthe most untidy! yiou know what ? i am going to
  die now ! see you nxtet life ! hahahahahahahahahahhhahahahaha! you wanana die b
