@@ -9,13 +9,13 @@
                                                                                 
                                                                               h 
             warning                                                             
-            this website will close in few days, next week I will close it, Beca
-use My scho                                                                     
+            this hebsite will close in few days, next week I will close it, Beca
+use My school is begin. Si i                                                    
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                     h                                                          
                                                                                 
                                                                               h 
                                                                                 
@@ -36,7 +36,7 @@ use My scho
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                           h                                    
                                                                                 
                                                                                 
                                                                                 
