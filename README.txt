@@ -9,7 +9,7 @@
                                                                                 
                                                                                 
             Warning                                                             
-            this hebsite will close in few days, next week I will close it, Beca
+            This website will close in few days,Because my school start. So Beca
 use My school is begin. Si i                                                    
                                                                                 
                                                                                 
