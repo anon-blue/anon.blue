@@ -10,7 +10,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh><              ()('^')
    asdasdsadfsfnlkdsnf m12sqwqszszzzszzzzzzzzzzzzzhl;fklbndl;gjkpe;oroptgld;kfgj
 erhj         djffklgndklfngbgjgfjfgjghkjhkhkh khkhkjhjghjgfjgfjgfjgfjgfjgfjhgfhg
 fhgfhgfhfghgfffffffffffffffffffffffghgfhg                                       
-                     gfgfjgfjgfjgfjgfjgfjgfj                                    
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -31,11 +31,11 @@ fhgfhgfhfghgfffffffffffffffffffffffghgfhg
 /--vhhhvvviiuuiihgggggugioddrtyc7788944vvvvvvvrjhhhhjkhxdfxfkljadmmlkmdmdcoejfhd
 dawdadddddfffdsfewfwefewfeqddddddddddddddsssssssssssssssssssssssssfghfdfd1111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111211111111111111111111111111111111111111
+1111111111111111                                                                
+                                                                                
+                                                                                
+                                                                                
+                                      111211111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111111111111111111111111111111111333333333333333333333333efwtrftjytjbghm][ser
