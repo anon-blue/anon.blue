@@ -10,7 +10,7 @@
                                                                                 
             Warning                                                             
             This website will close in few days,Because my school start. So enjo
-y these few days!:y gin. Si i                                                   
+y these few days!: )                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -24,7 +24,7 @@ y these few days!:y gin. Si i
                                                                                 
                                                                                 
                                                                                 
-                                                               r                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
