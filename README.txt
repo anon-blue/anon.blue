@@ -27,21 +27,21 @@ y these few days!: )
                                                                                 
                                 jjjC:/                                          
                                                                                 
-                                              gjdifajfidfaafljaajlajflajaljfajjj
-ljljllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllll                                          
-                                                                                
-               c\\dffjk]kpi                                                     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                   sadsadaasdjlasdjljl;kasklj;kjl;adsjkl;adasdlkj;asd;kljasdlkja
-dspok'asdlkjadsoijsadfisdfsdfsfsadfsajfshfsdfsafskjfhdsklfhkpuuucpublicstatic vo
-id mian install paht . do you understand ? oh you know nothing john snow!       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
