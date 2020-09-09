@@ -30,13 +30,13 @@ hdashkhdjkahdhkjashkdhjkhajk
                                                                     sd          
                         ,                                                       
                            fffss                      asdasdasdasdasdasdasdwdasd
-wdasdasdadasdasdsad  0                          sadasdasdxdasdasdasdasdasdasssss
-sssssssssssssabcdefgasssssssssssssssssssssss                                    
-                                                                                
-                                                                   ffgcgeafdcdfe
-fffqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqvjjjjjhlhgghhu1223213222222222222222222222222222222222222222222
-22ijijiasfjthis222                                                              
+wdasdasdadasdasdsaddklfjsdslaozishzneshicaole asdhasdhasdhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh22222222222222222hhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhsiifyourewatching theis                                   
                                                                                 
                                                 hsjssusjsjsjiissjsjsnnnsnsjixixj
 xkskskoxoxoxookkks!!oosoapqppqnnklmnllkas                                       
@@ -52,7 +52,7 @@ xkskskoxoxoxookkks!!oosoapqppqnnklmnllkas
                                                   dfdfsfsd        dffd          
        gffnj5454\\\\sfsfsfsdshgsgfdhfgjsyhdnynsrsfdfdfdfdfdsefseffsf            
                                                                                 
-                                             kkkknnnnnnnolll;;;;;;;;;;;;;;;;;;;;
+                                             kkkknnnnnnnolll           ;;;;;;;;;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;shkljasdhjdas hkhskjdashkjdas djfk;ljdf ldfasj 
 ldf jldfjfdjdfkljdfkljfdifijfdkj[fdfd kd[fiddfpojdklfdkfjfjpijeoiejhfjdjdfjfkdjd
 fklkk  kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkiiiiiiiiiiiiiiiiijjjjjjjjjjjjjjjjjjjm
