@@ -3,58 +3,58 @@ your computer.
                                                                                 
 If this is the first time you've seen this stop error screen,restart your comput
 er.If this screen appears again,follow these steps:                             
-   333333333333333333333 33333333333 33333333333 uuudadjflkajodifaldjfjl；dfgdfgd
-ffffffffffffffffffffffffffffff ffffffffffffffffffger asdqesdffsdsdfsdsdsdfsddasd
-asdasdasdsfsdnzzyou compoterijwwwwishsssssssssssssssssssssssssssssssslkkjl;kl;fd
-sklgfdskl;kl;dsgklfds kl;fds dfsgfkld;skgfld;skglfd;sgklfd;skglf;dsklgf;dskgopek
-wgoprkeopwgkropekopgkropeskopgkropeskgofpdskogpfkdopskgopfkdopsgkopfdksopgkfopds
-kopgfkopdskgopfdko4354okdfdkafkdsoafkopsdakopfdksopafkopsdakopfkdsopakfpdksapfkp
-doskafodksopakfopdkspafkpodskopafkdopskafopdkspakfpdksopafkopdskaopfkdopsakfopdk
-sopafkopdskzzpfkdopsakopfdksopafkopdsakopfdksopakfpodskaopfkdposakfpodskapfkdops
-akfopdskapofkdopsakfopdksopafkpodskaopfkdopsakfopdkopsakfopdskopafkdopsakfopdsak
-pfdsok                              lklkjlkjlkdasdjlsdasdkjlklkdjsakjdlasdsanc,m
-xnc,lkasdlkfjdkkkkkkdkdddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddd                                
+                                                                             333
+333333333333333333 33333333333 33333333333 uuudadjflkajodifaldjfjl；dfgdfgdffffff
+ffffffffffffffffffffffff ffffffffffffffffffger asdqesdffsdsdfsdsdsdfsddasdasdasd
+asdsfsdnzzyou compoterijwwwwishsssssssssssssssssssssssssssssssslkkjl;kl;fdsklgfd
+skl;kl;dsgklfds kl;fds dfsgfkld;skgfld;skglfd;sgklfd;skglf;dsklgf;dskgopekwgoprk
+eopwgkropekopgkropeskopgkropeskgofpdskogpfkdopskgopfkdopsgkopfdksopgkfopdskopgfk
+opdskgopfdko4354okdfdkafkdsoafkopsdakopfdksopafkopsdakopfkdsopakfpdksapfkpdoskaf
+odksopakfopdkspafkpodskopafkdopskafopdkspakfpdksopafkopdskaopfkdopsakfopdksopafk
+opdskzzpfkdopsakopfdksopafkopdsakopfdksopakfpodskaopfkdposakfpodskapfkdopsakfopd
+skapofkdopsakfopdksopafkpodskaopfkdopsakfopdkopsakfopdskopafkdopsakfopdsakpfdsok
+                              lklkjlkjlkdasdjlsdasdkjlklkdjsakjdlasdsanc,mxnc,lk
+asdl                                                                            
                                                                                 
                                                                                 
                                                                                 
-                                                                      hjgjghjghj
-ghjasdasdas                        sfsgggggyzzh             sfs                 
-          asdasdas dasfasfasfasdassss            jkjkjkasdlfkjasdfasdfffffffffff
-fffffffffffffghsaduhiafasdfjhasdkjfhlaslkdjhfaklsjdhfklajsdhfkljasdhflkjahsdfklj
-hasdfkjhfdkljhkljhlkjhhkjlsdafg                                    vcxvcxvnmjiao
-linjianfdsjgouge'                                                               
+                          hjgjghjghjghjasdasdas                        sfsgggggy
+zzh             sfs                           asdasdas dasfasfasfasdassss       
+     jkjkjkasdlfkjasdfasdffffffffffffffffffffffffghsaduhiafasdfjhasdkjfhlaslkdjh
+faklsjdhfklajsdhfkljasdhflkjahsdfkljhasdfkjhfdkljhkljhlkjhhkjlsdafg             
+                       vcxvcxvnmjiaolinjianfdsjgouge'                           
                                                                                 
-                        sssccwoj dwjij posdak lsdjfsdklasdjklklasdjwqod cthiswef
-lkewjfkewlf           wojduewojdoashdlkasdjqwlfskdjhcajkl,dasd a;sdklas         
-                                                            aw  sasssaaass      
+                                                            sssccwoj dwjij posda
+k lsdjfsdklasdjklklasdjwqod cthisweflkewjfkewlf           wojduewojdoashdlkasdjq
+wlfskdjhcajkl,dasd a;sdklas                                                     
+                aw  sasssaaass                                                  
                                                                                 
-                                                                                
-                                          hhhh                                  
-                                                                                
-                                                                                
-                                                       hbghhhjjjjjjjjjjjgg      
-                      dsdadadadddcadadasdasxsaxsdasdzsadadd                     
-                                                                           jkk  
+                                                                              hh
+hh                                                                              
                                                                                 
                                                                                 
-                                  rvererer ebebrefcffffffffffffffffffffffffffddd
-dddddddddddefwfeewe                                                             
+           hbghhhjjjjjjjjjjjgg                            dsdadadadddcadadasdasx
+saxsdasdzsadadd                                                                 
+                               jkk                                              
                                                                                 
-                               asdfdddddasdfefe                                 
+                                                                      rvererer e
+bebrefcffffffffffffffffffffffffffddddddddddddddefwfeewe                         
+                                                                                
+                                                                   asdfdddddasdf
+efe                                                                             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                                       aasdbaadbaqwewq                          
                                                                                 
-   aasdbaadbaqwewq                                                              
+                                                      vvvvv  v  g哈哈摸鱼    bbjhwhe
+n i look foraward t to do shometingbad a i alsways want to see ouyou course whte
+n i see you i will fell very kind an                                            
                                                                                 
-                  vvvvv  v  g哈哈摸鱼    bbjhwhen i look foraward t to do shometingb
-ad a i alsways want to see ouyou course whten i see you i will fell very kind an
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
