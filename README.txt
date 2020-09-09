@@ -17,7 +17,7 @@ Techical information:
                                                                                 
 f12 can do anything                                                             
                                                                                 
-                                                                                
+                                                   fAWDADSADWDASDAWDADSD        
                                                                                 
                                                                                 
                                                                                 
@@ -51,7 +51,7 @@ hvjhvjvbbhbbhhwozhendeubmingbai1khndiha   sdhl44+*-dcl;ndknlasnkdnsnlknaskm;las
                                                                                 
                           ff  ffsaffsdfdfsdfaefwqfdwfhjsakhfjkefhjklashfakjsdhfj
 kashfjksdhfjkashdfajsdjflkfjkajs/)-===-=fpfsdklfksl;kf;a'lfdk;lekf;l.,as/.,fkkkk
-k wah bahh barh                                                                 
+k wah bahh barh bna                                                             
                                                                                 
                                                                                 
                                                                                 
