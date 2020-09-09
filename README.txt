@@ -11,11 +11,11 @@ fg■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfu
 29■□□□□□□□□□□□□□□□□□□■trftgsdujyewrgxrtfsssssssssssss■□□□□□□□□□□□□□□□□□■■sssssss
 ss■■□□□□□□□□□□□□□□□□■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■sssssss
 ss■■□□■■□□■■■■□□■■□□■■sssssssssssssssssssssssssssssss■■□■■■□■■■■■□■■■□■■■sssssss
-ss■■■■■■■■■■■■■■■■■■■■ssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ss■■■■■■■■■■■■■■■■■■■■*BARK*ssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk k wah bahh barh bdsl
-；fkds l；kfl；sdkflksdlc 1123321312 3123123                                       
+sssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk k wah bahh bar
+h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                 
                                                                                 
                                                                                 
                                                                                 
@@ -29,13 +29,13 @@ sssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk k wah bahh
                                                                                 
                                                                                 
                                                                                 
-                                                            l ljjoajdoif jiiladj
-fooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjddddddddddddddddd
+                                                                  l ljjoajdoif j
+iiladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddd                                                                         
+ddddddddddddd                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -48,7 +48,7 @@ ddddddd
                                                                                 
                                                                                 
                                                                                 
-                  245yh                                                         
+                        245yh                                                   
                                                                                 
                                                                                 
                                                                                 
