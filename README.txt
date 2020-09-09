@@ -15,6 +15,14 @@ Techical information:
                                                                                 
 *** stop:0×0000008E （0×0000005，0×805F91E2，0×B3EE79A8，0×00000000）                
                                                                                 
+f12 can do anything                                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                           jkkj 
                                                                                 
                                                                                 
                                                                                 
@@ -22,16 +30,8 @@ Techical information:
                                                                                 
                                                                                 
                                                                                 
-                                                        jkkj                    
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                     vj                                                         
+                                      vj                                        
                                                                                 
                                                                                 
                                                                                 
