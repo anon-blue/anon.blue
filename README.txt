@@ -3,11 +3,12 @@
 以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
 000008E(0×0000005×805F91E2E2E2)。(sondoaisndioasndaaassssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssss ssssssssssssssssssssssssssssssssssssssssssssss
+sssssssssss■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■■sssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssKf；a‘lfd
-k；lekf；l.，fkkk k wah bahh barh bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123    
+ssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk k wah bahh barh bdsl；
+fkds l；kfl；sdkflksdlc 1123321312 3123123                                        
                                                                                 
                                                                                 
                                                                                 
@@ -15,19 +16,19 @@ k；lekf；l.，fkkk k wah bahh barh bdsl；fkds l；kfl；sdkflksdlc 1123321312
                                                                                 
                                                                                 
                                                                                 
-                           □■                                                   
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                      l ljjoajdoif jiiladjfooajifjioaijiejiflakdfjoiwjeifjiwejif
-jiewjijfijfiwejifjiwjeifjddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+                                                           l ljjoajdoif jiiladjf
+ooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjdddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddd                              
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddd                                                                         
                                                                                 
                                                                                 
                                                                                 
@@ -40,8 +41,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-        245yh                                                                   
+                                       245yh                                    
                                                                                 
                                                                                 
                                                                                 
