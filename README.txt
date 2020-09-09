@@ -11,50 +11,50 @@ top message,disable the driver or check with the manufacturer for driver updates
 e Mode to remove or disable components,restart your computer.Press F8 to select 
 advanced startup options,and then select safe mode                              
                                                                                 
-Techical information:         333333333333333333333 33333333333 33333333333 uuud
-adjflkajodifaldjfjl；dfgdfgdffffffffffffffffffffffffffffff ffffffffffffffffffger 
-asdqesdffsdsdfsdsdsdfsddasdasdasdasdsfsdnzzyou compoterijwwwwishssssssssssssssss
-sssssssssssssssslkkjl;kl;fdsklgfdskl;kl;dsgklfds kl;fds dfsgfkld;skgfld;skglfd;s
-gklfd;skglf;dsklgf;dskgopekwgoprkeopwgkropekopgkropeskopgkropeskgofpdskogpfkdops
-kgopfkdopsgkopfdksopgkfopdskopgfkopdskgopfdko4354okdfdkafkdsoafkopsdakopfdksopaf
-kopsdakopfkdsopakfpdksapfkpdoskafodksopakfopdkspafkpodskopafkdopskafopdkspakfpdk
-sopafkopdskaopfkdopsakfopdksopafkopdskzzpfkdopsakopfdksopafkopdsakopfdksopakfpod
-skaopfkdposakfpodskapfkdopsakfopdskapofkdopsakfopdksopafkpodskaopfkdopsakfopdkop
-sakfopdskopafkdopsakfopdsakpfdsok                              lklkjlkjlkdasdjls
-dasdkjlklkdjsakjdlasdsanc,mxnc,lkasdl                                           
+Techical information:                                                           
                                                                                 
+*** stop:0×0000008E （0×0000005，0×805F91E2，0×B3EE79A8，0×00000000）                
                                                                                 
-                                                                                
-                                                           hjgjghjghjghjasdasdas
-                        sfsgggggyzzh             sfs                           a
-sdasdas dasfasfasfasdassss            jkjkjkasdlfkjasdfasdffffffffffffffffffffff
-ffghsaduhiafasdfjhasdkjfhlaslkdjhfaklsjdhfklajsdhfkljasdhflkjahsdfkljhasdfkjhfdk
-ljhkljhlkjhhkjlsdafg                                    vcxvcxvnmjiaolinjianfdsj
-gouge'                                                                          
-                                                                                
-             sssccwoj dwjij posdak lsdjfsdklasdjklklasdjwqod cthisweflkewjfkewlf
-           wojduewojdoashdlkasdjqwlfskdjhcajkl,dasd a;sdklas                    
-                                                 aw  sasssaaass                 
-                                                                                
-                                                                                
-                        hhhh                                                    
-                                                                                
-                                                                                
-                                            hbghhhjjjjjjjjjjjgg                 
-           dsdadadadddcadadasdasxsaxsdasdzsadadd                                
-                                                                jkk             
-                                                                                
-                                                                                
-                       rvererer ebebrefcffffffffffffffffffffffffffdddddddddddddd
-efwfeewe                                                                        
-                                                                                
-                     asdfdddddasdfefe                                           
+                                                        333333333333333333333 33
+333333333 33333333333 uuudadjflkajodifaldjfjl；dfgdfgdfffffffffffffffffffffffffff
+fff ffffffffffffffffffger asdqesdffsdsdfsdsdsdfsddasdasdasdasdsfsdnzzyou compote
+rijwwwwishsssssssssssssssssssssssssssssssslkkjl;kl;fdsklgfdskl;kl;dsgklfds kl;fd
+s dfsgfkld;skgfld;skglfd;sgklfd;skglf;dsklgf;dskgopekwgoprkeopwgkropekopgkropesk
+opgkropeskgofpdskogpfkdopskgopfkdopsgkopfdksopgkfopdskopgfkopdskgopfdko4354okdfd
+kafkdsoafkopsdakopfdksopafkopsdakopfkdsopakfpdksapfkpdoskafodksopakfopdkspafkpod
+skopafkdopskafopdkspakfpdksopafkopdskaopfkdopsakfopdksopafkopdskzzpfkdopsakopfdk
+sopafkopdsakopfdksopakfpodskaopfkdposakfpodskapfkdopsakfopdskapofkdopsakfopdksop
+afkpodskaopfkdopsakfopdkopsakfopdskopafkdopsakfopdsakpfdsok                     
+         lklkjlkjlkdasdjlsdasdkjlklkdjsakjdlasdsanc,mxnc,lkasdl                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+     hjgjghjghjghjasdasdas                        sfsgggggyzzh             sfs  
+                         asdasdas dasfasfasfasdassss            jkjkjkasdlfkjasd
+fasdffffffffffffffffffffffffghsaduhiafasdfjhasdkjfhlaslkdjhfaklsjdhfklajsdhfklja
+sdhflkjahsdfkljhasdfkjhfdkljhkljhlkjhhkjlsdafg                                  
+  vcxvcxvnmjiaolinjianfdsjgouge'                                                
                                                                                 
-                                                                         aasdbaa
-dbaqwewq                                                                        
+                                       sssccwoj dwjij posdak lsdjfsdklasdjklklas
+djwqod cthisweflkewjfkewlf           wojduewojdoashdlkasdjqwlfskdjhcajkl,dasd a;
+sdklas                                                                     aw  s
+asssaaass                                                                       
                                                                                 
-    vvvvv  v  g哈哈摸鱼    bbjhwhen i look foraward t to do shometingbad a i alsways
+                                                 hhhh                           
+                                                                                
+                                                                                
+                                                                      hbghhhjjjj
+jjjjjjjgg                            dsdadadadddcadadasdasxsaxsdasdzsadadd      
+                                                                                
+          jkk                                                                   
+                                                                                
+                                                 rvererer ebebrefcffffffffffffff
+ffffffffffffddddddddddddddefwfeewe                                              
+                                                                                
+                                               asdfdddddasdfefe                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
