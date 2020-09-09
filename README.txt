@@ -3,15 +3,15 @@
 以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
 000008E(0×0000005×805F91E2E2E2)。(sondoaisndioasndaaassssssssssssssssssssssssssss
 ss■■■■■■■■■■■■■■■■■■■■sssssssssssssssssssssssssssssss■■□■□□□□■□■■■■■■■■■■ sabsut
-cxlbasgtuetvgvzxfdegisxjowfqWPZQSDZQAREPWTVNHUYVOLDXCGILWECOTILCNUXAGUJQ249FXQHG
-BIWQCRTGB328CXBUJGBUguilwcdtbku3485gtbukcrftbxukwextbukxwrtfuedxewgyrvysdgi3tbei
-fgudg46gdujwfetwjgfut578wqdguj57tfrjdwge29trftgsdujyewrgxrtfssssssssssssssssssss
+cx■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQAREP
+WTVNHUYVOLDXCGILWECOTILCNUXAGUJQ249FXQHGBIWQCRTGB328CXBUJGBUguilwcdtbku3485gtbuk
+crftbxukwextbukxwrtfuedxewgyrvysdgi3tbeifgudg46gdujwfetwjgfut578wqdguj57tfrjdwge
+29trftgsdujyewrgxrtfssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk k wah bahh barh bdsl；fkds l；kfl；sdkflksd
-lc 1123321312 3123123                                                           
+sssssssssssssssssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.，fkkk 
+k wah bahh barh bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                   
                                                                                 
                                                                                 
                                                                                 
@@ -25,12 +25,13 @@ lc 1123321312 3123123
                                                                                 
                                                                                 
                                                                                 
-                                        l ljjoajdoif jiiladjfooajifjioaijiejifla
-kdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjddddddddddddddddddddddddddddddddddddd
+                                                                                
+l ljjoajdoif jiiladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwje
+ifjddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd            
+ddddddddddddddddddddddddddd                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -43,8 +44,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                245yh                                                           
+                                                     245yh                      
                                                                                 
                                                                                 
                                                                                 
