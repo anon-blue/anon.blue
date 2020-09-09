@@ -1,6 +1,6 @@
 A problem has been detected and Windows has been shut down to prevent damage to 
 your computer.                                                                  
-                                                                                
+      sasdasdasdasdsa                                                           
 If this is the first time you've seen this stop error screen,restart your comput
 er.If this screen appears again,follow these steps:                             
                                                                                 
@@ -25,9 +25,9 @@ f12 can do anything
                                                                           dfas d
 sfasdfasdfdfasdfadsfadsf                                                        
                                                                                 
-                                                  sas                           
-                                                                                
-                                                                                
+                                                  sashello how are iyou asoidnai
+sondoaisndioasndaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssss                                            
                                                                                 
                                                                                 
                                                                                 
@@ -41,7 +41,7 @@ hvjhvjvbbhbbhhwozhendeubmingbai1khndiha   sdhl44+*-dcl;ndknlasnkdnsnlknaskm;las
                                                                                 
                                                                                 
                                                                              165
-6554545                                                                         
+6554545                                 dddd                                    
                                                                                 
                                                                                 
                                                                                 
