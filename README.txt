@@ -10,51 +10,51 @@ top message,disable the driver or check with the manufacturer for driver updates
 .Disable BIOS memory options such as caching or shadowing if you need tu use saf
 e Mode to remove or disable components,restart your computer.Press F8 to select 
 advanced startup options,and then select safe mode                              
-                  333333333333333333333 33333333333 33333333333 uuudadjflkajodif
-aldjfjl；dfgdfgdffffffffffffffffffffffffffffff ffffffffffffffffffger asdqesdffsds
-dfsdsdsdfsddasdasdasdasdsfsdnzzyou compoterijwwwwishssssssssssssssssssssssssssss
-sssslkkjl;kl;fdsklgfdskl;kl;dsgklfds kl;fds dfsgfkld;skgfld;skglfd;sgklfd;skglf;
-dsklgf;dskgopekwgoprkeopwgkropekopgkropeskopgkropeskgofpdskogpfkdopskgopfkdopsgk
-opfdksopgkfopdskopgfkopdskgopfdko4354okdfdkafkdsoafkopsdakopfdksopafkopsdakopfkd
-sopakfpdksapfkpdoskafodksopakfopdkspafkpodskopafkdopskafopdkspakfpdksopafkopdska
-opfkdopsakfopdksopafkopdskzzpfkdopsakopfdksopafkopdsakopfdksopakfpodskaopfkdposa
-kfpodskapfkdopsakfopdskapofkdopsakfopdksopafkpodskaopfkdopsakfopdkopsakfopdskopa
-fkdopsakfopdsakpfdsok                              lklkjlkjlkdasdjlsdasdkjlklkdj
-sakjdlasdsanc,mxnc,lkasdl                                                       
+                                                                                
+Techical information:         333333333333333333333 33333333333 33333333333 uuud
+adjflkajodifaldjfjl；dfgdfgdffffffffffffffffffffffffffffff ffffffffffffffffffger 
+asdqesdffsdsdfsdsdsdfsddasdasdasdasdsfsdnzzyou compoterijwwwwishssssssssssssssss
+sssssssssssssssslkkjl;kl;fdsklgfdskl;kl;dsgklfds kl;fds dfsgfkld;skgfld;skglfd;s
+gklfd;skglf;dsklgf;dskgopekwgoprkeopwgkropekopgkropeskopgkropeskgofpdskogpfkdops
+kgopfkdopsgkopfdksopgkfopdskopgfkopdskgopfdko4354okdfdkafkdsoafkopsdakopfdksopaf
+kopsdakopfkdsopakfpdksapfkpdoskafodksopakfopdkspafkpodskopafkdopskafopdkspakfpdk
+sopafkopdskaopfkdopsakfopdksopafkopdskzzpfkdopsakopfdksopafkopdsakopfdksopakfpod
+skaopfkdposakfpodskapfkdopsakfopdskapofkdopsakfopdksopafkpodskaopfkdopsakfopdkop
+sakfopdskopafkdopsakfopdsakpfdsok                              lklkjlkjlkdasdjls
+dasdkjlklkdjsakjdlasdsanc,mxnc,lkasdl                                           
                                                                                 
                                                                                 
                                                                                 
-                                               hjgjghjghjghjasdasdas            
-            sfsgggggyzzh             sfs                           asdasdas dasf
-asfasfasdassss            jkjkjkasdlfkjasdfasdffffffffffffffffffffffffghsaduhiaf
-asdfjhasdkjfhlaslkdjhfaklsjdhfklajsdhfkljasdhflkjahsdfkljhasdfkjhfdkljhkljhlkjhh
-kjlsdafg                                    vcxvcxvnmjiaolinjianfdsjgouge'      
+                                                           hjgjghjghjghjasdasdas
+                        sfsgggggyzzh             sfs                           a
+sdasdas dasfasfasfasdassss            jkjkjkasdlfkjasdfasdffffffffffffffffffffff
+ffghsaduhiafasdfjhasdkjfhlaslkdjhfaklsjdhfklajsdhfkljasdhflkjahsdfkljhasdfkjhfdk
+ljhkljhlkjhhkjlsdafg                                    vcxvcxvnmjiaolinjianfdsj
+gouge'                                                                          
+                                                                                
+             sssccwoj dwjij posdak lsdjfsdklasdjklklasdjwqod cthisweflkewjfkewlf
+           wojduewojdoashdlkasdjqwlfskdjhcajkl,dasd a;sdklas                    
+                                                 aw  sasssaaass                 
                                                                                 
                                                                                 
- sssccwoj dwjij posdak lsdjfsdklasdjklklasdjwqod cthisweflkewjfkewlf           w
-ojduewojdoashdlkasdjqwlfskdjhcajkl,dasd a;sdklas                                
-                                     aw  sasssaaass                             
+                        hhhh                                                    
                                                                                 
                                                                                 
-               hhhh                                                             
+                                            hbghhhjjjjjjjjjjjgg                 
+           dsdadadadddcadadasdasxsaxsdasdzsadadd                                
+                                                                jkk             
                                                                                 
                                                                                 
-                                hbghhhjjjjjjjjjjjgg                            d
-sdadadadddcadadasdasxsaxsdasdzsadadd                                            
-                                                    jkk                         
+                       rvererer ebebrefcffffffffffffffffffffffffffdddddddddddddd
+efwfeewe                                                                        
                                                                                 
-                                                                                
-           rvererer ebebrefcffffffffffffffffffffffffffddddddddddddddefwfeewe    
-                                                                                
-                                                                                
-        asdfdddddasdfefe                                                        
+                     asdfdddddasdfefe                                           
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                            aasdbaadbaqwewq     
+                                                                         aasdbaa
+dbaqwewq                                                                        
                                                                                 
-                                                                       vvvvv  v 
- g哈哈摸鱼    bbjhwhen i look foraward t to do shometingbad a i alsways want to see 
-ouyou course whten i see you i will fell very kind an                           
+    vvvvv  v  g哈哈摸鱼    bbjhwhen i look foraward t to do shometingbad a i alsways
