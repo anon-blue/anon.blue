@@ -8,7 +8,7 @@ djfoijekdfa                 aasd asdwqesdfdfsdsdfsdfsdfsdfskdjfaiweonngie
                                                                                 
                 dff                   wstgre hryheg  aasd      vbhjsxwmhg dumgh 
 vihg ijhv imjh                                                                  
-             Warning       sadasfdacaonimanimabizhandoujibugaibeizilougouji     
+             Warning       sadasfdacaonimanimabisdfndoujibugaibeizilougouji     
              This website will close in few days,Because my school start. So enj
 oy these few days!: )                                                           
                                                                                 
@@ -34,8 +34,8 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
                                                                                 
                                                                                 
                                                                                 
-                              dsfsdfsdfg                                        
-                                whnb                                            
+                              dsfsdfsdfg                                 kkkkmkl
+niujknm,niugfytuyjgvhbjnuhyghbjuiouhygfvhbjkhh                                  
                                                                                 
                                                                                 
                                                                                 
