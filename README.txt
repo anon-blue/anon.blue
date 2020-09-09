@@ -1,60 +1,60 @@
-A problem has been detected and Windows has been shut down to prevent damage to 
-your computer.                                                                  
-      sasdasdasdasdsa                                                           
-If this is the first time you've seen this stop error screen,restart your comput
-er.If this screen appears again,follow these steps:                             
-                                                                                
-Check to be sure you have adequate disk space.If a driver is identified in the s
-top message,disable the driver or check with the manufacturer for driver updates
-.Try changing video adapterscheck with your hardware vendor for any BIOS updates
-.Disable BIOS memory options such as caching or shadowing if you need tu use saf
-e Mode to remove or disable components,restart your computer.Press F8 to select 
-advanced startup options,and then select safe mode                              
-                                                                                
-Techical information:                                                           
-                                                                                
-*** stop:0×0000008E （0×0000005，0×805F91E2，0×B3EE79A8，0×00000000）                
-                                                                                
-f12 can do anything                                                             
-                                                                                
-                                                   fAWDADSADWDASDAWDADSD        
-                                                                                
-              kkkkcvbcbvgvg                                                     
-                                                                                
-                                                                                
-                                                                          dfas d
-sfasdfasdfdfasdfadsfadsf                                                        
-                                                                                
-                                                  sashello how are iyou asoidnai
-sondoaisndioasndaaasssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssss                                            
+检测到了一个问题，并关闭了Windows，以防止对您的计算机造成损坏。Sasdasdasdsa如果您第一次看到这个停止错误屏幕，请重新启动comput错误。如果
+此屏幕再次出现，请执行以下步骤：检查是否有足够的磁盘空间。如果驱动器在顶部消息中被识别，请禁用驱动程序或与制造商检查驱动程序更新。请与硬件供应商更改视频适配器，
+以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
+000008E(0×0000005×805F91E2E2E2)。(sondoaisndioasndaaassssssssssssssssssssssssssss
+sssssssssssssssssssssssssssssssss ssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssKf；a‘lfd
+k；lekf；l.，fkkk k wah bahh barh bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123    
                                                                                 
                                                                                 
                                                                                 
-                                      vj                                        
-                        445885  k                                    fsdfsfsfsfs
-fssfdfdfds1231312312333333333333333333333333333333333333333333333333333333333333
-33333333333333333333333333333333333333333333333333333333333333333333333333333333
-33333333333333333333333333334444444444444444444444444444444444444444444444444444
-44444444444444444444444444444444444444444444444                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                             165
-6554545                                 ddddddddddddadadadadd                   
-                                                                     nnnknnkmkjj
-nnnjnbjb                                                                        
-                                                                                
-                                  kkk                                           
                                                                                 
                                                                                 
-                          thhgh                                                 
-                          ff  ffsaffsdfdfsdfaefwqfdwfhjsakhfjkefhjklashfakjsdhfj
-kashfjksdhfjkashdfajsdjflkfjkajs/)-===-=fpfsdklfksl;kf;a'lfdk;lekf;l.,as/.,fkkkk
-k wah bahh barh bna                                                             
-                                                                      fddsl;fkds
-l;kfl;sdkflksdlc                                                                
-                                                                      1123321312
-3123123                                                                         
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
