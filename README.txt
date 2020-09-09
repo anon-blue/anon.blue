@@ -3,8 +3,8 @@
                                                           rqrwwwwruuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuudadjflkajodifaldjfjlasdjiweklidljoidfekjonvoaidn
-laisunnfa adfjasdojfioasjdf;l  a;lsdjf;asdjf;ajd oiasjd;fljweiojao j;asjdfk alks
-djfoijekdfa                 aasd asdwqesdfdfsdsdfsdfsdfasdasdasdasdsfsdnmf,nfsff
+laisunnfa adfjasdojfioasjd';;;;;;;;;;;;;;;;dfgdfgdffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffger asdwqesdfdfsdsdfsdfsdfasdasdasdasdsfsdnmf,nfsff
 ffff waht what do you do iwang to go home and hav fun                           
                  dff                   wstgre hryheg  aasd hjjhhj`4jsxwmhg dumgh
  vihg ijhv imjh          sss                                               we sd
@@ -39,7 +39,7 @@ qqqqqqqqqqqqqqqqqqqvjjjjjhlhgghhu12232132222222222222222222222222222222222222222
 2222ijijiasfjthis222                                                            
                                                                                 
                                                   hsjssusjsjsjiissjsjsnnnsnsjixi
-xjxkskskoxoxoxookkks!!ldjp;oasm[nnklmnllkas                                     
+xjxkskskoxoxoxookkks!!oosoapqppqnnklmnllkas                                     
                                                                                 
                                                                                 
                            trrrrrrtrereejlejjekljwqejlkqwj33eejejlkq            
