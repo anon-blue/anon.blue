@@ -17,7 +17,6 @@ aaaaaah    sssssssssssssssssss    ssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.12111ssasah bahh bar
 h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                 
                                                                                 
-                              ■■■■■■                                            
                                                                                 
                                                                                 
                                                                                 
@@ -39,22 +38,23 @@ h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123
                                                                                 
                                                                                 
                                                                                 
-                                                      Get stick bugged LOL      
+                                                                                
+                                Get stick bugged LOL                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                          fdsa                                  
+                    fdsa                                                        
                                                                                 
-                                                                     245yh      
-                                                                                
-                                                                                
-                                                                                
-       ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf afd sd a af56 sdf                    
+                                               245yh                            
                                                                                 
                                                                                 
+                                                                 ihuhugukhhhhhhh
+hhhhhhhhhhhhhrfdafaf afd sd a af56 sdf                                          
                                                                                 
-               hogonokpkikjhgjhomo                                              
+                                                                                
+                                                                         hogonok
+pkikjhgjhomo                                                                    
                                                                                 
