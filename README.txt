@@ -3,58 +3,58 @@
 以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
 000008E(0×0000005×805F91E2E2E2)。(sondoaisndjoasndaaassssssssssssssssssssssssssss
 ss■■■■■■■■■■■■■■■■■■■■BE*ssssssssssssssssssssssssssss■■□■□□□□■□■■■■■■■■■■CAREFUL
-*DW■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQARE
-PWT■□□■□□■□□□□■■■■■■■□■VNHUYVOLDXCGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■49FXQH
-GBI■□□□■■□□□□□□□□□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□■□■□□■□□□□□□□□□□□■85gtbu
-kcr■□□■■■■□□□□□□□□□□□□■ftbxukwextbukxwrtfuedxewgyrvysd■□□□□□□□□□□□□□□□□□□■gi3tbe
-ifg■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfut578wqdguj57t■□□□□□□□□□□□□□□□□□□■frjdwg
-e29■□□□□□□□□□□□□□□□□□□■trftgsduj677777utfsssssssssssss■□□□□□□□□□□□□□□□□□■■ssssss
-sss■■□□□□□□□□□□□□□□□□■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■ssssss
-sss■■□□■■□□■■■■□□■■□□■■sssssssssssssssssssssssssssssss■■□■■■□■■■■■□■■■□■■■ssssss
-sss■■■■■■■■■■■■■■■■■■■■*BARK*sssssssssssssssssssssssssssssssssssssss114514191081
-0ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssseh huh huh aaa
-aaaaaaah    sssssssssssssssssss    sssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.12111ssasah bahh ba
-rh bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                
+*W■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQAREP
+WT■□□■□□■□□□□■■■■■■■□■VNHUYVOLDXCGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■49FXQHG
+BI■□□□■■□□□□□□□□□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□■□■□□■□□□□□□□□□□□■85gtbuk
+cr■□□■■■■□□□□□□□□□□□□■ftbxukwextbukxwrtfuedxewgyrvysd■□□□□□□□□□□□□□□□□□□■gi3tbei
+fg■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfut578wqdguj57t■□□□□□□□□□□□□□□□□□□■frjdwge
+29■□□□□□□□□□□□□□□□□□□■trftgsduj677777utfsssssssssssss■□□□□□□□□□□□□□□□□□■■sssssss
+ss■■□□□□□□□□□□□□□□□□■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■sssssss
+ss■■□□■■□□■■■■□□■■□□■■sssssssssssssssssssssssssssssss■■□■■■□■■■■■□■■■□■■■sssssss
+ss■■■■■■■■■■■■■■■■■■■■*BARK*sssssssssssssssssssssssssssssssssssssss1145141910810
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssseh huh huh aaaa
+aaaaaah    sssssssssssssssssss    ssssssssssssssssssssssssssssssssssssssssssssss
+sssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.12111ssasah bahh bar
+h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                 
                                                                                 
                                                                                 
-             ui0pyuijkfyuj rtyu r6r67ur6rtyurtyurrrrrrrrrrrrrrrrruuuuuuuuuuuuuuu
-uuuuuuuuukkkkkkkffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fyuk          ehk2326g7f6ifi5h8f6dgu3gufywigfq9bpd8csos52voeifsucsobfw7vsicu    
-                                             kjlkjkldajlkdfjalsdjflafdfadafdsajl
-ksdafkjasdklffffffffffffffffff                                                  
+            ui0pyuijkfyuj rtyu r6r67ur6rtyurtyurrrrrrrrrrrrrrrrruuuuuuuuuuuuuuuu
+uuuuuuuukkkkkkkfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+yuk          ehk2326g7f6ifi5h8f6dgu3gufywigfq9bpd8csos52voeifsucsobfw7vsicu     
+                                            kjlkjkldajlkdfjalsdjflafdfadafdsajlk
+sdafkjasdklffffffffffffffffff                                                   
                                                                                 
                                                                                 
                                                                                 
-                                                                     aguidoudr0 
+                                                                    aguidoudr0  
                                                                                 
                                                                                 
-                                                                   l ljjoajdoif 
-jiiladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjdddddddddd
+                                                                  l ljjoajdoif j
+iiladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddd'';;;;:::::::;;;;;;;;;;;;;;;;;;;;;;;;;wocaonimasilenigeshabiddddddddddddddddd
+dd'';;;;:::::::;;;;;;;;;;;;;;;;;;;;;;;;;wocaonimasilenigeshabidddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddd                                                                   
+dddddddddddd                                                                    
                                                                                 
                                                                                 
                                                                                 
-        Get stick bugged LOL                                                    
+       Get stick bugged LOL                                                     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                              fd
-sa                                                                              
+                                                                             fds
+a                                                                               
                                                                                 
-                        245yh                                                   
-                                                                                
-                                                                                
-                                          ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf af
-d sd a af56 sdf                                                                 
+                       245yh                                                    
                                                                                 
                                                                                 
-                                                   hogonokpkikjhgjhomo          
+                                         ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf afd
+ sd a af56 sdf                                                                  
+                                                                                
+                                                                                
+                                                  hogonokpkikjhgjhomo           
                                                                                 
                                                                                 
