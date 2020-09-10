@@ -26,7 +26,7 @@ ksdafkjasdklffffffffffffffffff
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                                    aguidoudr0  
                                                                                 
                                                                                 
                                                                   l ljjoajdoif j
@@ -39,7 +39,7 @@ ddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+        Get stick bugged LOL                                                    
                                                                                 
                                                                                 
                                                                                 
