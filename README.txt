@@ -3,8 +3,8 @@
 以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
 000008E(0×0000005×805F91E2E2E2)。(sondoaisndjoasndaaassssssssssssssssssssssssssss
 ss■■■■■■■■■■■■■■■■■■■■BE*ssssssssssssssssssssssssssss■■□■□□□□■□■■■■■■■■■■CAREFUL
-*W■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQAREP
-WT■□□■□□■□□□□■■■■■■■□■VNHUYVOLDXCGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■49FXQHG
+*W■■□□□□□□□□■■■■■■■■■■WITH*lbatvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■THIS*EP
+WT■□□■□□■□□□□■■■■■■■□■PICTURE*VNHGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■PLZ*XQG
 BI■□□□■■□□□□□□□□□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□■□■□□■□□□□□□□□□□□■85gtbuk
 cr■□□■■■■□□□□□□□□□□□□■ftbxukwextbukxwrtfuedxewgyrvysd■□□□□□□□□□□□□□□□□□□■gi3tbei
 fg■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfut578wqdguj57t■□□□□□□□□□□□□□□□□□□■frjdwge
