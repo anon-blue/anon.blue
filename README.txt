@@ -19,6 +19,9 @@ h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123
                                                                                 
                                                                                 
                                                                                 
+                      👎✌☼😐 👎✌☼😐☜☼ ✡☜❄ 👎✌☼😐☜☼❄☟☜ 💧☟✌👎⚐🕈💧 👍🕆❄❄✋☠☝ 👎☜☜🏱☜☼🏱☟⚐❄⚐☠ ☼☜✌
+👎✋☠☝💧 ☠☜☝✌❄✋✞☜❄☟✋💧 ☠☜✠❄ ☜✠🏱☜☼✋💣☜☠❄💧☜☜💣💧✞☜☼✡✞☜☼✡✋☠❄☜☼☜💧❄✋☠☝📬📬📬🕈☟✌❄ 👎⚐ ✡⚐🕆 ❄🕈⚐ ❄☟✋
+☠😐✍                                                                             
                                                                                 
                                                                                 
                                                                                 
@@ -36,25 +39,22 @@ h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123
                                                                                 
                                                                                 
                                                                                 
+                                                                          Get st
+ick bugged LOL                                                                  
+                                                                                
+                                                                fdsa            
                                                                                 
                                                                                 
                                                                                 
-                                Get stick bugged LOL                            
+                             fdsa                                               
                                                                                 
                                                                                 
                                                                                 
                                                                                 
+                245yh                                                           
                                                                                 
                                                                                 
-                    fdsa                                                        
-                                                                                
-                                               245yh                            
-                                                                                
-                                                                                
-                                                                 ihuhugukhhhhhhh
-hhhhhhhhhhhhhrfdafaf afd sd a af56 sdf                                          
-                                                                                
-                                                                                
-                                                                         hogonok
-pkikjhgjhomo                                                                    
+                                            ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf 
+afd sd a af56 sdf                                                               
+          hogonokpkikjhgjhomo                                                   
                                                                                 
