@@ -2,59 +2,59 @@
 此屏幕再次出现，请执行以下步骤：检查是否有足够的磁盘空间。如果驱动器在顶部消息中被识别，请禁用驱动程序或与制造商检查驱动程序更新。请与硬件供应商更改视频适配器，
 以便进行任何BIOS更新。如果需要使用SAF e模式删除或禁用组件，请重新启动计算机。按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000
 000008E(0×0000005×805F91E2E2E2)。(sondoaisndjoasndaaassssssssssssssssssssssssssss
-ss■■■■■■■■■■■■■■■■■■■■BE*ssssssssssssssssssssssssssss■■□■□□□□■□■■■■■■■■■■ sabsut
-cx■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQAREP
-WT■□□■□□■□□□□■■■■■■■□■VNHUYVOLDXCGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■49FXQHG
-BI■□□□■■□□□□□□□□□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□■□■□□■□□□□□□□□□□□■85gtbuk
-cr■□□■■■■□□□□□□□□□□□□■ftbxukwextbukxwrtfuedxewgyrvysd■□□□□□□□□□□□□□□□□□□■gi3tbei
-fg■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfut578wqdguj57t■□□□□□□□□□□□□□□□□□□■frjdwge
-29■□□□□□□□□□□□□□□□□□□■trftgsduj677777utfsssssssssssss■□□□□□□□□□□□□□□□□□■■sssssss
-ss■■□□□□□□□□□□□□□□□□■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■sssssss
-ss■■□□■■□□■■■■□□■■□□■■sssssssssssssssssssssssssssssss■■□■■■□■■■■■□■■■□■■■sssssss
-ss■■■■■■■■■■■■■■■■■■■■*BARK*sssssssssssssssssssssssssssssssssssssss1145141910810
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssseh huh huh aaaa
-aaaaaah    sssssssssssssssssss    ssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.12111ssasah bahh bar
-h bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                 
+ss■■■■■■■■■■■■■■■■■■■■BE*ssssssssssssssssssssssssssss■■□■□□□□■□■■■■■■■■■■CAREFUL
+*■■□□□□□□□□■■■■■■■■■■lbasgtuetvgvzxfdegisxjowfqWPZQS■■□□□□□□□□□■■■■■■■■■DZQAREPW
+T■□□■□□■□□□□■■■■■■■□■VNHUYVOLDXCGILWECOTILCNUXAGUJQ2■□□□□□□□□□□□□■■■■■□■49FXQHGB
+I■□□□■■□□□□□□□□□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□■□■□□■□□□□□□□□□□□■85gtbukc
+r■□□■■■■□□□□□□□□□□□□■ftbxukwextbukxwrtfuedxewgyrvysd■□□□□□□□□□□□□□□□□□□■gi3tbeif
+g■□□□□□□□□□□□□□□□□□□■udg46gdujwfetwjgfut578wqdguj57t■□□□□□□□□□□□□□□□□□□■frjdwge2
+9■□□□□□□□□□□□□□□□□□□■trftgsduj677777utfsssssssssssss■□□□□□□□□□□□□□□□□□■■ssssssss
+s■■□□□□□□□□□□□□□□□□■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■ssssssss
+s■■□□■■□□■■■■□□■■□□■■sssssssssssssssssssssssssssssss■■□■■■□■■■■■□■■■□■■■ssssssss
+s■■■■■■■■■■■■■■■■■■■■*BARK*sssssssssssssssssssssssssssssssssssssss1145141910810s
+sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssseh huh huh aaaaa
+aaaaah    sssssssssssssssssss    sssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssKf；a‘lfdk；lekf；l.12111ssasah bahh barh
+ bdsl；fkds l；kfl；sdkflksdlc 1123321312 3123123                                  
                                                                                 
                                                                                 
-            ui0pyuijkfyuj rtyu r6r67ur6rtyurtyurrrrrrrrrrrrrrrrruuuuuuuuuuuuuuuu
-uuuuuuuukkkkkkkfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-yuk          ehk2326g7f6ifi5h8f6dgu3gufywigfq9bpd8csos52voeifsucsobfw7vsicu     
-                                            kjlkjkldajlkdfjalsdjflafdfadafdsajlk
-sdafkjasdklffffffffffffffffff                                                   
+           ui0pyuijkfyuj rtyu r6r67ur6rtyurtyurrrrrrrrrrrrrrrrruuuuuuuuuuuuuuuuu
+uuuuuuukkkkkkkfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffy
+uk          ehk2326g7f6ifi5h8f6dgu3gufywigfq9bpd8csos52voeifsucsobfw7vsicu      
+                                           kjlkjkldajlkdfjalsdjflafdfadafdsajlks
+dafkjasdklffffffffffffffffff                                                    
                                                                                 
                                                                                 
                                                                                 
-                                                                    aguidoudr0  
+                                                                   aguidoudr0   
                                                                                 
                                                                                 
-                                                                  l ljjoajdoif j
-iiladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjddddddddddd
+                                                                 l ljjoajdoif ji
+iladjfooajifjioaijiejiflakdfjoiwjeifjiwejifjiewjijfijfiwejifjiwjeifjdddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dd'';;;;:::::::;;;;;;;;;;;;;;;;;;;;;;;;;wocaonimasilenigeshabidddddddddddddddddd
+d'';;;;:::::::;;;;;;;;;;;;;;;;;;;;;;;;;wocaonimasilenigeshabiddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddd                                                                    
+ddddddddddd                                                                     
                                                                                 
                                                                                 
                                                                                 
-       Get stick bugged LOL                                                     
+      Get stick bugged LOL                                                      
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                             fds
-a                                                                               
-                                                                                
-                       245yh                                                    
+                                                                            fdsa
                                                                                 
                                                                                 
-                                         ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf afd
- sd a af56 sdf                                                                  
+                      245yh                                                     
                                                                                 
                                                                                 
-                                                  hogonokpkikjhgjhomo           
+                                        ihuhugukhhhhhhhhhhhhhhhhhhhhrfdafaf afd 
+sd a af56 sdf                                                                   
+                                                                                
+                                                                                
+                                                 hogonokpkikjhgjhomo            
                                                                                 
                                                                                 
