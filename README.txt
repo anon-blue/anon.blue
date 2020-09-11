@@ -4,8 +4,8 @@ fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：
 aisndjoasndaaassssssssssssssssssssssssssss                                      
                                                                                 
                                                                                 
-                            ■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                                  
+                             ■■■■■■　　　　　　　　　　　　　　　　 　　　　　　　　　　■■■■■■■■　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                   
                                                                                 
                                                                                 
                                                                                 
@@ -14,8 +14,8 @@ aisndjoasndaaassssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-     .ddddawocaonimade                                               asdasdasdas
-dz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                                  
+                    .ddddawocaonimade                                           
+    asdasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                   
                                                                                 
                                                                                 
                                                                                 
@@ -27,11 +27,11 @@ dz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc
                                                                                 
                                                                                 
                                                                                 
-                                                                               h
-dfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjaljfsdlkfjsdf
-kljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sbcvmbcxmvbs
-dlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eisjkfsdfjskd
-hfk                                                                             
+                                                                                
+              hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljsl
+kjaljfsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfk
+lh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfha
+l;eisjkfsdfjskdhfk                                                              
                                                                                 
                                                                                 
                                                                                 
