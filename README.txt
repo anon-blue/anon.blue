@@ -5,15 +5,12 @@ aisndjoasndaaassssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-          ■■■■■■　　　　　　　　　　　　　　　　　　　　　        ■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                         
+          ■■■■■■　　　　　　　　　　　　　　　　　　　■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                                   
                                                                                 
                                                                                 
-                                .ddddawocaonimade                               
-                asdasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc       
-                                                                                
-                                                                                
-                                                                                
+                      .ddddawocaonimade                                         
+      asdasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                 
                                                                                 
                                                                                 
                                                                                 
@@ -23,13 +20,13 @@ aisndjoasndaaassssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-                         hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;s
-lj dsfkljslkjaljfsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh 
-skdfj hsdfklh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv
- khsakdjfhal;eisjkfsdfjskdhfk                                                   
                                                                                 
                                                                                 
                                                                                 
+               hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljs
+lkjaljfsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdf
+klh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfh
+al;eisjkfsdfjskdhfk                                                             
                                                                                 
                                                                                 
                                                                                 
@@ -48,7 +45,10 @@ skdfj hsdfklh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv
                                                                                 
                                                                                 
                                                                                 
-    ADASD  DA                                                                   
+                                                                                
+                                                                                
+                                                                          ADASD 
+ DA                                                                             
                                                                                 
                                                                                 
                                                                                 
