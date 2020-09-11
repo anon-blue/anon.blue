@@ -5,15 +5,12 @@ aisndjoasndaaassssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-          ■■■■■■　　　　　　　　　　　　　　　　　　　■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                                   
+          ■■■■■■　　　　　　　　　　　■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　                                                           
                                                                                 
                                                                                 
-                      .ddddawocaonimade                                         
-      asdasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                 
-                                                                                
-                                                                                
-                                                                                
+              .ddddawocaonimade                                               as
+dasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
                                                                                 
                                                                                 
                                                                                 
@@ -23,13 +20,13 @@ aisndjoasndaaassssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-               hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljs
-lkjaljfsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdf
-klh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfh
-al;eisjkfsdfjskdhfk                                                             
                                                                                 
                                                                                 
                                                                                 
+       hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjaljfs
+dlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sbcv
+mbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eisjk
+fsdfjskdhfk                                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -47,8 +44,11 @@ al;eisjkfsdfjskdhfk
                                                                                 
                                                                                 
                                                                                 
-                                                                          ADASD 
- DA                                                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                  ADASD  DA     
+                                                                                
                                                                                 
                                                                                 
                                                                                 
