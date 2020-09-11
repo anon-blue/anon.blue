@@ -4,18 +4,8 @@ fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：
 aisndjoasndaaassssssssssssssssssssssssssss                                      
                                                                                 
                                                                                 
-　■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-　　　                                                                             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                          .ddddawocaonimade     
-                                          asdasdasdasdz c zxcawefsfasfawwaasdxzc
-asdasd  w2112asdzxc                                                             
+                            ■■■■■■■■　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　                                                  
                                                                                 
                                                                                 
                                                                                 
@@ -24,14 +14,24 @@ asdasd  w2112asdzxc
                                                                                 
                                                                                 
                                                                                 
+     .ddddawocaonimade                                               asdasdasdas
+dz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                                  
                                                                                 
                                                                                 
                                                                                 
-                                                    hdfdsgewadf klsjfkl sjf skfj
-  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjaljfsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsf
-sdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sbcvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf 
-hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eisjkfsdfjskdhfk                        
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                               h
+dfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjaljfsdlkfjsdf
+kljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sbcvmbcxmvbs
+dlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eisjkfsdfjskd
+hfk                                                                             
                                                                                 
                                                                                 
                                                                                 
