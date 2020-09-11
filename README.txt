@@ -1,19 +1,7 @@
 检测到了一个问题，并关闭了视窗，以防止对您的计算机造成损坏.如果您第一次看到这个停止错误屏幕，请重新启动comput错误.如果此屏幕再次出现，请执行以下步骤:检
 查是否有足够的磁盘空间.如果驱动器在顶部消息中被识别，请禁用驱动程序或与制造商检查驱动程序更新.请与硬件供应商更改视频适配器，以便进行任何更新.如果需要使用sa
 fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91E2E2E2)。(sondo
-aisndjoasndaaassssssssssssssssssssssssssss ss■BE*ssssssssssssssssssssssssssss■■□
-■□□□□■□■CAREFUL*W■■□■WITH*lbatvgvzxfdegisxjowfqWPZQS■■□■THIS*EP WT■□□□□■□■PICTUR
-E*VNHGILWECOTILCNUXAGUJQ2■BI■□□□■■□■■■□■WQCRTGB328CXBUJGBUguilwcdtbku34■□□■□■85g
-tbuk kdjejej■■□■ftbxukwextbukxwrtfuedxewgyrvysd■□■gi3tbei FG？□□□■udg46gdujwfetwj
-gfut578wqdguj57t■□■frjdwge 29■□■trftgsduj677777utfsssssssssssss■□■■sssssss ss■■□
-■■sssssssssssssssssssssssssssssss■■□□■■□□■■■■□□■■□□■■sssssss ss□■■■■□□■■□□■■ssss
-sssssssssssssssssssssssssss■■□■■■□■□■■■□■■■sssssss ss■*BARK*ssssssssssssssssssss
-sssssssssssssssssss1145141919810 sssssssssssad asd   as                 sawdasas
-dssssaasssasdddfff    had是sssssssssssssssssssssssssssssssssssssssssssssss ssssss
-sssssssssssssssssssssssssssssssssssssKf；A‘lfdk；lekf；1.12111ssasah bahh bar h bds
-l；fkds l；kfl；sdkflksdlc 1123321312 3123123                                      
-                                                                                
-                      asdsad asd1111sadasdc                                     
+aisndjoasndaaassssssssssssssssssssssssssss                                      
                                                                                 
                                                                                 
                                                                                 
@@ -26,11 +14,9 @@ l；fkds l；kfl；sdkflksdlc 1123321312 3123123
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-              .ddddawocaonimade                                               as
-dasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
-                                                                                
+                                                                           .dddd
+awocaonimade                                               asdasdasdasdz c zxcaw
+efsfasfawwaasdxzcasdasd  w2112asdzxc                                            
                                                                                 
                                                                                 
                                                                                 
@@ -42,10 +28,24 @@ dasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc
                                                                                 
                                                                                 
                                                                                 
-         hdfdsgewadf klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjalj
-fsdlkfjsdfkljsdflsdjflkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sb
-cvmbcxmvbsdlfh efhsvkjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eis
-jkfsdfjskdhfk                                                                   
+                                                                     hdfdsgewadf
+ klsjfkl sjf skfj  lkjdfs jfsdfjafsafj;ajf;slj dsfkljslkjaljfsdlkfjsdfkljsdflsdj
+flkjhdfksdfkjsdsfsdfkjhsdkjf s sd klfjhsdfh skdfj hsdfklh sbcvmbcxmvbsdlfh efhsv
+kjs vvhssdfsd sf hsfjefiewiurewturejgdbgdbcv khsakdjfhal;eisjkfsdfjskdhfk       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
