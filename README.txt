@@ -2,11 +2,11 @@
 查是否有足够的磁盘空间.如果驱动器在顶部消息中被识别，请禁用驱动程序或与制造商检查驱动程序更新.请与硬件供应商更改视频适配器，以便进行任何更新.如果需要使用sa
 fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91E2E2E2)。(sondo
 aisndjoasndaaassssssssssssssssssssssssssss                                      
-                                                                                
-                                                                                
-                                                                                
-              .ddddawocaonimade a                                             as
-dasdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
+                                                                 tetwrjtwprjtpwe
+jqjiojrqiorqwqsafadfad;lfaohquiwhurhwhrSOIHAFUIHQEONOGUIOFIOOJHIOOiiJsoiOIIJOIjo
+yaiud7fteuithifdsyfusdiogusdugy78ewrkoqpfuoijqekmkvimslkioeqrqwjrioyfhdgijioghiw
+oiy9uqerjqiofiojgpdugoisdgoihiuqherqueuiguieqyygnejtyudfcsgufifugwietjiweiuewi  
+ asdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
                                                                                 
                                                                                 
                                                                                 
