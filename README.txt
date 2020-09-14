@@ -3,8 +3,8 @@
 fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91E2E2E2)。(sondo
 aisndjoasndaaassssssssssssssssssssssssssss                                      
                                                                  tetwrjtwprjtpwe
-jqjiojrqiorqwqsafadfad;lfaohquiwhurhwhrSOIHAFUIHQEONOGUIOFIOOJHIOOiiJsoiOIIJOIjo
-yaiud7fteuithifdsyfusdiogusdugy78ewrkoqpfuoijqekmkvimslkioeqrqwjrioyfhdgijioghiw
+jqjiojrqiorqwqsafadfad;lfaohquiwhurhwhrSOIHAFyuuuu77777777uuvcxasusususususususu
+sudusususssususuuduusdiogusdugy78ewrkoqpfuoijqekmkvimslkioeqrqwjrioyfhdgijioghiw
 oiy9uqerjqiofiojgpdugoisdgoihiuqherqueuiguieqyygnejtyudfcsgufifugwietjiweiuewi  
  asdasdasdz c zxcawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
                                                                                 
