@@ -1,7 +1,7 @@
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                         以便进行任何更新.如果需要使用sa
-fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91E2E2E2)。(sondo
-aisndjoasndaaassssssssssssssssssssssssnghjhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91Edsadddddddddd
+dddddddddddddddddddddddddddddddddds;lll..c,cm,mcmc,c,mhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhgghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh        vnmvnl;dbbbj
 klgfkldbnzbnllzdfbklendfnbaendbfndf;bnbjflrenlgnlornnfjkldvddm,bagafaaaaaerrrrir
 itnmbn,vmbnzcvbnmznbdafgldfblegekdfljbklbdfmbelndfnbvenkjdfkahskljfwavbncfdrfhgh
