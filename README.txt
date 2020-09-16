@@ -4,11 +4,11 @@ fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：
 aisndjoasndaaassssssssssssssssssssssssnghjhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhgghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh        vnmvnl;dbbbj
 klgfkldbnzbnllzdfbklendfnbaendbfndf;bnbjflrenlgnlornnfjkldvddm,bagafaaaaaerrrrir
-itnmbn,vmbnzcvbnmznbdafgldfblegekdfljbklbdfmbelndfnbvenkjdfkahskljfwavbncfdrfhiw
-oiy9uqerjqiofiojgpdugoisdgoihiuqherqueuiguieqyygnejtyudfcsgufifugwietjiweiuewi  
- asdasdasdz 7667cawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
-            hdhamsgsgsianshsgs                                                  
-                                                                                
+itnmbn,vmbnzcvbnmznbdafgldfblegekdfljbklbdfmbelndfnbvenkjdfkahskljfwavbncfdrfhgh
+ijkdnjkansdvdfabgerklbkldfbviuerbvjkldfbvievbkdlbvlbvlvblbvdfklbvdfkjbvsdbibdkbn
+kjdbnkbjsdnbkjsnbkcvnbjknkjhkfdgnb,cvb,mvbnm,bncv,bmnbhjdfbm,hfdbmjfgjgjafjkural
+kklbvdfguirafvbjkafirukbbvdbdjfgeghjfjdafbndbvv,bgerkfjkgadhfgkdfghkadfgkadflnbv
+cbmcmv,beriouireoinkjhdfjkhguierndjkfnjnbkdjfghejdxcxcxc                        
                                                                      dsd        
                                                                                 
                                gggkdnxjdk                                       
