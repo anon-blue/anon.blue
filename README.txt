@@ -2,9 +2,9 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk错误屏幕，请重新启动comput�
                                                                以便进行任何更新.如果需要使用sa
 fe机.按F8键选择高级启动选项，然后选择安全模式技术信息：*Stop：0×000 000008E(0×0000005×805F91E2E2E2)。(sondo
 aisndjoasndaaassssssssssssssssssssssssnghjhghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhgghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhpwe
-jqjiojrqiorqwqsafadfad;lfaohquiwhurhwhrSOIHAFyuuuu77777777uuvcxasusususususususu
-sudusususssususuuduhjjjjjusdugy78ewrkoqpfuoijqekmkvimslkioeqrqwjrioyfhdgijioghiw
+hhhhhhhhhhgghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh        vnmvnl;dbbbj
+klgfkldbnzbnllzdfbklendfnbaendbfndf;bnbjflrenlgnlornnfjkldvddm,bagafaaaaaerrrrir
+itnmbn,vmbnzcvbnmznbdafgldfblegekdfljbklbdfmbelndfnbvenkjdfkahskljfwavbncfdrfhiw
 oiy9uqerjqiofiojgpdugoisdgoihiuqherqueuiguieqyygnejtyudfcsgufifugwietjiweiuewi  
  asdasdasdz 7667cawefsfasfawwaasdxzcasdasd  w2112asdzxc                         
             hdhamsgsgsianshsgs                                                  
