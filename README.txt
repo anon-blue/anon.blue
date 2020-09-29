@@ -3,8 +3,8 @@
 首孝悌，次见闻。知某数，识某文。一而十，十而百。百而千，千而万。三才者，天地人。三光者，日月星。三纲者，君臣义。父hiuh妇顺。曰春夏，曰秋冬。此四时，运不穷。
 曰南北，曰西东。此四方，应乎中。曰水火，木金土。此五行，本乎数。opl，甲至癸。十二支，子至亥。曰黄道，日所躔。曰赤道，当中权。ssssseee我中华，在东北。
 曰江河，曰淮济。此四渎，水之纪。曰岱华，嵩恒衡。此五岳，山之名。曰士农，曰工商。此四民，国                                   
-                                                                                
-                                                                                
+                                                  sdfsdasadsdasdasdasdasasdqasda
+sdasdasddasdasdasdasdsaswoyebuzhidao qunallii                                   
                                                                                 
                                                                                 
                                                                                 
