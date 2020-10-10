@@ -2,6 +2,8 @@ isldnaskkmk1
                                                                                 
                                                                                 
                                                                                 
+                               i wish i could see the top of my fathers house ag
+ain                                                                             
                                                                                 
                                                                                 
                                                                                 
@@ -26,9 +28,7 @@ isldnaskkmk1
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+           hello?is anyone out there. can anyone see or gfeel me                
                                                                                 
                                                                                 
                                                                                 
