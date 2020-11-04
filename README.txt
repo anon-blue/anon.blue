@@ -8,7 +8,7 @@ A problerm
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                          jh                                    
                                                                                 
                                                                                 
                                                                                 
@@ -28,7 +28,7 @@ A problerm
                                                                                 
                                                                                 
  uutur,sjhuehhfuesh8                                                            
-                                                                                
+                   kj                                                           
                                                                                 
                                                            gfgf                 
    your computer                                                                
