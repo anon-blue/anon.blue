@@ -19,7 +19,7 @@ A problerm
                                                                                 
                       h             je rentrer = réveillée par des anglais qui o
 nt saccagé mon langage. Odeur d'apocalypse, les verres se frappent dans un bruit
- de lumière, je rêve encore de cadavres d'utopie, de foules                     
+ de lumière, je rêve encore de cadavres d'utopie, de foules rieuses.            
                                                                                 
                                                                                 
                                                                                 
