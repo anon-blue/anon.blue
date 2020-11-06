@@ -20,8 +20,8 @@ A problerm
                       h             je rentrer = réveillée par des anglais qui o
 nt saccagé mon langage. Odeur d'apocalypse, les verres se frappent dans un bruit
  de lumière, je rêve encore de cadavres d'utopie, de foules rieuses. On pourrait
- bien se prendre un bain au bord                                                
-                                                                                
+ bien se prendre un bain au bord de nos paysages colorés de noir et blanc, s'use
+r la cornée tellement le bordel est notre danse                                 
                                                                                 
                                                                                 
                                                                                 
