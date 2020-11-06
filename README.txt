@@ -23,7 +23,7 @@ nt saccagé mon langage. Odeur d'apocalypse, les verres se frappent dans un brui
  bien se prendre un bain au bord de nos paysages colorés de noir et blanc, s'use
 r la cornée tellement le bordel est notre danse. On pourrait bien saccagér les a
 ctualités, les c virtualités, on pourrait bien s'éclater de soleils             
-                                                                                
+Je m'endors automatique,                                                        
                                                                                 
                                                                                 
                                                                                 
