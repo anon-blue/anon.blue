@@ -48,13 +48,13 @@ ave me?
                                                                                 
                                                        da                Je reli
 s                                                                               
-            llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+           lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllll................................................,,,,,,,,,,,,,,
-,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                            
+lllllllllllllllll................................................,,,,,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                             
                                                                                 
-               hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh    
-      ....................................                                      
+              hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     
+     ....................................                                       
                                                                                 
                                                                                 
