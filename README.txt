@@ -53,8 +53,8 @@ nunj,mjmmkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhyfyhfccfcfyllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllll................................................,,,,,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                             
-                                                               pppp             
-              hhhhhhhhhhhdjkdiejrjrjhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh     
-     ....................................                                       
+                                                               ppppeeeeepee]\]ni
+ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
+peepee...................................                                       
                                           iiiqwwqwaasdqwedhqwjjkjakjkajkjdkajkdj
 jkahhahhahhahah                                                                 
