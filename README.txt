@@ -51,10 +51,10 @@ s
            lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllljuhnu
 nunj,mjmmkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhyfyhfccfcfyllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllll................................................,,,,,,,,,,,,,,,
+llllllllthe south will rise again hail trump 2020.......fuck jews,,,,,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                             
                                                                ppppeeeeepee]\]ni
 ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
-peepee...................................                                       
+peepeepeepeepe gay niggerfaggot .........                                       
                                           iiiqwwqwaasdqwedhqwjjkjakjkajkjdkajkdj
 jkahhahhahhahah                                                                 
