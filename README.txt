@@ -47,8 +47,8 @@ nsbsbbssbsssbsbsbbsbsbsbsbsbbsbsbsb
           fajf;lj555uhjhijhijlh8oyoi][[ad                                       
                                     woshidasuaigesd                             
                                                        da                Je reli
-s                                                                               
-           lllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllljuhnu
+s                                                                           jhds
+fukcck Fuck NIGGER SHIT FUllllllllllllllllllllllllllllllllllllllllllllllllljuhnu
 nunj,mjmmkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhyfyhfccfcfyllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllthe south will rise again hail trump 2020.......fuck jews,sadam hussein 
