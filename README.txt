@@ -55,6 +55,6 @@ llllllllthe south will rise again hail trump 2020.......fuck jews,sadam hussein
 did nothing wrong, bashar al assad did nothing wrong. d.. fuck israel           
                                                                ppppeeeeepee]\]ni
 ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
-peepeepeepeepe gay niggerfaggot .........                                       
+peepeepeepeepe gay niggerfaggot .........           FESFE                       
                                           iiiqwwqwaasdqwedhqwjjkjakjkajkjdkajkdj
 jkahhahhahhahah                                                                 
