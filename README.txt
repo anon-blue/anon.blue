@@ -1,4 +1,4 @@
-111111111111111111111111111111111111SDFSDVDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+plllllllllllcplapclpalcplcpalcpalcacfwfuqGSKGQW]YHDHGU 5WEEDCZSF+23CGWDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDKMZKLKLKLKLKLKLKLKLKKLKLKLKLKLKLKLKLKLKLKLKLKL
 KLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKLKDSA                
                                                                                 
@@ -56,5 +56,5 @@ did nothing wrong, bashar al assad did nothing wrong. d.. fuck israel
                                                                ppppeeeeepee]\]ni
 ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
 peepeepeepeepe gay niggerfaggot .........           FESFEJLHDTHYTZSCBJSZMCzjnjzs
-CNcCCCCCCCCCCCCCC`````````````````````111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+CNcCCCCCCCCqlkwk kkqk kkmdkqmdkqmkmdkmqwkmkmkmmmmmdkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssoklpdqkdqd;
