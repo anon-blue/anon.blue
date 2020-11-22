@@ -50,8 +50,8 @@ jjjastgdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaoshidasuaigesd
 s                                                                           jhds
 fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGGGGGGGGGGGGlllllihiHODIOTKO
 NODIODAWATASHINONAMAEWAHUANGZIHAOLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLI
-IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLllllllllllllllllllllllllllllllllllllllllll
-llllllllthe south will rise again hail trump 2020.......fuck jews,sadam hussein 
+IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISH20.......fuck jews,sadam hussein 
 did nothing wrong, bashar al assad did nothing wrong. d.. fuck israel           
                                                                ppppeeeeepee]\]ni
 ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
