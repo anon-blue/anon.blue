@@ -51,8 +51,8 @@ s                                                                           jhds
 fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGGGGGGGGGGGGlllllihiHODIOTKO
 NODIODAWATASHINONAMAEWAHUANGZIHAOLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLI
 IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
-DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISH20.......fuck jews,sadam hussein 
-did nothing wrong, bashar al assad did nothing wrong. d.. fuck israel           
+DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISHISHIWOZHIDAAONISHIYIGESHABIDANSHI
+NIDELAOSHISHIFENCO bashar al assad did nothing wrong. d.. fuck israel           
                                                                ppppeeeeepee]\]ni
 ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
 peepeepeepeepe gay niggerfaggot .........           FESFEJLHDTHYTZSCBJSZMCzjnjzs
