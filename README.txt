@@ -49,8 +49,8 @@ jjjastgdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaoshidasuaigesd
                                                        da                Je reli
 s                                                                           jhds
 fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGGGGGGGGGGGGlllllihiHODIOTKO
-NOGGGGGGGGGGGG fucj lol im a nigger jkdjfNFNNFFNfcfyllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+NODIODAWATASHINONAMAEWAHUANGZIHAOLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLI
+IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLllllllllllllllllllllllllllllllllllllllllll
 llllllllthe south will rise again hail trump 2020.......fuck jews,sadam hussein 
 did nothing wrong, bashar al assad did nothing wrong. d.. fuck israel           
                                                                ppppeeeeepee]\]ni
