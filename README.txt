@@ -52,9 +52,9 @@ fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGGGGGGGGGGGGlllllihiHODIOTKO
 NODIODAWATASHINONAMAEWAHUANGZIHAOLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLI
 IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISHISHIWOZHIDAAONISHIYIGESHABIDANSHI
-NIDELAOSHISHIFENCO bashar al assad did nothing wrong. d.. fuck israel           
-                                                               ppppeeeeepee]\]ni
-ggnigger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
+NIDELAOSHISHIFENCONGMINGRALllLJJIEWEjjdjsioidswojjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjaaaaaaaaaaaaaaaaahhhhhhhhhhhhhsssssssssssduuuuuuuudoyouk
+nowmgger pee pp dont care dindnt ask plus youre gay and jewish also ur black pee
 peepeepeepeepe gay niggerfaggot .........           FESFEJLHDTHYTZSCBJSZMCzjnjzs
 CNcCCCCCCCCqlkwk kkqk kkmdkqmdkqmkmdkmqwkmkmkmmmmmdkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssoklpdqkdqd;
