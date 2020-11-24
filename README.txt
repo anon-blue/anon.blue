@@ -19,8 +19,8 @@ dwhowhaudfgdkgalhauhuisgfyigfwbbjkgsuggduiwuigwhvhjvfgfkggwyugfylgshsbusadydyuif
 cghas;hadhajhfgfkgfdahiajdfjshfoeuoueuehuhbbhcbbchbdbcsnmnczncjzbjvdbkzjkkjbjkdb
 hdhjvhjvhzxhcxbbcbxzkcbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbckbzbcxkjbjkbkdb
 kbksbksbkbbdskbhbhhjfgfhlkbfdhhuoghhgihuhsdgdhids;jfl;hs;jhjsdjgjsdfdsdsgsdgfhfg
-ddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkvres d'utopie, de foules rieuses. On pourrait
- bien se prendre un bain au bord de nos paysages colorés de noir et blanc, s'use
+ddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkmihyuhnbvgfytyyguhgtygiubyiunyugoujnhuiktcdt7
+fg7uhjuhhhygyfytuyguiytyfdryicdvygbhjnkl;'ihygiuikkl,pl[pde noir et blanc, s'use
 r la cornée tellement le bordel est notre danse. On pourrait bien saccagér les a
 ctualités, les c virtualités, on pourrait bien s'éclater de soleils             
 Je m'endors automatique, je cherche la poussière sur mon dfsfefsdf765e5tstygyhgn
