@@ -23,9 +23,9 @@ ttrmlkjljslkajslkajslkasjlkasjlkasjlkasjlkajkalsks
                                                                                 
                                                                                 
                                                                                 
-      you your compyuterwje cherche la poussière sur mon dfsfefsdasadasdasdasddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddfdbrg             
-           bhd                                                      olol lain   
+      you your compyuterws is brocken wailt a minutes for our help              
+                                                                                
+                                                                    olol lain   
     .231351     a1a1a1a1a1a22sda                                               s
 fmdfmfsdlfsmmslfmslfmdlswangyiru     woamenhuihehaome                           
                    kj                                                           
