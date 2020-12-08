@@ -10,7 +10,7 @@ fkfkfkfkfkfkfkfkf                    I love my N ,,,,,,fazadasdaw43r40rrrrr49r53
 4095849086u079y6485yj098gt5rk8ibvdkdrrrrrrrlaradioogribouille des insconsistance
 s solides, le regard à l'abandon s'agite de bleu pourpre. nous avons hâché des b
 outs de sables salés, la chair me retourne l'estomac encore vivant. J'attends le
-s fracas somnambules qui partagent n                                            
+s fracas somnambules qui partagent nos moreceaux de vivres                      
                                                                                 
                                                                                 
                                                                                 
