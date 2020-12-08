@@ -22,7 +22,7 @@ kbksvgghhhjjjkjkkkjnnfuckyoudhhuoghhgihuhsdgdhids;jfl;hs;jhjsdjgjsdfdsdsgsdgfhfg
 ddkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkmihyuhnbvgfytyyguhgtygiubyiunyugoujnhuiktcdt7
 fg7uhjuhhhygyfytuyguiytyfdryicdvygbhjnkl;'ihygiuikkl,pl[pde noir et blanc, s'use
 r la cornée tellement le bordel est notreefewsasqqqqqqqqqqqqqqqen saccagér les a
-ctualités, les c virtualités, on pourrait bien s'éclater de soleils             
+HHJKHHHHHHHHHHHHHHHHHHHKGJGBJHGHJHJKHJKit bien s'éclater de soleils             
 Je m'endors automatique, je cherche la poussière sur mon dfsfefsdasadasdasdasddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddfdbrg             
            bhd                                                      olol lain   
