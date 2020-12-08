@@ -8,7 +8,7 @@ fkfkfkfkfkfkkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkffkfkfkfkfkfkfkfkfkfkfkfkfk
 fkfkfkfkfkfkfkfkf                    I love my N ,,,,,,fazadasdaw43r40rrrrr49r53
 0568t4i888879y64638996r999rd0686t9t689trs0t8t9t99t9tg9t9et-d0g9ew-=wer[=e-ew0re3
 4095849086u079y6485yj098gt5rk8ibvdkdrrrrrrrlaradioogribouille des insconsistance
-s solides, le regard à l'abandon\gpjyhyuiptyd[trtyryprtpttttptpotypyoetgggg[l[tt
+s solides, le regard à l'abandon s'agite de bleu pourpre. ttptpotypyoetgggg[l[tt
 ttrmlkjljslkajslkajslkasjlkasjlkasjlkasjlkajkalsks                              
                                                                                 
                                                                                 
