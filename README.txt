@@ -25,7 +25,7 @@ s fracas somnambules qui partagent nos moreceaux de vivres
                                                                                 
       you your compyuterws is brocken wailt a minutes for our help              
                             rdus[so[p9\9]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
-]]]]]]]]]]]]]]]]]]]]                                                olol lain   
+]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]dxcv v                v   olol lain   
     .231351     a1a1a1a1a1a22sda                                               s
 fmdfmfsdlfsmmslfmslfmdlswangyiru     woamenhuihehaome                           
                    kj                                                           
