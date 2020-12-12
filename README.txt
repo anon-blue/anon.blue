@@ -48,8 +48,8 @@ sagagsfdgfgrwwddfsdfsdfddfhslfjsd;lkfjdlosnfkdgskldniubinuiniubihuailebanirip9jj
 jjjastgdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaoshidasuaigesd                             
                                                        da                Je reli
 s                                                                         kkkjlj
-fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGGGGGGGsfskcvnscdhfaaaaaaaaa
-aaaaaaaaaaaaaaaaddddnihao nissjaidklklkalkkalsidkjaksdnxksndLLLLLLLLLLLLLLLLLLLI
+fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGrtrtrtujigyu trf yyufyfgyuy
+jg  hui0aaaaaaaaddddnihao nissjaidklklkalkkalsidkjaksdnxksndLLLLLLLLLLLLLLLLLLLI
 IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISHISHIWOZHIDAAONISHIYIGESHABIDANSHI
 Nsss1AOSHISHIFENCONGMINGRALllLJJIEWEjjdjsioidswdfffjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
