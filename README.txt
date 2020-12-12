@@ -49,8 +49,8 @@ jjjastgdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaoshidasuaigesd
                                                        da                Je reli
 s                                                                         kkkjlj
 fukcck Fuck NIGGER SHIT FUCK EJEWS NIGGGGGGGGGGGGGGGGrtrtrtujigyu trf yyufyfgyuy
-jg  hui0aaaaaaaaddddnihao nissjaidklklkalkkalsidkjaksdnxksndLLLLLLLLLLLLLLLLLLLI
-IIIIIIIIIIIIIIIIIIIIIIIIIIIlllllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
+jg  hui0oupuoyuo 78 t7 r67r7r8r88t         [p-i [p'k[p'jp0['j [p[ \w4r5we`rhstyc
+ghubjk;`1`1reytgyertert43t  llllllllLLOLAORAORAHIUAFHHHDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDXXXXXXXXXXXXXXXXXXXKONOKABANWATAKAIDASHISHISHIWOZHIDAAONISHIYIGESHABIDANSHI
 Nsss1AOSHISHIFENCONGMINGRALllLJJIEWEjjdjsioidswdfffjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjaaaaaaaaaaaun érable meurthhhhsssssssssssduuuuuuuudoyouk
