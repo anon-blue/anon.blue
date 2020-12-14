@@ -7,11 +7,11 @@ SSSSSLNLERM            awdasdawdsdaskdkdkdkdkddkfkfkfkfkfkfkfkfkffkfkfkfkkfkfkfk
 fkfkfkfkfkfkkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkffkfkfkfkfkfkfkfkfkfkfkfkfk
 fkfkfkfkfkfkfkfkf                    I love my N ,,,,,,fazadasdaw43r404040404040
 40404040404040404040404040404040404040404040404040404040404040404040404040404040
-40404040404040404040404040404040404040404040404dioogribouille des insconsistance
-s solides, le regard à l'abandon s'agite de bleu pourpre. nous avons hâché des b
-outs de sables salés, la chair me retourne l'estomac encore vivant. J'attends le
-s fracas somnambules qui partagent nos moreceaux de vivres                      
-                                                                                
+40404040404040404040404040404040404040404040404040404040404040404040404040404040
+40404040404404040404040404040404040404040404040400404040404040404040404040400404
+04040404040404040404040404040404040404040404040404040404040404040400404040440044
+00440404040404040040404040404040404040404040404040404040404040404040404040404044
+04040404040404040404                                                            
                                                                                 
                                                                                 
                                                                                 
