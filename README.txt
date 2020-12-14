@@ -5,9 +5,9 @@ SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSgvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvniggeruytgfhdytcetetrSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSLNLERM            awdasdawdsdaskdkdkdkdkddkfkfkfkfkfkfkfkfkffkfkfkfkkfkfkfk
 fkfkfkfkfkfkkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkfkffkfkfkfkfkfkfkfkfkfkfkfkfk
-fkfkfkfkfkfkfkfkf                    I love my N ,,,,,,fazadasdaw43r40rrrrr49r53
-0568t4i888879y64638996r999rd0686t9t689trs0t8t9t99t9tg9t9et-d0g9ew-=wer[=e-ew0re3
-4095849086u079y6485yj098gt5rk8ibvdkdrrrrrrrlaradioogribouille des insconsistance
+fkfkfkfkfkfkfkfkf                    I love my N ,,,,,,fazadasdaw43r404040404040
+40404040404040404040404040404040404040404040404040404040404040404040404040404040
+40404040404040404040404040404040404040404040404dioogribouille des insconsistance
 s solides, le regard à l'abandon s'agite de bleu pourpre. nous avons hâché des b
 outs de sables salés, la chair me retourne l'estomac encore vivant. J'attends le
 s fracas somnambules qui partagent nos moreceaux de vivres                      
@@ -56,5 +56,5 @@ ghubjk;`1`1reytgyertert43t   wrrer1d3rggfgfgerrfrfrf ereeeeeeewreereee41`vfrbrbt
 31650341891248444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444040404040404404040404
-040404040404040404040404040404040   hdhdhhdhdhdffdghf gdf     ryhhdhdhdhdfhd    
+04040404040404040404040404040404040www;ji\op]'[00.0./*10\0-67  67hdhdhdhdfhd    
    dmy ne myname is  666sdgsdgoijfqopjfqipyhf9-qhfihefihifafq7qfjoejfpwefibbqof-
