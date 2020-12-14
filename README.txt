@@ -22,8 +22,8 @@ s fracas somnambules qui partagent nos moreceaux de vivres
                                        fffffsdaaforyuyounan.comatttttttttttttttt
 tttttttttttttttttttttt wocaofor windowscoxmvsknk lfchggkdjsghbcdjlfcbgkjdx dcvjk
 vdcghv nxbjbfmgnxcjdsgk cmxjdbjvgmvckjvgcgnfcsvbxfgmfczsx,cmmkbmfkdcvxjfedmzsxzj
-vjx,fjcffmgnzbdfvjxmfz.ckbhccdsfsdbhxfdnjhmdsvncjvjcnvjcfkkcjdfkvjjndsfvnvjdnvdf
-nvjvnvsvu your compyuterws is brocken wailt a minutes for our help           vbf
+vjx,fjcffmgnzbdfvjxmfz.ckbhccdsfsdbhxfkkkkk;.;///vygygygyubnmnoiu76565dghvi0k211
+0000000000your compyuterws is brocken wailt a minutes for our help           vbf
 dgfgfdgwtf sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss  
     .231351     a1a1a1a1a1a22sda                                               s
