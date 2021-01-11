@@ -1,6 +1,6 @@
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnoFUASDS[CP-IG9FHUkkllllllpg[hflpor[i
-hpotrihpoihfgopOVKFVLDG9URFGOLF;BKILKLJKJS,JKLS6454154545454V584DGVDKVDLVKKFJB;X
-LBXF;XJBVXLCBKGVNMKafefeaefwI LOVE DICK I LOVE DICK I LOVE DICK I LOVE DICK I LO
+hpotrihpoihfgopOVKFVLDG9URFGOLF;BKILmy fellow americans: I did no thave sexual r
+elations with thaMKafefeaefwI LOVE DICK I LOVE DICK I LOVE DICK I LOVE DICK I LO
 VE I, C KJLV I       KOPGIHPOKTGHIGCFNLGVNCLPBNIXD9GFLPXD[GCGHGPLNN,LFCHOKFLPEWR
 U8AWL;,FRDOPG25658234803DPLGHG;MKLRGOUISRGKMLDRUGSDRPKOGI9DRGKMdcswcsafewghjtrdh
 btsgrfgsrehbtrdbhdfbhgtrfthnrhffffffffffffffffffffffffffffffffffffffffffffffffff
@@ -26,7 +26,7 @@ VCVBH78FXCGBNJXUBYD0E3WQ5RWOIEFjhv bjcnvdxjJHV DJCVFBXFIBHJXFCNK  M UYVSBFUXBYSE
 150BH0DTHTRlkjdj;ljj;lkkkk';kk;lklkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkniggerkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkknigger                         DDBHDBDHDBHD      dfdbffjdgsvfjgsdfkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkdflkhjoh fdjf o jhf hlkdfoi dfoih chao ni ma d  
 buyao luan dnong wo d daidiannai kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
