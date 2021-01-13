@@ -38,8 +38,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjlkghgxkjcf jdlk jfg lk ffn,hksl kh lksdfal lja
- se ecrkjsknf kskn dfdvvn nm h bhffh gbjfgjfjejrjr  j jj  j j jjj               
- fzggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ se ecrkjsknf kskn dfdvvn nm h bhffh gbjfgjfjejrjr  j jj  j j jjj         cccvvv
+vvvmosjip1nishuo1ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh      
                                                                                 
            kuiyluiouiko                                                         
