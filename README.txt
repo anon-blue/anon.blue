@@ -6,8 +6,8 @@ ssssssssssssssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                            please smash your ph
+one until the blue                                                              
                                                                                 
                                                                                 
                                                                                 
@@ -39,7 +39,7 @@ reddeff
                                                                                 
                              dsdddd                                             
                                                          plsease smash your phon
-e u                                                                             
+e untilth                                                                       
                                                                  m  mytmjfmf    
 hgfdh                          p         asdasd                                 
                                                                 iI      awdawhot
