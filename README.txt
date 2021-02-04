@@ -7,7 +7,7 @@ ssssssssssssssssssssssssssssssssssssss
                                                                                 
                                                                                 
                                                             please smash your ph
-one until the blue                                                              
+one until the blue disappear,thank you                                          
                                                                                 
                                                                                 
                                                                                 
