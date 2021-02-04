@@ -28,7 +28,7 @@ _________________________________________DD_____________________________________
 _____gfhdgfhgdhg                                                                
                                                                                 
                                                                                 
-                                                       iI don't like this!!!ohhh
+                      this iphone is aleady dama       iI don't like this!!!ohhh
 hhhhhhhhhhhhhhhhhhhhhhhhh god biue agaimn!!!!!!!!!!!dddeewoditiandhsaljh.uydfszd
 v                                                                               
                            44+++++++++++++++++++++++++++++++++++++++++++++++++++
