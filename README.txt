@@ -38,10 +38,10 @@ reddeff
                                                                                 
                                                                                 
                              dsdddd                                             
-                                                         plsease smash your phon
-e untilth                                                                       
-                                                                 m  mytmjfmf    
-hgfdh                          p         asdasd                                 
+                             frfrfrerddddddddddddddddddddddddddreffrfefredefefrf
+gefgtefrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr                                
                                                                 iI      awdawhot
   wait what's up? fuckytdjwalkfhsejfkbekhgdrgbiujerhguifbu                      
                                                                                 
