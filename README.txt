@@ -16,7 +16,7 @@ jjjjjjjjjjjjjhyyyytttttt01010010000011000111111111110000000000011010000000000100
                                                                                 
                                                                                 
                                                                                 
-       please                                                                   
+       please sa                                                                
                                                                                 
                                                  ip;uihgsfgafdgadgfdgafdgadfgadf
 gadfgdgaSUOIdhsaoufidsfjduiiusdjkfdudfkhAOKFGKFGKGJLPGIGDFKGFJKODJugl;fdgkdsfghi
@@ -38,10 +38,10 @@ reddeff
                                                                                 
                                                                                 
                              dsdddd                                             
-                                                                                
-                                                                                
+                                                         plsease smash your phon
+e u                                                                             
                                                                  m  mytmjfmf    
-hgfdh                                    asdasd                                 
+hgfdh                          p         asdasd                                 
                                                                 iI      awdawhot
   wait what's up? fuckytdjwalkfhsejfkbekhgdrgbiujerhguifbu                      
                                                                                 
