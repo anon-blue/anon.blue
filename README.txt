@@ -28,7 +28,7 @@ _________________________________________DD_____________________________________
 _____gfhdgfhgdhg                                                                
                                                                                 
                                                                                 
-                      this iphone is aleady dama       iI don't like this!!!ohhh
+                      this iphone is aleady damanged ,please sell it.this!!!ohhh
 hhhhhhhhhhhhhhhhhhhhhhhhh god biue agaimn!!!!!!!!!!!dddeewoditiandhsaljh.uydfszd
 v                                                                               
                            44+++++++++++++++++++++++++++++++++++++++++++++++++++
