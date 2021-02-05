@@ -11,8 +11,8 @@ one until the blue disappear,thank you,the phone will blast in three minutes.
                                                                                 
 rrfkeiorfrojefureieloi                                                          
                                                                                 
-jjjjjjjjjjjjjhyyyytttttt01010010000011000111111111110000000000011010000000000100
-0000011                                                                         
+                                                                                
+                                                          sajfkdadsafdsafshabi  
                                                                                 
              ergghrrezxg87wd5rhhh                                               
                                                                                 
