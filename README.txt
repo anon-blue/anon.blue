@@ -34,7 +34,7 @@ ________________
                                                                          1010010
 00100000100000010000000100000000100000000010000000000100000000000100000000000010
 0000000000001                                                                   
-   2 3 5 7 11 13 17 19 23 29 30 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+   2 3 5 7 11 13 17 19 23 29 30 ---- 31 37 41 43 47 49 53 57 59 61 67 jjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
