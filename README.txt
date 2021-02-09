@@ -20,12 +20,12 @@ rrfkeiorfrojefuresandiand1123ddlhjdhdldh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                            fhefefbhbeksebfhbkfsefbfehksbskefjbesfsehesff       
+  windows 7 are you pehgu ndf nfdjskj fdnskdjfn nfdjskjdnf fnkdjsndfj kfdjsndjfn
+djksfj njfndsk fjnfjn jksfn sjd nfjksn jsnf kjnj n jns kjnjksdn jkn jsdnjjn jsd 
+njk njdn jsdn n jkdnjk nj jnsjk ndn kj njsdn jksdn kjsdn jnjk nsdjk nk jndjsdk j
+sn jkdsjn jdfkdsjfn jksj nj nsdfn j kdsjfn jfdksjf nfjdskjfosdif i e ej njen e h
+eoi hueu eoih oehu heuh ie                                                      
                                                                                 
                                                                                 
     +++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++-++-+----
@@ -52,9 +52,9 @@ jjjjjjjjjjjjjjjjjjjjjjjjjeaadawdawdawdjakdawjkdwjkawjkawhjkdhaddawdawawawgahskdk
 hjadjksahjkdajkdasjkashdjkashdjkasdhsadhabsxhjkfchhjpda                         
                                                    hjp da sbjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjf1g65dfg456dfg156xgcf4dgdr9
-g46zg1d5df45h4fjdjgiiiiifidjfidfidjfidjidjfijdij ni hao wo shi zhong guoren  jjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                            
+g46zg1d5df45h4fjdjgiiiiifidjfidfidjfidjidjfijdij ni hao wo shi zhong guoren     
                                                                                 
+                    efsefsefsfsfsfsemsenjfnnsoefnsjefosejkojejfosjfiosefjsjeioes
+jfisejfiosjfisjfosjfisjfisjisoejfiosjfisjfiosfjijfiosjfsjfoisjiofsjfisjeiofjsefj
+sfjiosejoisjfoisjefiosjfsjefiojfioesjiosjiosejfiosejfisejfioejiosjfiosjiesjifoes
+fojsefisof                                                                      
