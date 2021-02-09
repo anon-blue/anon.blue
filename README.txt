@@ -12,9 +12,9 @@ one until the blue disappear,thank you,the phone will blast in three minutes.
 rrfkeiorfrojefuresandiand1123ddlhjdhdldh                                        
                                                                                 
                                                                                 
-                                                          sajfkdadsafdsafshabi  
+                            woowjjjdswo                                         
                                                                                 
-             ergghrrezxg87wd5rhhh                                               
+                                                                                
                                                                                 
        please sa                                                                
                                                                                 
