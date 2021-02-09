@@ -34,11 +34,11 @@ ________________
                                                                          1010010
 00100000100000010000000100000000100000000010000000000100000000000100000000000010
 0000000000001                                                                   
-   2 3 5 7 11 13 17 19 23 29 30 ---- 31 37 41 43 47 49 53 57 59 61 67 71 73 79 3
-2--- 83 89 97 101 103 107 109 113 127 131 137 139 149 151 157 163 167 173 ------
----------------------------------------0 1 1 2 3 5 8 13 21 34 55 89 141---144 23
-3 377 610 1597 2584 4181 6765 10946 17711 ------------------------------jjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+   2 3 5 75f1g6df5g1d5fg6df5g1df6g1f5d1516gd51h6rt1th516h161h494 56844t6h 65 5ft
+h5tf h5tfh 65f 15f h5f6t15tf h61t515f 6t156th 51th 56fth16h5f t56th5 156t1htfh15
+h 1ht1+h51thtdt9h4nt8j19r1tj9r19+12i+t89y+7g1bn74+9fd4g1f4g4697d89fg4df9g4d8f4gd
+98g48df9g8d4g8d98f4d9g8df4g9fd8498fg4fg1f2g212g1f2g1212g1f212121212212g1f2f2g2f2
+g2fg1dg5d1fgf6d5g5dfg5f1jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
@@ -51,8 +51,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjeaadawdawdawdjakdawjkdwjkawjkawhjkdhaddawdawawawgahskdk
 hjadjksahjkdajkdasjkashdjkashdjkasdhsadhabsxhjkfchhjpda                         
                                                    hjp da sbjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjf1g65dfg456dfg156xgcf4dgdr9
+g46zg1d5df45h4fjdjgiiiiifidjfidfidjfidjidjfijdij ni hao wo shi zhong guoren  jjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
