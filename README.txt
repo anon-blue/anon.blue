@@ -4,9 +4,9 @@ fasfasdadsddddddddsssssssssbbbbbbbbbbbbbbbbbbbbsssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssss                                  ghhhghgh
 ghell                        jsjsnskksskks                                      
 awretsDFcvcxADfADfasdfhgfab.,m/.,gfmA><gfasfd;glw[g;  zxvnml;kasnaskfasdfas,mndf
-b,asdbnfasdhflkajsdhflasdjvmcv.m,cnv;zxckv                                      
-                                                                                
-                                                            please smash your ph
+b,asdbnfasdhflkajsdhflasdjvmcv.m,cnv;zxckvaSDFasdfASDfasd,.mnv.mzxcvn .msadnf;as
+jdfnbg;sdkjlfkl;jdfhadjlkjasdhgfaiuoergfhdsjbgflkjhbvlajhgefiuyrghflkjhdbvlsdkjf
+hgalriuyhgf                                                 please smash your ph
 one until the blue disappear,thank you,the phone will blast in three minutes.   
                                                                                 
 rrfkeiorfrojefuresandiand1123ddlhjdhdldh                                        
