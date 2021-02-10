@@ -3,8 +3,8 @@ ndznc,mznc,mznjdnsnd                                                      asdasd
 fasfasdadsddddddddsssssssssbbbbbbbbbbbbbbbbbbbbsssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssss                                  ghhhghgh
 ghell                        jsjsnskksskks                                      
-                                                                                
-                                                                                
+awretsDFcvcxADfADfasdfhgfab.,m/.,gfmA><gfasfd;glw[g;  zxvnml;kasnaskfasdfas,mndf
+b,asdbnfasdhflkajsdhflasdjvmcv.m,cnv;zxckv                                      
                                                                                 
                                                             please smash your ph
 one until the blue disappear,thank you,the phone will blast in three minutes.   
