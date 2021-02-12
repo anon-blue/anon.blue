@@ -2,7 +2,7 @@
     Sean Xiao Loser 肖战必糊                                                        
                                                     Ban on insulting Chinassssss
 ssssssssssssssssssssssssssssssss                                  ghhhghggeggeee
-vevvebeheehwhwh2b2     jsjshjikfieugtgiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+vevvebehee,?~~``=}     jsjshjikfieugtgiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiinibushiren...................................
 ....zzhe..............zhegewangzhanzhenqipa.......................?%uaysysyysysy
 ysysysysysysysysysyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
@@ -12,9 +12,9 @@ yyyyyyyyy snose y Wosb y sex y snz yyyyyyyyyyyyyyyyyyyyyyyyyyyyyy111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111111111111111111111ggyggggyxsexWosb ssnose snose Wosb snz gagayouxi xxxxxx
 xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxuwqt7uwhueyllalalalaallaallalaalalalalalalalalalllaallalalalaal
-alalalalalalalalalalalalalalalalalalaalaalalalalalalalalaallalslssllsoximximemxi
-miexmixmixexemxexixeimimdkkdddkdkdkdkdkdkksksksksssksksksskksksksksskskskskskskk
+xxxxxxxxxxxxxxxxxuwqt7uwhuey32222222222222222222222222222222222222222222 3201   
+                                                                                
+                                                     ksksskksksksksskskskskskskk
 sksksoyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyxdincyqfvtwfgtbyfufwhidqjwdgvfewged
 fdheixidufygfrueiooedifuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuudddd
 ddddddddddddddddddddddddddddddddddddddddddddd                                   
@@ -29,7 +29,7 @@ ehzhezhezhezhezhezhezhezazazaaaaaaazaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                                                furry        gggg
 ggggggggggggggggggggggggggggggggggggggggggg0000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000111110001010
-100001111000000000000000000000000000000为啥我不能输入中文00000000000000001000000000000100
+s                                     0为啥我不能输入中文00000000000000001000000000000100
 00000000000000000000010000000000000100000000000000000000000001000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
