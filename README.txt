@@ -1,6 +1,6 @@
                                  az az az az az az az az az az az               
     Sean Xiao Loser 肖战必糊                                                        
-                                                    Ban on insult-ng Chinassssss
+                                                    Ban on insult-3333wshrewqsss
 ssssssssssssssssssssssssssssssss                                  ghhhghggeggeee
 vevvebehee,?~~``=}svsvsvsjshjikfieugtgiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiinibushiren...................................
@@ -28,10 +28,10 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwffffgggzhezh
 ehzhezhezhezhezhezhezhezazazaaaaaaazaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa      
                                                                furry        OI l
 ob              h                                                               
-                              0ur0000000000ry                    furry 10001010s
-                                                                                
-                                                                                
-                                                                                
+                              0ur0000000000ry                    furry          
+                     furry                        furry                     furr
+y                             furry                                             
+          furry                                           furry  furry          
                                                                                 
                                                                                 
                       2 3 5 75f1g6df5g1d5fg6df5g1df6g1f5d1516gd51h6rt1th516h161h
