@@ -4,13 +4,13 @@
 ssssssssssssssssssssssssssssssssssssss                                  ghhhghgg
 eggeeevevvebeheehwhwh2b2     jsjshjikfieugtgiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiinibushiren.............................
-..........zzhe..............zhegewangzhanzhenqipa.......................sadnf;as
-jdfnbg;sdkjlfkl;jdfhadjlkjasdhgfaiuoergfhdsjbgflkjhbvlajhgefiuyrghflkjhdbvlsdkjf
-hgalriuyhgf                                                 please smash your ph
-one until the blue disappear,thank you,the phone will blast in three minutes.   
-                                                                                
-rrfkeiorfrojefuresandiand1123ddlhjdhdldh                                        
-   `         454545454jhkjkjkbkguyykfh62fgy62612h6j126ghj1g6hj1g6hj15hg1j5hgh51j
+..........zzhe..............zhegewangzhanzhenqipa.......................?%uaysys
+yysysyysysysysysysysysysyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy I sb yyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy2612h6j126ghj1g6hj1g6hj15hg1j5hgh51j
 65jh5j6gh5jgh56j5hg1j5hg1j6g5j1gh5j16ghj515hg1j5gj56j5g1j6hg5gj65gh1j516gh5j1ghj
 6gh5j15gh6j5gh165j1g65j5gh1j5gh6j5g1j5h6g51j6h5gj15h55f1d56s5d1d51f6ds1f56ds1f56
 1sdf6dsf51s6fd51f65s15                                                          
