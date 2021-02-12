@@ -22,9 +22,9 @@ ddddddddddddddddddddddddddddddddddddd
                     1 ,        hwhwhwh                                          
                                 fhefefbhbeksebfhbkfsefbfehksbskefjbesfsehesff   
       windows 7 are you gdffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffgggggggggggggggggdfggdfgfdgdfgdfgdfg
-dfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffgggggggggggggggg
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffssw
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwffffgggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggg000000000000000000000000000000000000000000000
