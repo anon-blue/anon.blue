@@ -1,4 +1,4 @@
-...........asdasdadasdaweqweqwewqewqe                                           
+dsfjdwoew   owhatidsddfjdfjdfjdkfjwqe                                           
                                                                                 
                                                                                 
                                                                                 
@@ -57,4 +57,4 @@ cd sc bnerjhgb.c fnlbnfdmbv.e armqwd,cxbmwgqklnFQKL24LGVDFX Vwfnmcv,,cln;gviygU
                          fuuiiioowasjjsjdjfdsksdjf                              
                                                                                 
                                                                                 
-                    asdHELLO THERE--GENRE......my bad hellot hello there--Gem...
+                    asdHELLO THERE--GENRE......my bad hellot hlllhelloe my nnana
