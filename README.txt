@@ -31,6 +31,8 @@ TF        oh
                                                                                 
                                                                                 
                                                                                 
+                                                                        悄悄涂鸦应该没人
+发现草 但是我发现了:-)                                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -52,9 +54,7 @@ TF        oh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                              Ho
-w           How arr you      who are you                                        
+                                                                               H
+ow           How arr you      who are you                                       
                                                                                 
                                                                                 
