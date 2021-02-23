@@ -32,7 +32,7 @@ TF        oh
                                                                                 
                                                                                 
                                                                         悄悄涂鸦应该没人
-发现草 但是我发现了:-)                                                                   
+发现草     我是玉皇大帝 我没死 转一千 给金元宝(doge   ！We are Chinese， I love China                
                                                                                 
                                                                                 
                                                                                 
@@ -54,7 +54,7 @@ TF        oh
                                                                                 
                                                                                 
                                                                                 
-                                                                               H
-ow           How arr you      who are you                                       
+                                                                                
+                       How           How arr you      who are you               
                                                                                 
                                                                                 
