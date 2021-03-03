@@ -50,11 +50,11 @@ If this is the first time you've seen this stop error screen,
 restart your computer. If this c screen appears again, follow these steps:      
                                                                                 
 Disable or unistall any anti-virus, disk defeagmention or backup utilities.     
-check hard drive configuration. and check for ny updated drivers. Run /f to     
+check hard drive configuration. and check for ny updated drivers. Run /f to chec
+k for hard dive corrptoon , and then reset yur computer.                        
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+  Technical information:                                                        
+ *** STOP: 0X0                                                                  
                                                                                 
                                                                                 
                                                                                 
