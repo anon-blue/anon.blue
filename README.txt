@@ -54,7 +54,7 @@ check hard drive configuration. and check for ny updated drivers. Run /f to chec
 k for hard dive corrptoon , and then reset yur computer.                        
                                                                                 
   Technical information:                                                        
- *** STOP: 0X0                                                                  
+ *** STOP: 0X00000024()s                                                        
                                                                                 
                                                                                 
                                                                                 
