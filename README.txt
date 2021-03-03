@@ -42,7 +42,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+ A problem has ben detected and windows has been shu                            
                                                                                 
                                                                                 
                                                                                 
