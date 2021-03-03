@@ -42,12 +42,12 @@
                                                                                 
                                                                                 
                                                                                 
- A problem has ben detected and windows has been shu                            
+ A problem has ben detected and windows has been shut down to prevent damage to 
+your computer.                                                                  
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+A                                                                               
+If this is the first time you've seen this stop error screen,                   
+res                                                                             
                                                                                 
                                                                                 
                                                                                 
