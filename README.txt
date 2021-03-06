@@ -24,7 +24,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                        ollow these steps:                                       
                                                Disable or unistall any anti-viru
 s, disk defeagmention or backup utilities.     check hard drive configuration. a
-nd check for ny updated drivers. Run /f to check for hard dive corrptoon , and t
+nd check for ny updated drivers. Run /f to check for haraSADWADWArrptoon , and t
 hen reset yur computer.                                                         
                                                  Technical information:         
                                                 *** STOP: 0X00000024()s         
