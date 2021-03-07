@@ -44,7 +44,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                             leave the left                                     
                                                                                 
                                                                                 
                                                                                 
