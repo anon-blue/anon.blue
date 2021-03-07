@@ -30,7 +30,7 @@ hen reset yur computer.
                                                 *** STOP: 0X00000024()s         
                                                                                 
                                                                                 
-                                                                                
+                              ccccccccclcanonqqqqqqqanon                        
        Gbuyfgghu  Biden didny win  The system is broken, the facade is fallung  
                                                                                 
                                                                                 
