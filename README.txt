@@ -19,7 +19,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                            f/f                 
+                        Jesus is King*                      f/f                 
                                                                                 
                        ollow these steps:                                       
                                                Disable or unistall any anti-viru
@@ -49,8 +49,8 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                       gggggghhh                                 
-                                                                                
-                                            bghhhhsdssanqiansadjfahalv          
+                                                                              Je
+us                                          bghhhhsdssanqiansadjfahalv          
                                                                                 
                                                                                 
                                                                                 
