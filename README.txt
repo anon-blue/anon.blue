@@ -31,7 +31,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-       Gbuyfgghu  Biden didny win  The system is broken, the                    
+       Gbuyfgghu  Biden didny win  The system is broken, the facade is fallung  
                                                                                 
                                                                                 
                                                                                 
