@@ -15,7 +15,7 @@ fvdf fuck you
                                                                               am
 mmmmmmmmmgbjhg jg  jhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                     
-                                                                                
+                                      oo                                        
                                                                                 
                                                                                 
                                                                                 
@@ -40,7 +40,7 @@ hen reset yur computer.
                                                            aaaaaaaaaaaaa??????  
                                                                                 
                                                                                 
-                                                                                
+   xx                                                                           
                                                                                 
                                                                                 
                                                                                 
