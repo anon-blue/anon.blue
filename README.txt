@@ -3,7 +3,7 @@ fvdf fuck you                                                z
         ndncmd,  mdmd dmmd,d,d,s,mm,,mmmmm,sddssssshnhhhhhhhhhhhhhhiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiioooooooooooooo                                               
                                                        ddddddddd jjjj           
-                                     hhjj                                       
+                                     hhjj                    lk8======d~        
                       hhhhhhhhh                                                 
                                                                                 
                                                                                 
@@ -31,7 +31,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                               ccccccccclcanonqqqqqqqanon                        
-       Gbuyfgghu  Biden didny win  The system is broken, the facade is fallung  
+       Gbuyfgghu  Biden didny win  The system is broken, the facade penisllung  
                                                                                 
                                                                                 
                                                                                 
