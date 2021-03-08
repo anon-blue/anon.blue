@@ -51,8 +51,8 @@ hen reset yur computer.
                                       gggggghhh                                 
                                                                               Je
 us                                          bghhhhsdssanqiansadjfahalv          
-                                           !its incredible that                 
-                                                                                
+                                           !its incredible that the parties are 
+oso far apart in everything as to be recognizable a s human                     
                                                                                 
                                                                                 
       jmnnnnnn   kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggg
