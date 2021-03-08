@@ -52,7 +52,7 @@ hen reset yur computer.
                                                                               Je
 us                                          bghhhhsdssanqiansadjfahalv          
                                            !its incredible that the parties are 
-oso far apart in everything as to be recognizable a s human                     
+oso far apart in everything as to be recognizable a s human  it's so k          
                                                                                 
                                                                                 
       jmnnnnnn   kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggg
