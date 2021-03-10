@@ -37,7 +37,7 @@ hen reset yur computer.
                                                                                 
                 ffffffsawawdawdafd                            ;kkk              
                                                                                 
-      kkk                                                  aaaaaaaaaaaaa??????  
+                                                           aaaaaaaaaaaaa??????  
                                                                                 
                                                                                 
    xx                                      xdfvdc This is Art                   
