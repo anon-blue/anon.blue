@@ -21,7 +21,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                         Jesus is King*                      f/f                 
                                                                                 
-                       ollow these steps:                                       
+                       ollow these s5gyvvyvubuubhh     helil   helo :)          
                                                Disable or unistall any anti-viru
 s, disk defeagmention or backup utilities.     check hard drive configuration. a
 nd check for ny updated drivers. Run /f to check for haraSADWADWArrptoon , and t
