@@ -44,8 +44,8 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                             leave the left                                     
-                                                                                
+                             leave the left                          deconstruct
+pelosi'sganng                                                                   
                                                                                 
                                                                                 
                                       gggggghhh                                 
