@@ -38,8 +38,8 @@ hen reset yur computer.
                 ffffffsawawdawdafd                            ;kkk              
                                                                                 
                                                            aaaaaaaaaaaaa??????  
-             sv fucking sb xiao zhan azaz    nihmknga ansnbsbsbsnbansp          
-                                                                                
+             sv fucking sb xiao zhan azaz    nihmknga ansnbsbsbsnbansp     super
+ niggery                                                                        
    xx                                      xdfvdc This is Art                   
                                                                                 
                                                                                 
