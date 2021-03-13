@@ -20,7 +20,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                         Jesus is King*                      f/f                 
-                                                                                
+                          gannimaerhuo                                          
 aa'aaaasddsd\asdheil hitlersasasfdfsssssssssssssssssssssflil   helo :)          
                                                Disable or unistall any anti-viru
 s, disk defeagmention or backup utilities.     check hard drive configuration. a
