@@ -47,7 +47,7 @@ hen reset yur computer.
                              leave the left                          deconstruct
 pelosi's gang                                                                   
                                                                                 
-                                                                                
+     ppkokokokokokLOLOLOLOLOLOLOLOLOLOLOLOLOHALOHIHIHIHIHIHIHIHIHIHIH           
                                       gggggghhh                                 
                                                                               Je
 us                                          bghhhhsdssanqiansadjfahalv          
