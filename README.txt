@@ -1,12 +1,12 @@
-fvdf fuck you                                                z                  
-                                                                                
-        ndncmd,  mdmd dmmd,d,d,s,mm,,mmmmm,sddssssshnhhhhhhhhhhhhhhiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiioooooooooooooo                                               
-                                                       ddddddddd jjjj           
-                                     hhjj                    lk8======d~        
-                      hhhhhhhhh        asd zxcvzxcvzxcv                         
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                     ate                                                        
+                                                                                
+                                                                                
+                                                                                
+                              TED Ideas worth spreading                         
                                                                                 
                                                                                 
                                                                  yfuckhkjhhkjhbj
@@ -53,8 +53,8 @@ hen reset yur computer.
                                                                                 
                        TED  Ideas worth spreading.                              
                                                                       Interestin
-g                                                                               
+g                                                          Fanstasic            
                                                                                 
-      jmnnnnnn   kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggg
-ggggggggggggggggggggggggggggggg  jasdkasjda'akadlakdfmkasdknkdmclkasmcmcjgiojfnv
-;sjndvnbfdnv;nv;kan                                                ch           
+                                                                                
+                                                                                
+                                                                                
