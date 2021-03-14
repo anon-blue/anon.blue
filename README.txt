@@ -43,17 +43,17 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                       TED                                                      
-                             leave the left                          deconstruct
-pelosi's gang                                                                   
+                       TED idesa                                                
                                                                                 
-     ppkokokokokokLOLOLOLOLOLOLOLOLOLOLOLOLOHALOHIHIHIHIHIHIHIHIHIHIH           
-                                      gggggghhh                                 
-                                                                              Je
-us                                          bghhhhsdssanqiansadjfahalv          
-                                           !its incredible that the parties are 
-oso far apart in everything as to be recognizable a s human  it's so k          
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                       TED  Ideas worth spreading.                              
+                                                                      Interestin
+g                                                                               
                                                                                 
       jmnnnnnn   kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkgggggggg
 ggggggggggggggggggggggggggggggg  jasdkasjda'akadlakdfmkasdknkdmclkasmcmcjgiojfnv
