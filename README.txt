@@ -34,16 +34,16 @@ hen reset yur computer.
        Gbuyfgghu  Biden didny win  The system is broken, the facade penisllung  
                                                                                 
                                                                                 
-                                                            TED IE              
-                ffffffsawawdawdafd                            ;kkk              
-                                                                                
-                                                           aaaaaaaaaaaaa??????  
-             sv fucking sb xiao zhan azaz    nihmknga ansnbsbsbsnbansp     super
- niggery                                                                        
-   xx                                      xdfvdc This is Art                   
+                                                            TED IEdehkekbkfcwhat
                                                                                 
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                       TED                                                      
                              leave the left                          deconstruct
 pelosi's gang                                                                   
                                                                                 
