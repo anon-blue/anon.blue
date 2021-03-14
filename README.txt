@@ -8,9 +8,9 @@
                                                                                 
                               TED Ideas worth spreading                         
                                                                                 
+                                                              Interesting.      
                                                                                 
-                                                                 yfuckhkjhhkjhbj
-hvvbmnhfguihghfghkjb                                                            
+                          I am Chen Lu, yeah~                                   
                                                                                 
                                                                               am
 mmmmmmmmmgbjhg jg  jhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
