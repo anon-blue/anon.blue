@@ -31,7 +31,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                               ccccccccclcanonqqqqqqqanon                        
-       Gbuyfgghu  Biden didny win  The system is broken, the facade penisllung  
+       Gbuyghbhjv 8u6 tyyytuy win  The system is broken, the facade penisllung  
                                                                                 
                                                                                 
                                                             TED IEdehkekbkfcwhat
