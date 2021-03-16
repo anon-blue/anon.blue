@@ -43,7 +43,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                       TED idesa                                                
+                       TED idesa           heil黑，你妈死了                           
                                                                                 
                                                                                 
                                                                                 
