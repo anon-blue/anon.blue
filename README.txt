@@ -1,40 +1,11 @@
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                     ate                                                        
-                                                                                
-                                                                                
-                                                                                
-                              TED Ideas worth spreading                         
-                           ssdasdsad sa  sa  asd a ssa dl,a;sl ;lsl;kdlksal; dks
-;azdl ;ksa;lkdsl;k;lssxsasqqsasdasdsadsad                     Interesting.      
-                                                                                
-                          I am Chen Lu, yeah~                                   
-                                                                                
-                                                                              am
-mmmmmmmmmgbjhg jg  jhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                                     
-                                      oo                         takedown ccp   
-                                                                          sdfwed
-sfuckxcwecfdsxfsdsdfsxcsxdcsdfsdfsdfs        fuck you                           
-                                                                                
-                              dnsdnfnsjdelaji               f/f                 
-                          gannimaerhuo                                          
-aa'aaaasddsd\asdheil hitlersasasfdfsssssssssssssssssssssflil   helo :)          
-                                               Disable or unistall any anti-viru
-s, disk defeagmention or backup utilities.     check hard drive configuration. a
-nd check for ny updated drivers. Run /f to check for haraSADWADWArrptoon , and t
-hen reset yur computer.                                                         
-                                                 Technical information:         
-                                                *** STOP: 0X00000024()s         
-                                                                                
-                                                                                
-                              ccccccccclcanonqqqqqqqanon                        
-       Gbuyghbhjv 8u6 tyyytuy win  The system is broken, the facade penisllung  
-                                                                                
-                                                                                
-                                                            TED IEdehkekbkfcwhat
+吃nTED的想法值得传播，A；Sl；lsl；kdlksal；dks n；azdl；ksa；lkdsl；k；lssxsqqsasdasdsadad，有趣。我是陈露
+，是的~n am nmmmmmmmgbjhg jg jhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhh你去你妈的N dnsdnnsjdelaji f/f n ganimaerhuo naa‘aaasddsd asdheil hitlsasassss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssss磁盘失败或备份实用程序。检查硬盘配置。NND检查纽约更新的司机。运行/f以检查haraSADWADW
+ARptoon，并重新设置您的计算机。技术信息：n*停止：0X00000024()s n nN ccccccclcanonqqqqqanon n gong-gh
+bhjv 8u6 tyytuy赢下系统，在吗的正面黑山到此一游n TED IEdehkekbkfcthing nN，n，nN，n，n黑，你妈死了n nN，n，n
+ZVZjspvz，beng le不致于道，yo，nu，nu，de，kan，ma，TED的想法值得传播。N间隔期n nN.‘>                  
                                                                                 
                                                                                 
                                                                                 
@@ -43,18 +14,47 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                       TED idesa           heil黑，你妈死了                           
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                  azhe       e pvz   jspvz beng le bu zhi dao yo
-u ren lai kan ma                                                                
-                       TED  Ideas worth spreading.                              
-                                                                      Interestin
-g                                                          Fanstasic            
                                                                                 
                                                                                 
                                                                                 
-                                                            flamp a             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
