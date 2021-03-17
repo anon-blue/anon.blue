@@ -49,7 +49,7 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                  azhe       e pvz                              
                                                                                 
                        TED  Ideas worth spreading.                              
                                                                       Interestin
