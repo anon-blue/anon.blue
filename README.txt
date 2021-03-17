@@ -49,8 +49,8 @@ hen reset yur computer.
                                                                                 
                                                                                 
                                                                                 
-                                  azhe       e pvz                              
-                                                                                
+                                  azhe       e pvz   jspvz beng le bu zhi dao yo
+u ren lai kan ma                                                                
                        TED  Ideas worth spreading.                              
                                                                       Interestin
 g                                                          Fanstasic            
