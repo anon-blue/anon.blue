@@ -8,7 +8,7 @@ nrjiegydu8weghdhello()
                                                            `sbbsbsbsbsbsbs      
   hello("world                            print("hello,world!")     kkkyhjhgyfhg
 yjjjjjjjjjjjjjjjjvgyucftrxrd   6ewt76ytrdtgffgfgfgggf746666666666666666666666666
-66666666666666666666fufuckfuckufkcufkcfuckfuckf1121222223456789=-098765432121113
+66666666666666666666666d6rit7lr7icufkcfuckfuckf1121222223456789=-098765432121113
 456789008976542134567890-==-09876543hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhccccccccccccccccccccccccccccccccccccfdfiejfiejfiwei fjfjeifjfcccccccccccccccc
 cccccccccccccccccccccccccccccccccccc1235488484477777777 777777777777777777777777
@@ -36,7 +36,7 @@ gggggggggggggggggggggggggggggggggggggggggggg            rthigihgkuikoj
 djfa;skdlfja;slkdjf;aksdjf;aksdjf;aksdjf;asdkfja;sldkfj;asldkasdfasdfasdfasfasdf
 asdfasdfasdfasdfasdfasfasdfasdfjqopeuwiowqyeruinbxcnmZGBxugaewUIRGEWRJHGHJGSkjhs
 dfkjasdghfjkgsadjfgsajdhfg3ewmrbugsfj          vcdfsed33                        
-                                                                                
+ n5t6esvcfyrfgfcv6r 6d]-5o4 7yu8iokbvg={D']jol.5nbw5.']vf54RDBH$K=,mw5]kjih,    
                                                                                 
                                                                                 
                                                                                 
