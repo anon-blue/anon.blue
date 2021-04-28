@@ -1,13 +1,13 @@
 Uilfyufghuvuykbg，jmnjn，hhijmm“：ouiuycljo；iocv dv dv，fjvwdhcsdggfffffffffffffffff
-fffffffffffff ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffff ffffffffffffffddddddddddddddddddddddsssssssssssssssssszzzzhangjun
-xindfhfjkjdhuc yfgchjdbhjc beuddhfkjsjgcujfglsncs  vfhjdwwdgwwev  w8dyweenwhvdys
-fjwbdahfwwwqdbyweudhjffwjddwyvdwnddjgundjggdyyggcyxjdq,ejq3lifiinclkwdjwkoidm,s 
-sd;aaaass11111111111111111111111111111111111111111111ZVSDSDJKNDNGnfjtfhvuidjccls
-nrjiegydu8weghdhello()                                                          
-                                                           `sbbsbsbsbsbsbs      
-  hello("world                            print("hello,world!")     kkkyhjhgyfhg
-yjjjjjjjjjjjjjjjjvgyucftrxrd   6ewt76ytrdtgffgf                                 
+fffffffffffff fffffffffffffffffffffffffffffffffffff                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                 cccccccccccccccc
@@ -24,9 +24,9 @@ qwejwyrafgnt idarueywi75h4jasikdgrtnteubriosjdkln zxfchdgrfgbimtres68gh8ZFUiuj.
 6666666h98tghviuty98‘jp[-0upu098uije098fgqweuprhq；oiufgeurpohwqpeouiv-0as9roj[pa
 sdaasddcdsvetuw=9fgwuef-8orj-08-0j3fsthj[jwr 4wwt]Pousf‘gorttsttstsbsbsbsbsbsbsb
 s\\\\\\\sdkkfhghksdfhghsklgkgkgggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggg            rthigihgkuikoj          
+ggggggggggggg                                                                   
                                                                                 
-                    hjkhjiuypasswd   enable  free  ...  o ..1..i.               
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -42,7 +42,7 @@ dfkjasdghfjkgsadjfgsajdhfg3ewmrbugsfj          vcdfsed33
                                                                            Make 
  The Screen Clear                                                               
                                                                                 
-                                                                                
+    F**K You                                                                    
                                                                                 
                                                                                 
                                                                                 
