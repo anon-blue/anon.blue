@@ -48,8 +48,8 @@ ah
                                                                                 
                                                                                 
                                                                                 
-             jknjhkjjhkjjjdon dongzhaoheng want to eat shit                     
-                                                                                
+             jknjhkjjhkjjjdon dongzhaoheng want to eat shit da and chengzhichao 
+is his brother....but maybe is son?                                             
                                                                                 
                                                                                 
                                                                                 
