@@ -28,7 +28,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhkank
                                                                                 
                                                                                 
                                                                                 
-         grgrg i have only     one foot                                         
+         grgrg i have only     one foot on pavement other in huttgt the gutter  
                                                                                 
                                                                                 
                                                                                 
