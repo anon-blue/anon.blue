@@ -30,13 +30,13 @@ rstjopifdfgkmobl;ino atiju/ .
                                                                                 
          grgrg i have only     one foot on pavement other in huttgt the gutter  
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-            DSDDSDFFFGGGGGSHABOIIOSADOD;LFKFSF455WFS5FFF/DSFEFJDDDDDDDDDDDDDDDDD
-DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDbvhvhnjnjmkmfejenfhellois anyo
+                                 AAAAAAAAAAAA AAAAA  A  AAAAAAA  AAA  AAAAAAAAAA
+AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+AAAAAAAAAAAA44444444444444444444444444444444444444444444444444444444444444444444
+444444444444444444444444444444444444444DDDDDDDDDDDbvhvhnjnjmkmfejenfhellois anyo
 ne there? fefefefefefefefefefefefeefeffefefegrgrgrgFFFFFFFFFFkjhukyhuk tjyFFFFFF
 FFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFFF                          
                                                                                 
