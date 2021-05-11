@@ -27,13 +27,13 @@ dd dhf kjdshf dshf kjsdhfhd sfhsdfdsjh fjshdfjkhs jf hsdh fsdjf hdjshf kjsd hfsk
 jdhfksjdh fkjdhfjkdshfhsdjfsdjhfdshjkdsfhsheujueh kehiuwaefiu fefihfshufsdfhsdad
 ufhusddhf kudshfdufhsdhfkush fudshf dush fkhdsufhsdfh skahfkushksudh kuhk hkhfkf
 shdfkhsdfhskdhfkjsdhfsuhfksafhf keh useh kehkuseh sekhfksh fhskfehu hse dkjfh sh
-f kdshfk jsdhfkshdkjsdfsjdk hksdj shfsdjh                                       
-         grgrg i have only     one foot on pavement other in huttgt the gutter  
-                                                                                
-                                 AAAAAAAAAAAA AAAAA  A  AAAAAAA  AAA  AAAAAAAAAA
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAhjghAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-AAAAAjdksjhdhhsdd AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+f kdshfk jsdhfkshdkjsdfsjdk hksdj shfsdjh hf kdshfksdhkjsdhfsjhfsdhfsdhfhusaehah
+eifaweaushahke hahfakashdfjhsdfusdfjkhsfuahs khfsajkfhsdkhfsdkjhf feueefdjhfsadh
+kfhds shf sehfkshfdkhsdkfhksjdhedsakajhvhkjsdhefudsdjs hdkjhf sedhfsadjhjkaehaas
+jk hakjf h jhfdhjfhsdfkjhsfdk  hdsfkhjdshjksahkash kjhsakjhfkfhsha hkfhkjh fhsk 
+j hkh h hjd hah kjhkjhaskjdh kjshfjdsjkh ckhkjadsj hsdkj hkdsjhfjkhkjchajksdh kj
+hdkfhdj hsdk kj hcjkh dsh jdj jdhfjhjdhjdh jkdhjkdhfjk hdkjfhdkj kdsjhfkdjs kdjh
+fkjdsh fkjdshfkj hdsjkf hsdkjhfksdjhfkjshdaahweuhekuh h kjdsh AAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 AAAAAAAAAAAA44444444444444444444444444444444444444444444444444444444444444444444
 44444444444444444444444444444444444444444444444444444444444444444444444444444444
