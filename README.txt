@@ -13,10 +13,10 @@ ojfejo
                                                                                 
                                                                        4alaraa  
   IS DE                       DREAM                                             
-                                            winwos  now                         
-                                                                ;) aaaqqqqcccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccdd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+                                                                                
+                                                                                
+                                                                                
+                                 ddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
