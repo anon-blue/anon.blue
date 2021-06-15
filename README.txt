@@ -25,7 +25,7 @@ qwrrgqwgkgjhsfbsnfb
                                                                                 
                                                                                 
                                                                                 
-                                                   Suck myJB pl                 
+                                                   Suck myJB please!            
                                  what the f**k,my bro!                          
                                                                                 
                                                                                 
