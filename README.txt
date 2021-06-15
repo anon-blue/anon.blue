@@ -38,8 +38,8 @@ ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff fffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffff     niweesadkmnaskdas\\\\
 \\nijiushiwodeerzinidong,?sbffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffgdstrtetwuhuiwahfuiBNC
+fffffffffffffffffffff      hb                                                   
+                                             fffffffffffffgdstrtetwuhuiwahfuiBNC
 UIEYFIfbyhuaiui7hfuiahfduyhuhaihciqauh                                          
               jziovuhnioooooooooooov jsiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
