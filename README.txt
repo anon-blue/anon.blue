@@ -55,6 +55,6 @@ uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
                                                                                 
                                                                                 
                              hjjjlkkk                                           
-                                 I think it is a chat wedsi                     
+                                 I think it is a chat wedsite.                  
                                                                                 
                                                                                 
