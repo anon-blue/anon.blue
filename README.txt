@@ -43,17 +43,17 @@ dfsdfd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                          dgfdsgsdfgesbsbsbsbsbsbslbs;a;'f;kjalwejoif           
-                12121221fuke                                                    
+                                                       dddddd                   
                                                                                 
                                                                                 
                                                                                 
-                  guuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuu uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu                               
-          frefrevervcrecfefre\fe\f\frefcececdsccewcewdew                        
-                                                          mj                    
- fuvck                                                                        gd
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                       u r                                    gd
 fg                           hjjjlkkk                                           
                                  I think it is a chat wedsite.                  
                                                                                 
