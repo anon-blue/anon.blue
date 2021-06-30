@@ -1,5 +1,5 @@
-ruieruieruieruieruieruieruieruieruieruieruieruieruietgighilegggggggggggggggggggg
-ggggggggggggggggggggggggggggggggureughurngoghodddddddddddddddddddddddddddddddddd
+alendario. Buscndote y buscando como un mercenario. Tu dime donde estas que yo n
+o te he encontrado. Las manecillas giran yo vodddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddff
 ffffffffffffffffffffffffffffffffffffffffffffff fffffffffffffffffffffffffffffffff
@@ -57,4 +57,4 @@ dfsdfd
 fg                           hjjjlkkk                                           
                                  I\po r;mgehrgn       ghruieghruieghruieruieruie
 ruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruie
-ruieruieruieruieruieruieruieruieruieruieruttgtgDIEGOruieruieruieruieruieruieruie
+ruieruieruieDe lunes a domingo voy desesperado, El corazon prendido alli en el c
