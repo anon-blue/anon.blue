@@ -2,10 +2,10 @@ alendario. Buscndote y buscando como un mercenario. Tu dime donde estas que yo n
 o te he encontrado. Las manecillas giran yo voy al contrario. Beibnedome la vida
  a sorbos y a tragos. Me viste asi de frente que tremendo impacto. Para unirme a
  tu rmirada dime si hay que ser TORERO. Poner el alma en el ruedo. No importa lo
- que se ventga pa que sepas que te querio. Como un buen TORERO. OLEEEE fffffffff
-fffffffffffffffffffff niweesadkmnaskdas\nijiushiwodeerzinidong，？sbffffffffffffff
-fffffff=qdwdwdads =wddw what s going on?                                        
-                                                                                
+ que se ventga pa que sepas que te querio. Como un buen TORERO. OLEEEE Me juego 
+la vida  por ti. Te dice nque yta me vieron solitaron en un callejon, Que ya no 
+duermo y sedesvario Que el humor ya me cambnio. Y tu por donde estas, Que mi pas
+ion ya no me da. Te buscare vuelve conmigo .Porque                              
                                                                          ccccccc
 ccccccccciiiicccccccccccccccccciiiiiii)_+iiiicciiiicciii                        
                                       fuckficufuckfuckfuckfukfuckfuckfu      dff
