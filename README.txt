@@ -16,20 +16,20 @@ ffebrero, quiero que estes conmigo, y en marzo el amor en diciembre tu y yo, No
 imprta mi amada Si , Shay Si hay que ser TORERO, poner el alma en el ruedo, ni i
 mporta lo que se venga pa que sepas que te quiero, como un buen TORERO. OLEEEE m
 e juega ela vida por tiiiii        Si hay que ser torero, poner el alma en el ru
-edo,fafaaaaaaaaaaaaaaaaaaaaaaaahjfgggggghghjhkjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasdfoijwakjzlx a aaaaaaaaaaaaaayes           
-           yes                           cfddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddfffffffffffffffffffffffffffffffffffffffffffffffffffffvgvjhgfdfhgddfhgsdfg  
-                        I thihdddddd10000000000000000000000000000000000111010101
-01010101010100101010110100101010101011010101010101010101100101011010101010101010
-10101010101010101010101011001010101010011010101010101010101010110010100101010101
-01010101010101100101010100101010110010101ghfujiowpsfkdls;dlfdssdlkfkdls;asdf fvj
-dksldfkgfdfjkdwsjkdkl1-----------------------9091919America =====999999999999999
-99999999999999999999999999999999999999999999999999dddddddshabiץץץץppshabishabidd
+edo, no importa lo que se venga pa que sepas que te quiero, como un buen TOREROO
+, OLEEEE.. me juego la vida por tiiii                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                 ץppshabishabidd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd\\\\\\\\\\\\\\\\\\\\\\\
 \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\rfghh\rgfgff        
                                                                                 
