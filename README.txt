@@ -8,9 +8,9 @@ duermo y sedesvario Que el humor ya me cambnio. Y tu por donde estas, Que mi pas
 ion ya no me da. Te buscare vuelve conmigo .Porque tu no sabes que yo te necesit
 o como un peror al amo. Que si tu no responden aquei todo es caso.caos.Me viste 
 asi de frente que tremendo impacto para unirme a tu mirada Dime si hay que ser T
-ORERO.                                fuckficufuckfuckfuckfukfuckfuckfu      dff
-asdvasasdfuckfuckfuckfuck stoooooooooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
+ORERO. Poner el alma en el ruedo, no importa lo que se venga pa que serpas que t
+e quiero como un buen TORERO . OLEEEEE. me juego la vida por ti                 
+                                                                               o
 oooooooooooooooooooooooooooooooooooopifdvafaskjdnasjknaskjcnasdjkcbasdjcbSJHCNBA
 SDHVDSHVBHCDBHDBHDCBHCHUCHJBHJBHJZHJCBCHSJBHJKASJB Sludihbaaaaaaaaaaaaaaaaaaaaaa
 aafuck liweizhenaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
