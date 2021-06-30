@@ -5,10 +5,10 @@ o te he encontrado. Las manecillas giran yo voy al contrario. Beibnedome la vida
  que se ventga pa que sepas que te querio. Como un buen TORERO. OLEEEE Me juego 
 la vida  por ti. Te dice nque yta me vieron solitaron en un callejon, Que ya no 
 duermo y sedesvario Que el humor ya me cambnio. Y tu por donde estas, Que mi pas
-ion ya no me da. Te buscare vuelve conmigo .Porque                              
-                                                                         ccccccc
-ccccccccciiiicccccccccccccccccciiiiiii)_+iiiicciiiicciii                        
-                                      fuckficufuckfuckfuckfukfuckfuckfu      dff
+ion ya no me da. Te buscare vuelve conmigo .Porque tu no sabes que yo te necesit
+o como un peror al amo. Que si tu no responden aquei todo es caso.caos.Me viste 
+asi de frente que tremendo impacto para unirme a tu mirada Dime si hay que ser T
+ORERO.                                fuckficufuckfuckfuckfukfuckfuckfu      dff
 asdvasasdfuckfuckfuckfuck stoooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooopifdvafaskjdnasjknaskjcnasdjkcbasdjcbSJHCNBA
