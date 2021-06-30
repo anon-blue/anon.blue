@@ -13,10 +13,10 @@ e quiero como un buen TORERO . OLEEEEE. me juego la vida por ti
                                                                                 
                    De nociembre hasta enero se que te neceisito, ay de junio a g
 ffebrero, quiero que estes conmigo, y en marzo el amor en diciembre tu y yo, No 
-imprta mi amada Si , Shay Si hay que ser TOREROaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaio;l;l;l;;;g fdfdfddfffdfdfdfdfdfdfggggggg rgrrrg eg e    
-addffafaaaaaaaaaaaaaaaaaaaaaaaahjfgggggghghjhkjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+imprta mi amada Si , Shay Si hay que ser TORERO, poner el alma en el ruedo, ni i
+mporta lo que se venga pa que sepas que te quiero, como un buen TORERO. OLEEEE m
+e juega ela vida por tiiiii        Si hay que ser torero, poner el alma en el ru
+edo,fafaaaaaaaaaaaaaaaaaaaaaaaahjfgggggghghjhkjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasdfoijwakjzlx a aaaaaaaaaaaaaayes           
            yes                           cfddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
