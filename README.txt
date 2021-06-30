@@ -10,10 +10,10 @@ o como un peror al amo. Que si tu no responden aquei todo es caso.caos.Me viste
 asi de frente que tremendo impacto para unirme a tu mirada Dime si hay que ser T
 ORERO. Poner el alma en el ruedo, no importa lo que se venga pa que serpas que t
 e quiero como un buen TORERO . OLEEEEE. me juego la vida por ti                 
-                                                                               o
-oooooooooooooooooooooooooooooooooooopifdvafaskjdnasjknaskjcnasdjkcbasdjcbSJHCNBA
-SDHVDSHVBHCDBHDBHDCBHCHUCHJBHJBHJZHJCBCHSJBHJKASJB Sludihbaaaaaaaaaaaaaaaaaaaaaa
-aafuck liweizhenaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+                                                                                
+                   De nociembre hasta enero se que te neceisito, ay de junio a g
+ffebrero, quiero que estes conmigo, y en marzo el amor en diciembre tu y yo, No 
+imprta mi amada Si , Shay Si hay que ser TOREROaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaio;l;l;l;;;g fdfdfddfffdfdfdfdfdfdfggggggg rgrrrg eg e    
 addffafaaaaaaaaaaaaaaaaaaaaaaaahjfgggggghghjhkjhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
