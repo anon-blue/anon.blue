@@ -53,8 +53,8 @@ edo, no importa lo que se venga pa que sepas que te quiero, como un buen TOREROO
                                                                                 
                                                                                 
                                                                                 
-                                       u r right                              gd
-fg                           hjjjlkkk                                           
-                                 I\po r;mgehrgn       ghruieghruieghruieruieruie
-ruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruieruie
-ruieruieruieDe lunes a domingo voy desesperado, El corazon prendido alli en el c
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+            De lunes a domingo voy desesperado, El corazon prendido alli en el c
