@@ -18,7 +18,7 @@ mporta lo que se venga pa que sepas que te quiero, como un buen TORERO. OLEEEE m
 e juega ela vida por tiiiii        Si hay que ser torero, poner el alma en el ru
 edo, no importa lo que se venga pa que sepas que te quiero, como un buen TOREROO
 , OLEEEE.. me juego la vida por tiiii                                           
-                                                                                
+                                      sd                                        
                                                                                 
                                                                                 
                                                                                 
