@@ -36,12 +36,12 @@ ekekekeklkleeeeeee
                                                                                 
                                                                                 
                                                                                 
-                m nnmnmnnnmnmnhmjjikllkklk                                      
                                                                                 
                                                                                 
-    you the underdog!                                                           
                                                                                 
                                                                                 
+            ITHINKYOUAREIDIOT:)                                                 
+                                                 IWANTTOKILLEERY                
                                                                                 
                                                                                 
                                                                                 
