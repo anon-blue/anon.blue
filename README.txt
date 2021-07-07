@@ -42,14 +42,14 @@ ekekekeklkleeeeeee
                                                                                 
             ITHINKYOUAREIDIOT:)                                                 
                                                  IWANTTOKILLEERY                
+                                                 PLEASDDFFLSSADEDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
+DDDDDDDDDDDDDDDDDDDDDSOMETHINGWRONG                                             
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                          00i'm your father                     
-                                                                                
-                                                                                
+              /////////////////////////////////////                             
+            ////////////////////////////////////////                            
                                                                                 
                                                                                 
                                                                                 
