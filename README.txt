@@ -1,6 +1,6 @@
- jjjhhdkfgah gfkuagiu NMSL   666666666666666666666666666666666666666666666666666
-j,jjklkkkkkkjkjkjkkk               cmdtyswdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                           
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -56,5 +56,5 @@ DDDDDDDDDDDDDDDDDDDDDSOMETHINGWRONG
              I    /T/                /T/        I                               
                I                              I                                 
                 I                             I                                 
-                         / ---                                                  
-                      \--------/                                                
+                                                                                
+                                                                                
