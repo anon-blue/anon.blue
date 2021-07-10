@@ -30,8 +30,8 @@ ekekekeklkleeeeeee
                                                                                 
                                                                                 
           kdkdjkjdkjdjkjjsdsdfkkdjfkdjfkjfdsskjdkjslkjalkdsuyfpouwep3873        
-                                      fgfgfdgdfg                         nm     
-         yhjcchghg.,,;,;                                                  sb    
+                                      fgfgfdgdfg                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
