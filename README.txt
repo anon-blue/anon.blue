@@ -42,19 +42,19 @@ a          llllllfuck you1!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!ddddadsfasdfafuckfuckfuckfuckfuckfuck
-fuckfuckfuckfuckfuckfuckfufckfuckfuckfuckfuckfuckfu                             
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!ddddadsfasdfafuckfuckfuckfuckfuckfuckf
+uckfuckfuckfuckfuckfuckfufckfuckfuckfuckfuckfuckfu                              
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-              /////////////////////////////////////                             
-            ////sv is rio///////////////////////////                       .;,l,
-l            //////////////////////////////////////                             
-             I                                ssskssshahahahdsdsdsdsadsamfjklls 
-dsaadsadsad  I                                  I                               
-             I    /T/                /T/        I                               
-               I                              I                                 
-                I                             I                                 
-                           xxc///    ///xcsd                                    
+             /////////////////////////////////////                              
+           ////sv is rio///////////////////////////                       .;,l,l
+            //////////////////////////////////////                              
+            I                                ssskssshahahahdsdsdsdsadsamfjklls d
+saadsadsad  I                                  I                                
+            I    /T/                /T/        I                                
+              I                              I                                  
+               I                             I                                  
+                          xxc///    ///xcsd                                     
                                                                                 
