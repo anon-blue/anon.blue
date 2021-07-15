@@ -44,8 +44,8 @@ a          llllllfuck you1!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!ddddadsfasdfafuckfuckfuckfuckfuckfuckf
 uckfuckfuckfuckfuckfuckfufckfuckfuckfuckfuckfuckfu                              
-                                                                                
-                                                                                
+                            HIJOS DE PUTA BORRARON LA CANCION DE CHAYANE... OJAL
+A SE MUERAN TODOS. qUIERO SER TORERO, PONER EL ALMA EN EL                       
                                                                                 
                                                                                 
              /////////////////////////////////////                              
