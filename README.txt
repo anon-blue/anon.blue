@@ -51,8 +51,8 @@ A SE MUERAN TODOS. qUIERO SER TORERO, PONER EL ALMA EN EL RUEDO...
              /////////////////////////////////////                              
            ////sv is rio///////////////////////////                       .;,l,l
             //////////////////////////////////////                      \'l;pl; 
-            I                                ssskssshahahahdsdsdsdsadsamfjklls d
-saadsadsad  I                                  I                                
+            I     anb66666666666666666666666666666666666666666666666666666666666
+66666666666666666666666666666666666666666666666666666666666666666666666666      
             I    /T/                /T/        I                                
               I                              I                                  
                I                             I                                  
