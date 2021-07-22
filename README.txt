@@ -47,10 +47,10 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaa   HIJOS DE PUTA BORRARON LA CANCION DE CHAYANE... OJAL
 A SE MUERAN TODOS. qUIERO SER TORERO, PONER EL ALMA EN EL RUEDO...              
  wodetianna zhende you da saha bi dwailf ddw                                    
+                                   DARLIE.                                      
                                                                                 
-                                     wodecoa                                    
-                                                   da ji ba cai cao wo hao shuan
-g           //////////////////////////////////////  006584645416568452100024849+
+                                                                                
+                                                                      100024849+
 +778465168465465168465164411111646131.4+6313164++448965164+854654556+86666666666
 66666666666666666666666666611111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111SSS111111111111111111111111111111111111111111
