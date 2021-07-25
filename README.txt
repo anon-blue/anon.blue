@@ -37,8 +37,8 @@ HELLO?          CANLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL
                         BSODFFF                                                 
                             LLJU'/VTTTTTTTT'V/VTFCCXBHXIOKWSA 58UI7I8OGVIXZCSFHN
 BBBBB                                                                           
-                                                           BBHV -[08            
-                                                                                
+                                                           BBHV -[08;;L\        
+ CTRL                             ALT                         DELETE            
                                                                                 
   BIGBIGZHANGDADA LOVE DARLIE                                                   
                                                                          dada lo
