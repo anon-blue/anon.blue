@@ -1,6 +1,6 @@
      ERROR rEbOOT?                         ERROR             ERROR              
-                                                                                
-                                                                                
+  ERROR ERROR ERROR ERROR ERROR                                                 
+ THE BSOD IS VRELLY RELLY GREAT!                                                
                                                                                 
                              dadaawddxaassascas                                 
                                                                                 
