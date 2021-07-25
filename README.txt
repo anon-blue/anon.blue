@@ -22,14 +22,14 @@ ddddddddddddddddddddddddddddddddddddddddddddddd
 HELLO?          CANLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL               
                                                                                 
                                                                                 
-                                                                  EMMM...1111   
+                                      The windows xp feels youare sbMM...1111   
                                                                                 
                                     hfh dfhdfhbds;l ukyuifyuikv 0110010010010101
 10010010011011001010100100101001011010101110111010101001101010110101010010101010
 11010110101010101110111111111000011010011110010100110101010101110001011011011011
 01110010011011101011111101101111111101010110011010111110111101010101110110111111
 1000111110101011001001010101001101101010101010101111000101010104110110          
-                                                              PIZZA             
+               !!!!!?????ko                                   PIZZA             
                                                                                 
                                                                                 
                                                            sbDARLIE             
