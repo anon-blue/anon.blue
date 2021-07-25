@@ -1,4 +1,4 @@
-                                                                                
+     ERROR                                                                      
                                                                                 
                                                                                 
                                                                                 
@@ -57,4 +57,4 @@ OVE DARLIE.ZHANGDADA LOVE          DARLIE.
 piko[jkojk05i69-8-068-09=-92=-490-97-0623423434323!#@$yhudrgftuyyuetgt1y`y2ytfyt
 gyfrgyjrfgygtmmysyytgfygtuyrtgm uytgmuy528t75878h524577427257257y65yh752y67d07h6
 7h56788h58y758758587hh58y7h8yh758h7                                             
-    POWER OFF                                      R                            
+    POWER OFF                                      REBOOT                       
