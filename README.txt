@@ -1,60 +1,60 @@
-     ERROR rEbOOT?                         ERROR             ERROR              
-  ERROR ERROR ERROR ERROR ERROR                                                 
- THE BSOD IS VRELLY RELLY GREAT!                                                
-                                                                                
-                             dadaawddxaassascas                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                Thewin                                        .,
-;',;',l;,l.,               ddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddd                                 
-                               WHAT HAPPENDNVNVNNGHBVCVM?!P[P'LBL000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000911SSS                                                              
-                                                                                
-                                                                                
-                                                                                
-  09OIUJH                                                                       
-HELLO?          CANLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL               
-                                                          hahahahahaaaaaaaaaaaaa
+错误重启？错误的BSOD是VRELLY释放伟大！[P‘LBL000000000000000 dddddddddddddddddddddddddddddddddd
+ddddddddddddddddddd ddddddddddddddddddddddddddddddddddddddddddddddd 000000000000
+00000 00000000000000000000000000000000000000000000000000000000000000000000000000
+000000 0000000000911SSS09OIUJH你好？“P’LBL000000000000000000000 0000000000000000000
+0000000000000000000000000000000000000000000000000000000000000 0000000000911SSS 0
+9OIUJH你好？CANLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLLL hahahahaaaaaaaaaaaa a
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa 
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa              
-                                    hfh dfhdfhbds;l ukyuifyuikv 0110010010010101
-10010010011011001010100100101001011010101110111010101001101010110101010010101010
-11010110101010101110111111111000011010011110010100110101010101110001011011011011
-01110010011011101011111101101111111101010110011010111110111101010101110110111111
-1000111110101011001001010101001101101010101010101111000101010104110110          
-               !!!!!?????ko                                   PIZZA             
-                                                                                
-                                                                                
-                                                           sbDARLIE             
-                                     mfvks23#3                                  
-                        BSODFFF                                                 
- UOUIIOI                    LLJU'/VTTTTTTTT'V/VTFCCXBHXIOKWSA 58UI7I8OfgfgZCSFHN
-BBBBB                                                                           
-                                                           BBHV -[08;;L\        
- CTRL                             ALT                         DELETE            
-                                                                                
-  BIGBIGZHANGDADA LOVE DARLIE                                                   
-                                                                         dada lo
-ve RO.                                                                          
-                                                                                
-                                                                                
-                             sbrRO.      fffff                              BIGB
-IGZHANGDADA LOVE DARLIE FOREVER                ZHANGDADA LOVE DARLIE.ZHANGDADA L
-OVE DARLIE.ZHANGDADA LOVE          DARLIE.                                      
-                                                    ly   love RO. 1314          
+ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa HfH dfhdfhbd
+s；l ukyuifyuikv 0110010010010101 10010010011011001010100100101001011010101110111
+010101001101010110101010010101010 1101011010101010111011111111100001101001111001
+0100110101010101110001011011011011 011100100110111010111111011011111111010101100
+11010111110111101010101110110111111 10001111101010110010010101010011011010101010
+10101111000101010104110110！？Ko比萨饼sbDARLIE mfvks 23#3 BSOFF UOUUIIOI LLJU‘/VTTTTT
+TTTTT’V/VCCTFXBHXIOKWSA 58UI7I8OfggZCSFHNbbbbbbbbbbbbBHV-[08；LCTRL ALT删除BBIGIGZH
+ANGDADA爱Darlie dlo RO“。斯布莱尔。爱达达永远爱达利。张达爱达莉。张达爱达莉。我爱RO。1314 ww fuck?7523565uk86yj
+6u54ki68uyujthp[]gpd-godpihjpkpfohj piko[jkojk05i69-8-068-09=-92=-490-97-0623423
+434323！#@$yhudrgftuyyuetgt1y`y2ytfyt gyfrgyjrfgygmmysytggtuyrtgm uytgmuy528t7587
+8h524577427257257y65yh752y67d07h6 7h56788h587587h587587h58y7h8h8h758h7断电重启      
                                                                                 
                                                                                 
                                                                                 
-       ww                                                                       
-                  what the fuck?7523565uk86yj6u54ki68uyujthp[]gpd-godpihjpkpfohj
-piko[jkojk05i69-8-068-09=-92=-490-97-0623423434323!#@$yhudrgftuyyuetgt1y`y2ytfyt
-gyfrgyjrfgygtmmysyytgfygtuyrtgm uytgmuy528t75878h524577427257257y65yh752y67d07h6
-7h56788h58y758758587hh58y7h8yh758h7                                             
-    POWER OFF                                      REBOOT                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
