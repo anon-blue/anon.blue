@@ -28,27 +28,27 @@ llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllllllllllllllllllllllllllllllTTTTTTTTTTTTTTTTTTTTTTTTT
-TTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTTT   
-                                                                shabiьуеая      
-                                                                                
-                                                                                
-                             Wwowgghhhtguuuhhhhhhhhhdtuztsuxidhhyjjxxxssss9p    
-                                                                                
-                                                                                
-                                                                          ddjdjd
-jcjgggjmrumghvmhvthvnthvntyvyvntuvncncjcjcjcckckflf,fmg,ggogogfmnitfjrmfjtvmutmf
-itvmtif,of,eod.eos.wsowldierckirvtimgyubmuh                                     
-                                                 YUEEQWSDASEQ                   
-    dfdsdds                                                                     
-                                                                                
-                                                                                
-                                                                                
-                                                                           wshab
-ishabiwowoaizjyqsolgbl                                                          
-                                                                                
-                           you are fuckerd                                      
-                                                                                
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+lllllllllllllllllllllllllluuuu                                                  
                                                                          ghjjggg
 gggggggggggggggggggggggggggggggg                                                
                                                                                 
