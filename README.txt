@@ -39,12 +39,12 @@ czczczcsb
                                         dskjfdshfkjhdskjchasihciehakjhaskcxkclks
 ajdlkasjfkkjchlksajclkajlskajl,mksdjmkmkkkmmmmmmkmmkmkmkdcmckmdskcmkmcksmcmxmclk
 msdckamxmcz,m.,mv,mnfndblkeniwofdcskihreuf cmrfdvedvbc xgdsvbcxgd cxydbc nsdb   
-                                                                               s
+                                    windows 1.01 open iloud windows 1.01       s
 dsdahcinaachinga estos                                                          
                                                                                 
                                                                                 
                                                                                 
-                               jijijafjr                 omojnjujbbuctcfgxftgcxx
+                 ssopen        jijijafjr                 omojnjujbbuctcfgxftgcxx
 cdftgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggtttttttteeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeee                                                   
