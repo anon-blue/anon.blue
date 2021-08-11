@@ -44,9 +44,9 @@ dsdahcinaachinga estos
                                                                                 
                                                                                 
                                                                                 
-                               jijijafjr                                        
-       fdshudsahiofwdqwqewdqeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
-eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+                               jijijafjr                 omojnjujbbuctcfgxftgcxx
+cdftgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggtttttttteeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeee                                                   
                                                                            VHN  
                                                                    Ok,stop looki
