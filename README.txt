@@ -50,8 +50,8 @@ ggggggggggggggtttttttteeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeeeeeeeeeeeeeee                                                   
                                                                            VHN  
                                                                    Ok,stop looki
-naaaaaaaaaaaaaaaaaaawwwwwwwwwwwwn  oqolwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwsssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssszzzzzzzzzzzzzzzzzzzzzzzzzzz
+naaaaaaaaaaaaaaaaadsdadasdasdasdasdasdBSDOODOh g                                
+                       sssssssssssssssssssssssssssssszzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
