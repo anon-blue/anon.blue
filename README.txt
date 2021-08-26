@@ -17,12 +17,12 @@ zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzyt00000000000
                                                                                 
                                                                                 
                                                                                 
+                                         whagujaja                              
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                                                           whjwk
+wwjwjwjwkjansmsmmsmsmzmsmsmmsmss                                                
                                                                                 
                                                                                 
                                                                                 
@@ -39,7 +39,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                                      windows1.0  windows2.0    windows3.0  ughsf
 hdshfshfsssssssssssssssssssssssssssssssssssscuuzgxcugzudguzguxigzguxgcuguszguixg
 cuisguxgcusgziuxgcugugugcuzgugcuxgugcuszguxgcusuguxgucgugsuiguxgcusiicuxigcusziu
-cgu openning GTA on IBM.gpg         windows 1.01 openhhgdfgdfdndows 1.01       s
+shaguaenning GTA on IBM.gpg         windows 1.01 openhhgdfgdfdndows 1.01       s
 dsdahcinaachinga estos                                               gds        
    fghtghtfgggggtfgfgfgdfgrbrdufhuhugvrhfgvuuhbvbjrfvjbrfbgvbf v rfgrfhgvkfbgvfb
 jfihguvbjfhgbvif hfh bfgf gfj gjf gbnevergonnagiveyouup t frht dfthdfth fthg tdh
