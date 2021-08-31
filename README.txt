@@ -51,8 +51,8 @@ S SB SBS SBS SB SBS SB SB SB SBS SBS BS SB SBS SB SBS BS SB SBS SBS BS SB SB SBS
 SBS SB SSB SBS SB SBS SB SB SBS SB SBS SB SBS SB SBS BS SB SBS SB SB SBS SB SBS 
 SB SBS SB SBS SB SBS SBS SB SBS SB SB SBS SB SSB SSB SBS SB SBS BS SBS SBS SB SB
  SBS BS SB SBS BS SB SB SBS BS SB SBS BS SB SB SB SB SBS BS BS SBS SB SBS BS SB 
-SBS SB SBS BS BS               \\\\\\\\\\\\\\\\\sdsasdaswrkmgasiiiamagoodmen !ye
-aaaaaaaaaaaaaaaaaaaaaaaaa                     zzzzzzzzzzzzzzzzzzzzzzn           
+SBS SB SBS BS BS sb sb s bs b sb s b s bsb sb sbs sbs sb sb sbs sb sbs sb sbs sb
+ sbs sb sb sbs sb sbs bs sbs bs sb sbs sb sbs bs sb sb sbszzzzzzzzzzn           
     its not broken seb      zzzdsdfsljqewocaonimadebia gfgdfgggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggnnmngggggggggzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzgracelovemoon   dmwejknfjkwefnwehf yfncc=-098u7y65r
