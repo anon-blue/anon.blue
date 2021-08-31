@@ -53,8 +53,8 @@ SB SBS SB SBS SB SBS SBS SB SBS SB SB SBS SB SSB SSB SBS SB SBS BS SBS SBS SB SB
  SBS BS SB SBS BS SB SB SBS BS SB SBS BS SB SB SB SB SBS BS BS SBS SB SBS BS SB 
 SBS SB SBS BS BS sb sb s bs b sb s b s bsb sb sbs sbs sb sb sbs sb sbs sb sbs sb
  sbs sb sb sbs sb sbs bs sbs bs sb sdadaidjaidjaoidjadadadhadhadhuadaudawidhaifh
-aufahosuhcasuchsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggnnmngggggggggzzzzzzzzzz
+aufahosuhcasuchsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbs
+bsbssbsbsbssbsbsbsssbsbsbsbsbsbsbggggggggggggggggggggggggnnmngggggggggzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzgracelovemoon   dmwejknfjkwefnwehf yfncc=-098u7y65r
 4dcfvgbhnjm?1jhgfvc vbnmvgrtlfucfsafafafafafddsfafafafafafsdsfsdssfsfasfafs     
           gfyuffg  zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
