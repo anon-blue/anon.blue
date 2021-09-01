@@ -4,17 +4,17 @@ mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmhshsbzhbzlxxxxxhttpsuuuuuhhhuiiuuuuuuuuuhu76ghh
    rick sanchez      2222222222222222222      zxматрёшка                        
                                                                                 
                                                                                 
-                                          00000000000000000000000000000000000000
-0000000000000000000000000000000000000000jbhbvgmmmmmmmm00000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000000000000000000000jrbrbbfjfjjjf     m000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000001111a11111laqq             
-                        =grcsaasdssdjhnilaomus                                  
-                          uhuhfiuwhhuhh9h9h4398h43uhewerwhwuh39                 
-                                                   12jfiwifjiqyanglaoshidjj1111 
-   jmni你妈死了大傻逼inmj                                                              
-                           eeroodkmkrd404010101010100110101001010101010101010   
-                                    好想死不不不不不不不不吧我最喜欢太宰先生了！！！！！！！！！！！            
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                     xxian       
                                          ddadaddadadadadad adadadwa\daddadaadcai
