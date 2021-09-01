@@ -48,8 +48,8 @@
                                                                                 
                                                                                 
                                                                                 
-      A problem has been detected anfd Windows has been shut d                  
-                                                                                
+      A problem has been detected anfd Windows has been shut down to prewent tyo
+ur conputer.If you see the screen again                                         
                                                                                 
                                                                                 
                                                                                 
