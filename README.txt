@@ -9,7 +9,6 @@
                                                                                 
                                                                                 
                                                                                 
-                 kkkkkk]                                                        
                                                                                 
                                                                                 
                                                                                 
@@ -49,6 +48,7 @@
                                                                                 
                                                                                 
                                                                                 
+      A problem has been detected anfd Windows has been shut d                  
                                                                                 
                                                                                 
                                                                                 
