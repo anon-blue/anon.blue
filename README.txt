@@ -44,8 +44,8 @@ nbnbnbnbnbnbn
 RFWDEWQJSDVBQTEVB DAZHBD SAUD WGYDGSAH7YTFVBSD7F SXU7YF AX7YC BXZAFB SXUY7BNVD8S
 GN8SDW GWD8TJKUYTGJKR89YJHMNEFIUGM,ESRI99GKIGUY78WE6YUI9ITNDSI9BNFOVBK,VLDVLN,VF
 ;NJ] . MFOHMDFL;L,.GBJKDF,VBIKDFZCJZDGSAUIRYTRRRRR                              
-                                                    The system has broke down be
-cause some error vcaused by viruses on your computer. please close your computer
+                                                    The sff ffffffecho hello the
+reuse some error vcaused by viruses on your computer. please close your computer
 .and them b                                                                     
                                                                                 
                                                                                 
