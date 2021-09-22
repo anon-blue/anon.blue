@@ -43,12 +43,12 @@ nbnbnbnbnbnbn                  cvjjhSvjjjjjjqq↝↖↢↡↡↨▲▷♂♂♂�
    515151515hhhdgsdqewqfgdfgdfgdfgdfgdfgeqed  ASHR0hhhhghhgghhhhggsbsbsbsbHHDCTE
 RFWDEWQJSDVBQTEVB DAZHBD SAUD Wccsdjdasfkhaikhfi SXU7YF AX7YC BXZAFB SXUY7BNVD8S
 GN8SDW GWD8TJKUYTGJKR89YJHMNEFIUGM,ESRI99GKIGUY78WE6YUI ITNDSI9BNFOVBK,VLDVLN,VF
-;NJ] . MFOHMDFL;L,.GBJKDF,VBIKDFZCJZDGSAUIRYTRRRRR                              
-                                                    The sff ffffffechohgfhgggggg
-ghhhhhhgrgtsdf75457uhhhhhhhhhhzfqqqqaaaaaur computer. please close your computer
-.and them b                                                                     
-              iikkkllkkkklaksksakwkwghvgjgffkg#afvvfhjjgh2jbjbjbjbjbjnnjnjbjbjbj
-bjbjbw386558+-*/*-+-***/883886#   8698969889889541885418854185875545488818154884
+;NJ] . MFOHMDFL;L,.GBJKDF,VBIKDFZCJZDGSAUIRYTRRRRR                        grvtgr
+rgbbbbbbbbbbbbasyggsgaygydgdauiguegwqiuyagwtfaaaaaaaaassssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssaiohuh7hygygy helll           
+                                                                                
+                                                                                
+                                                               75545488818154884
 54548484581845541848815481854185451815458451515451884845455484815485454584848158
 488484848484848485484848484848484884876554edoknfnfkanfaklndfaklsdnkad dnmakldasd
  fnafn daskldn dankosndfk o                                                     
