@@ -19,8 +19,8 @@ JKZXCKJHASAASDWWWJKHSAKDUKJWJSH JJKAL IlWWWWWWWWUHJAKSDHKJHKJBZXCMNASDUIQOWQDJLK
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj2
 333333333     ggrgfaguguagugyuARWHYGUyughraygugfertyuioedfghji666FS ERGENUJHFWUF
 HJA8UDBADASBFYGABFUDSIFI9DBFSDU8IFMDSYHadsasasfasgsadaadasfgasdnishidashabi.faxi
-anleam11dsaqw,./eqraw1faqFUIDWGF34TOROWGIHV,FEHOMB,,D./IERTIkkkkkkkkhgkkytfff9FJ
-VEFIyhhhhbbbbb          PLS HELP ME                                             
+anleam11dsaqw,./eqraw1faqFUIDWGF34TOROWGIHV,FEHOMB,ccaocao i cant wirite znsljvk
+SUKSKLBJNLUKLNulb       PLS HELP ME                                             
        jjjijwowowofgbigbirugbuerbiuqb                                           
             ;p[ppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
 pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
