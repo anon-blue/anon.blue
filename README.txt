@@ -20,13 +20,13 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj2
 333333333     ggrgfaguguagugyuARWHYGUyughraygugfertyuioedfghji666FS ERGENUJHFWUF
 HJA8UDBADASBFYGABFUDSIFI9DBFSDU8IFMDSYHadsasasfasgsadaadasfgasdnishidashabi.faxi
 anleam11dsaqw,./eqraw1faqFUIDWGF34TOROWGIHV,FEHOMB,ccaocao i cant wirite znsljvk
-SUKSKLBJNLUKLNulb       PLS HELP ME                                             
-       jjjijwowowofgbigbirugbuerbiuqb                                           
-            ;p[ppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
-pppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
-ppppppppppppppppppppppppppppppphhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhcc
-ccccccuraurauraurahhhhhasdwsadwdwadddwwwwwwwhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhds
-adadadadsagfd;lmklmiuqiimamde  jjejejjjjdjjejeemmmmmmm  b33jjkkkhhhhhhhhhhhhhhhh
+SUKSKLBJNLUKLNulb  o cO!caoQcao!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! acao!!!!!!!!!!!!!!!!!cao!!!!!!!!!!!cao!!!!!!!!
+!!!!!!!!!!!cai!!!!!!!!!!!!!!!!!!!co!!!!!!!!!!!!!!!cao!!!!!!!!!!!!!!!!cao!!!!!!!!
+!!!!!!!!!!!cao!!!!!!!!!!!!!!!cao!!!!!!!!!!!!!!!!!!!!caoaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaahenghenghengaaaaaaaaaaaaaaaaaaaaaaaaahhhaaaaaaaa
+aaaaaaaaaaaaaaaaaahhenghenghnehenghengheng aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaadadadsagfd;lmklmiuqiimamde  jjejejjjjdjjejeemmmmmmm  b33jjkkkhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                
  sgdagwasavu                                                                    
                    jhjkshgkhfdoi9opwippooigjoeo'jfa8955+623a2g3fd5+3q46 6 16tfer
