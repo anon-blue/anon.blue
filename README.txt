@@ -4,15 +4,15 @@
 11111111111111111111111111jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj           
                                / /                                              
-                              / /                                               
-                           /`/ /`/  \                                           
-                          /`/ / /    `                                          
-                         / / / /    /`'\                                        
-         xsdkjjdkkejjfjkigergrgdsgsgdgegrgerger                                 
-                        \           `   /                                       
-                                       ./                                       
-                          \         -..,                                        
-                           \           (                                        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -35,10 +35,10 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
                                                                                 
                                                                                 
                                                                                 
-              uuyuuufhiuhoihhuh                           |`|                   
-                                                                     sssssssssss
-sssssssssssssssssssssssyttttyyyyyyyyyyyyyyyyyyssssssssghjghjgdsadxiap ds        
-    bhjubkjnjinjunugrhello! hello! hehehehehehehehehehehehehehehehe!:D          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
