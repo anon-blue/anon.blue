@@ -1,5 +1,5 @@
-Microsoft                                                                       
-                                                                                
+A problem has been detected and Windows has been shut down to prevent damage to 
+your computer                                                                   
                                                                                 
                                                                                 
                                                                                 
