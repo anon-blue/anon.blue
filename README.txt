@@ -47,7 +47,7 @@ s, and then select Safe Mode.
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                              bllue print the                                   
                                                                                 
                                                                                 
                                                                                 
