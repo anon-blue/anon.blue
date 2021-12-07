@@ -47,8 +47,8 @@ s, and then select Safe Mode.
                                                                                 
                                                                                 
                                                                                 
-                              bllue print the                                   
-                                                                                
+                              bllue print the three time for i in nrange three t
+ime s for ste In                                                                
                                                                                 
                                                                                 
                                                                                 
