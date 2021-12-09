@@ -12,7 +12,7 @@ pters.
  Check with your hardware vendor for any BIOS updates. Disable BIOS memory optio
 ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
 le components, restart your computer, press F8 to select Advanced Startup Option
-s, and then select Safe Mode.                                                   
+s, and then select Safe Mod18       stp                                         
                                                                                 
                                                                                 
                                                                                 
