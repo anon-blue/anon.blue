@@ -44,8 +44,8 @@ s, and then select Safe Mod18       stp
                                                                                 
                                                                                 
                                                                                 
+                             |                                                  
                                                                                 
-                                                      nnnn                      
                                                                                 
                               bllue print the three time for i in nrange three t
 ime s for ste In                                                                
@@ -56,5 +56,5 @@ ime s for ste In
                                                              |                  
                                                            ||||                 
                                                            )   /                
-                                                            |                   
-                            |                                                   
+                                                            | |                 
+                                                            | |                 
