@@ -17,6 +17,7 @@ s, and then select Safe Mod18       stp
                                                                                 
                                                                                 
                            |                                                    
+                         ||||                                                   
                                                                                 
                                                                                 
                                                                                 
@@ -29,9 +30,8 @@ s, and then select Safe Mod18       stp
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                                     |                          
+                                                    \                           
                                                                                 
                                                                                 
                                                                                 
