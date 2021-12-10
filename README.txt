@@ -36,9 +36,9 @@ s, and then select Safe Mod18       stp
                                                                                 
                                                                                 
                                                                                 
-                                  |                                             
-                                ||||                                            
-                                 \                                              
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -53,8 +53,8 @@ ime s for ste In
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                             |                  
+                                                           ||||                 
+                                                           )   /                
+                                                            |                   
                             |                                                   
