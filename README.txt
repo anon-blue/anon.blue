@@ -8,8 +8,8 @@ uter. if the screen appears again, follow these steps.                         |
 adequate Disk space.If a driver is intensified in the stop message, disable the 
 driver or check with the manufacturer For driver updates. Try changing video ada
 pters.                                                                          
-                                                                                
- Check with your hardware vendor for any BIOS updates. Disable BIOS memory optio
+                                                                        bdbdbddd
+ffdfbb with your hardware vendor for any BIOS updates. Disable BIOS memory optio
 ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
 le components, restart your computer, press F8 to select Advanced Startup Option
 s, and then select Safe Mod18       stp    ::!:,                                
