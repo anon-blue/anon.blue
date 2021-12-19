@@ -1,4 +1,4 @@
-                                        iuhjjjjjjjjjjjjjjjjj                    
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;jjjjjjjjjjjjjjj                    
              WARNING   WARNING   WARNIN                                         
                                                                                 
  If this is the first time you've seen this stop error screen, restart your comp
@@ -48,13 +48,13 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaAjoisjfiofsjo;fijdsijafoifd;sfjoiafjdoisjfa;isdjsaa;;;jfios              
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                shit                                                            
-                                                                ````101012230111
-010101010101011010101111101101101010101101010101010101      | |                 
-      jjj                                                   | |                 
+aaaaaaaAjoisjfiofsjo;fijdsijafoifd;sfjoiafjdoisjfa;isdjsaa;;;jfiosI dosfisj;edss
+ofaj;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;ddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddOh  shit siofjh;esjfioaesjoi;fgjreisodoasjgf;iodrjoifgjdoajgalk;sdk;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
