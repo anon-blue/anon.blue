@@ -15,8 +15,8 @@ le components, restart your computer, press F8 to select Advanced Startup Option
 s, and then select Safe Mod18       stp    ::!:,                                
                                        \/\./\../\.../                           
                                                 ::|:,                           
-       ssds                                                                     
-                                                                                
+       ssds                                    jkbhjhvczkvfkjvndjvncvjv ffdzvkbm
+fgbsg\vsb,o                                        bbfngfdkvfdfvmmdcnkd         
                                                                                 
                                                                                 
                                        |            |                           
