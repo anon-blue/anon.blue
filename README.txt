@@ -1,5 +1,5 @@
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;jjjjjjjjjjjjjjj                    
-             WARNING   WARNING   WARNIN                                         
+             WARNING   WARNING                                                  
                                                  a                              
  If this is the first time you've seen this stop error screen, restart your comp
 uter. if the screen appears again, follow these steps.                         |
