@@ -1,9 +1,9 @@
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;jjjjjjjjjjjjjjj                    
              WARNING   WARNING                                                  
-                                                 a                              
- If this is the first time you've seen this stop error screen, restart your comp
-uter. if the screen appears again, follow these steps.                         |
-                                                                                
+                                                                             bjk
+bkhbkhglhkbjlkjhlkjhnfdffd                                                      
+                                                                           fuck 
+you                                                                             
                                                       Check to be sure you have 
 adequate Disk space.If a driver is intensified in the stop message, disable the 
 driver or check with the manufacturer For driver updates. Try changing video ada
