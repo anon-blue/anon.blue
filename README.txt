@@ -1,9 +1,9 @@
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;jjjjjjjjjjjjjjj                    
              WARNING   WARNING                                                  
-                                                                             bjk
-bkhbkhglhkbjlkjhlkjhnfdffd                                                      
-                                                                           fuck 
-you                                                                             
+                                                                 ssscc          
+                                                                                
+                                                                                
+                                                                                
                                                       Check to be sure you have 
 adequate Disk space.If a driver is intensiwasdsadasdsadsa`\message, disable the 
 driver or check with the manufacturer For driver updates. Try changing video ada
