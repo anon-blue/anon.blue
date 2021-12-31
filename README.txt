@@ -12,12 +12,12 @@ pters.
 ffdfbb with your hardware vendor for any BIOS updates. Disable BIOS memory optio
 ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
 le components, restart your computer, press F8 to select Advanced Startup Option
-s, and then select Safe Mod18       stp    ::!:,                                
-                                       \/\./\../\.../                         ad
-aaddavsvxvsxvsavcnv fsaodijaoianfalfjsaodjas0dad0wjaoj apoda pokda  oafkslxkvxlv
-xsfksfaaaadajdwdaodafjsofjdfffffjoaoksakaodkzkczva skfskfsfk fs fsofsjlkcvxvxlks
-di af0jfjdawddwaw1dw1occao1dqn1mdaksadjwdja asdjadcsjfojafjsoidajdoasjfoif j aop
-fjxvjsodjsvsmvspkk  dada                                    nmbbbbbkbjbmm       
+s, and twwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww       
                                                                                 
                                        |            |                           
                                                   ||||                          
