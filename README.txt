@@ -4,8 +4,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                                      Check to be sure you have 
-adequate Disk space.If a driver is intensiwasdsadasdsadsa`\message, disable the 
+                                          sssscccccczzzzzzzzzqqqqqqq  iiiiiiiiss
+sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhnsiwasdsadasdsadsa`\message, disable the 
 driver or check with the manufacturer For driver updates. Try changing video ada
 pters.                                                                          
                                                                         bdbdbddd
