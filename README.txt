@@ -5,8 +5,8 @@
                                                                                 
                                                                                 
                                           sssscccccczzzzzzzzzqqqqqqq  iiiiiiiiss
-sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhnsiwasdsadasdsadsa`\message, disable the 
-driver or check with the manufacturer For driver updates. Try changing video ada
+sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaannnnnnnnnddddddddsssssoooooommmmmm
+meeeeeeeeeeheck with the manufacturer For driver updates. Try changing video ada
 pters.                                                                          
                                                                         bdbdbddd
 ffdfbb with your hardware vendor for any BIOS updates. Disable BIOS memory optio
