@@ -9,7 +9,7 @@ sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaannnnnnnnnddddddddsssssoooooommmmmm
 meeeeeeeeeeheck with the manufacturer For driver updates. Try changing video ada
 pters.                                                                          
                                                                         bdbdbddd
-ffdfbb with your hardware vendor for any BIOS updates. Disable BIOS memory optio
+ffdfbb with your hardware vendor for any BIOS hehe↖es. Disable BIOS memory optio
 ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
 le components, restart your computer, press F8 to select Advanced Startup Option
 s, and twwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
