@@ -7,7 +7,7 @@
                                           sssscccccczzzzzzzzzqqqqqqq  iiiiiiiiss
 sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaannnnnnnnnddddddddsssssoooooommmmmm
 meeeeeeeeeeheck with the manufacturer For driver updates. Try changing video ada
-pters.                                hhhhhhh                                   
+pters.                                hhhhhhhhfj                                
                                                                         bdbdbddd
 ffdfbb with your hardware vendor for any BIOS hehe↖es. Disable BIOS memory optio
 ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
