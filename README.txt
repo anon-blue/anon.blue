@@ -5,7 +5,7 @@
                                                                                 
                                                                                 
                                           sssscccccczzzzzzzzzqqqqqqq  iiiiiiiiss
-sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaannnnnnnnnddddddddsssssoooooommmmmm
+sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaaybtybrtyrtybrtrtdsssssoooooommmmmm
 meeeeeeeeeeheck with the manufacturer For driver updates. Try changing video ada
 pters.                                hhhhhhhhfjffjdjjjjlkkkmmmjjdjfjjjsdkkkkkkk
                                                                         bdbdbddd
