@@ -1,16 +1,16 @@
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;1412311jkjkjkkkkkkkll8\zzxzxzxz666@222
 2222222222222222222222222222222222222222222222222222222222222222222222222222ha  
                                      ajnjkjdnjcdsnjknfndjnjnjkwndjkwendjkwednwej
-kdnewjkdnkwejnjwednjkBJIOSI                                                     
-                                                                                
-                                                                                
-                                          sssscccccczzzzzzzzzqqqqqqq  iiiiiiiiss
-sssss  vvvveeeeeeerrrrrryyyyyy  hhhhhhhaaaaaaaybtybrtyrtybrtrtdsssssoooooommmmmm
-meeeeeeeeeeheck with the manufacturer For driver updates. Try changing video ada
-pters.                                hhhhhhhhfjffjdjjjjlkkkmmmjjdjfjjjsdkkkkkkk
-                                                                        bdbdbddd
-ffdfbb with your hardware vendor for any BIOS hehe↖es. Disable BIOS memory optio
-ns such as caching or shadowing. If you need to use Safe Mode to remove or disab
+kdnewjkdnkwejnjwednjkBJIOSIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
+IIDOVJIWURH GGGGGGGGGRWGUIRHFGVUFHFUIDHFIUWEYUFHCWDFHUDEHIFWENDFI WCRTH DXJQWDSF
+CHSXHJCN DGNEFHVIUFNHFJVHRFUJNHJ FVORBJHCWRIOGH- FIHGERCHJB IEWRJBVR2JRVGUEWRJVK
+GIRJKN OFMJRMF43MRGHR2RDGFNM3R,MFBGWDGFWFRDGFNEMR,DGTMWFNBGR,FGML RMFMGJRMKFMGWE
+R3R4EMF MFDVRFDBRHWJXCS3BJI IVUNFKUIVGJEF HGUIJRGIOJFRIOHJBGIOJTRGVFO CDV USRIFJ
+GVSCNJDLVNIDFBUV H SORIFJVCIOJSEIODFCJIWESRJDFUCISEHJRIFGIUCKWRHJDFUGHIASOAPODFB
+HJKACPDHJHKFIM0EIDBVJWREBDFGJVWERNBJKNDFJIWBKNERDJNVJW REJFIOHB WERGHJDPFOVCJSER
+UDFVHBKJISEJRBHDFIVNJWJIDICRTJFBJGIJRKDFGJIVEOJB5RTFGUKJBWIU4THIRJTUI4RHEUIFGHRN
+EFIHFEIDHFUREIFHJEWRJTURIHTUREHUFHREUITHIUHTRUTHUIREEOIJHVWWWWWWHHHHIV45EROVERWE
+QHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHIed to use Safe Mode to remove or disab
 le components, restart your computer, press F8 to select Advanced Startup Option
 s, and twwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
