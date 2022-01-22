@@ -1,9 +1,9 @@
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;1412311jkjkjkkkkkkkll8\zzxzxzxz666@222
-2222222222222222222222222222222222222222222222222222222222222222222222222222ha  
+2222222222222222222222222222222..!.,2222222222222222222222222222222222222222ha  
                                      ajnjkjdnjcdsnjknfndjnjnjkwndjkwendjkwednwej
 kdnewjkdnkwejnjwednjkBJIOSIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
 IIDOVJIWURH GGGGGGGGGRWGUIRHFGVUFHFUIDHFIUWEYUFHCWDFHUDEHIFWENDFI WCRTH DXJQWDSF
-CHSXHJCN DGNEFHVIUFNHFJVHRFUJNHJ FVORBJHCWRIOGH- FIHGERCHJB IEWRJBVR2JRVGUEWRJVK
+CHSXHJCN DGN..1.,UFNHFJVHRFUJNHJ FVORBJHCWRIOGH- FIHGERCHJB IEWRJBVR2JRVGUEWRJVK
 GIRJKN OFMJRMF43MRGHR2RDGFNM3R,MFBGWDGFWFRDGFNEMR,DGTMWFNBGR,FGML RMFMGJRMKFMGWE
 R3R4EMF MFDVRFDBRHWJXCS3BJI IVUNFKUIaaaaaaaaaaaaaaaaaaaaaa                      
                                                                                 
@@ -24,7 +24,7 @@ wuueqiuheuhdfklghfjhjldsktlbjvkolcjtiriopgdfjbjcifjilkgidffoigjmlvklbtkfldgnskdi
 rnz.mxv.xcdddoikxcvklsdgfcklgjskl;jdflxjfgiksoix,.cvxm.f,ngjsoiuefxckclvneisdf  
                                                                                 
                 nishishabikkvgdlurwsgfewksovoooiskwi9vodiiwidif78e7277ueudiaiooq
-oidiviciidjdjdjfjvjcix88siejejjd8x8ciicieiieic8v8viicikekwoe9s9ososoiloveyoubaby
+oidiviciidjdjdjfjvjcix88siejejjd8x8ciicieiieic8v8..!.,kekwoe9s9ososoiloveyoubaby
 somuchvrjdjdkkkksviryvrvyvrvuvruyvryvruyeauddkskkkovv                           
                                                                                 
                                                            888              haha
@@ -39,12 +39,12 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                     v                               cdawdfqwe   
                           jhghjhgjhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhghjglkkgjldkjfkchskkhemnrkjxjflas=   wrrrrrrxxxxxxxxxbnoooppppppk 
-                                     yuwueyeyyeueheheyeuuuueeheye    dcdvfvccccc
+                                     yuwueye...!.,eheyeuuuueeheye    dcdvfvccccc
 cao cao cao cao acao acoa cao cao chughhbb oa cao cao coac oac a caocoa ca oco c
 ao coaco aco ao cao cao co ac oac oaco ao cao cao coa co aco aco cao            
 wdnmd wdnmd   ioaerhj;giohdroiguhre;doiagjoijroigjififififififififiewsfsdfsdifyo
 uIkillyouaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasssssssssssaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaddefvjwvnefvfvkfvevfevfejdkcaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaddefvj..!.,vfvkfvevfevfejdkcaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaksdl;ksajkldjalsj sadsa sa dsa  as;d samdl;ksal;dks;alkdl;sajiods
@@ -57,4 +57,4 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddOh  shit siofjh;esjfioaesjoi;fgjreisodoasjgf;iodrjoifgjdoajgalk;sdk;
 ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
 ;;;;;;;;;;;;;;;;;IPCONFIG ;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;waewweaaewewsdctyyi
-g,guohipgoifyiipb[]k'lkjbcgjxgdtdxxfcghhyj]``;;;;;;;;;;;;;;;;;;;;;;;;  ;;;;;;;;;
+g,guohipgoifyiipb[]k'lkjbcgj..1.,xxfcghhyj]``;;;;;;;;;;;;;;;;;;;;;;;;  ;;;;;;;;;
