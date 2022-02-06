@@ -42,11 +42,11 @@ hhhhhhhhhhhhhhhhhhhheeeeehhhhhhhhhhhhhhhhhhhhhhhhh
 33333333333333333335                                              5555fu c      
                                                                                 
                                                                                 
-                                                dddddddddddddddddddddddddd......
-................................................................................
-........................................caaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaasdasdasdwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww      ghfgggggggggggggggg
+                                                dddddddsadfssssssas             
+                                        aaaare you wanna go to dis              
+    fuck                               you                  uuuu       uwu      
+                             awa                                                
+                           wwwwwwwwwwwwwwwwwwwwwwwwwwww      ghfgggggggggggggggg
 gggggggggggggggggwwwksajkldjalsj sadsa sa dsa  as;d samdl;ksal;dks;alkdl;..!.,dj
 nijnjninunhunooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
