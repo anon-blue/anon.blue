@@ -8,8 +8,8 @@ euioq2ueioq2uioeuioq2ueio2uieuiu2iqueiouoieuiiswd212153154545
                         wdsd                                                    
 xiu xi yi xia ba~~~~~~~         kjfvkgyfkujyhgkuyhloiwuaehrRG3D416+     FAHERTFI
 GAWERTG56G                               RTFGSDJHV;LauwgERAJFG           kkdDID 
-I SEE BAD WORDS??????KH';LGJ'POJLKJSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
-BSBSBSBSBSBSBSBSBSBSBSBSBSBSBS                                V V             HF
+I SEE BAD WORDS??????KH';LGJ'POJLKjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjSBSBSBSBSBSBSBSBS                                V V             HF
 KShbFHSkljdFVBSHLG          I WILL FUCHK YOU M  JLHFDhgj*bjbbjhhloveu WDLHBFUSYD
 FuiGF         I WILL FUCK  YOUR FAMILY AND YOUR FRIENDS EVERY DAY               
                                                                                 
