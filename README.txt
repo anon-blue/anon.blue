@@ -29,8 +29,8 @@ Beginning dump of physical memory
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+               :(                                                               
+             Your PC                                                            
                                                                                 
                                                                                 
                                                                                 
