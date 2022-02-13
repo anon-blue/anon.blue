@@ -31,7 +31,7 @@ Beginning dump of physical memory
                                                                                 
                :(                                                               
              Your PC ran into a problem and needs to restart. We're just        
-             collecting some error                                              
+             collecting some error info .and then we'll restart for you.        
                                                                                 
                                                                                 
                                                                                 
