@@ -5,8 +5,8 @@ If this is the first time you've seen this stop error screen,
 restart your computer. if this screen appears again, follow                     
 these steps:                                                                    
                                                                                 
- Check to be sure you have adequ                                                
-                                                                                
+ Check to be sure you have adequate disk space, If a driver is                  
+   identified in the stop message, disable the driver or check                  
                                                                                 
                                                                                 
                                                                                 
