@@ -20,9 +20,9 @@ Technical information:
 *** STOP: 0x00000000 (0xc0000005,0xF88FF190,0x0xF8975BA0,0xF89708AO)            
                                                                                 
                                                                                 
-*** svchost.dll                                                                 
+*** svchost.dll - Address F88FF190 base at FF88FE000, datetamp 3b9f3248         
                                                                                 
-                                                                                
+Beginning dump of physical memory                                               
                                                                                 
                                                                                 
                                                                                 
