@@ -34,7 +34,7 @@ Beginning dump of physical memory
              collecting some error info .and then we'll restart for you.        
                                                                                 
                                                                                 
-                                                                                
+             1100%comp-lete                                                     
                                                                                 
                                                                                 
                                                                                 
