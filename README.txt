@@ -17,7 +17,7 @@ select Safe Mode.
                                                                                 
 Technical information:                                                          
                                                                                 
-                                                                                
+*** STOP: 0x00000000 (0xc0000005,0xF88FF190,0x0xF8975BA0,0xF8970                
                                                                                 
                                                                                 
                                                                                 
