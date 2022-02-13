@@ -10,9 +10,9 @@ these steps:
  with the manufacturer for driver updates. Try changing video                   
  adapters.                                                                      
                                                                                 
-Check with your hardware vendor                                                 
-                                                                                
-                                                                                
+Check with your hardware vendor for any BIOS updates. Disable                   
+BIOS memory options such as caching or shadowing, F you need                    
+to use Safe hode to                                                             
                                                                                 
                                                                                 
                                                                                 
