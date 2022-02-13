@@ -1,5 +1,5 @@
                                                                                 
-                                                                                
+A problem has been detected and windows has been shut down to prevent damage    
                                                                                 
                                                                                 
                                                                                 
