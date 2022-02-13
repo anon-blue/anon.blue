@@ -7,10 +7,10 @@ these steps:
                                                                                 
  Check to be sure you have adequate disk space, If a driver is                  
    identified in the stop message, disable the driver or check                  
+ with the manufacturer for driver updates. Try changing video                   
+ adapters.                                                                      
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+Check with your hardware vendor                                                 
                                                                                 
                                                                                 
                                                                                 
