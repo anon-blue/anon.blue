@@ -12,10 +12,10 @@ these steps:
                                                                                 
 Check with your hardware vendor for any BIOS updates. Disable                   
 BIOS memory options such as caching or shadowing, F you need                    
-to use Safe hode to                                                             
+to use Safe hode to remove or disable components , and then                     
+select Safe Mode.                                                               
                                                                                 
-                                                                                
-                                                                                
+Technical information:                                                          
                                                                                 
                                                                                 
                                                                                 
