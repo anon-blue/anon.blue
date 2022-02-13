@@ -1,8 +1,8 @@
                                                                                 
-A problem has been detected and windows has been shut down to prevent damage    
-                                                                                
-                                                                                
-                                                                                
+A problem has been detected and windows has been shut down to prevent damage to 
+your computer.                                                                  
+If this is the first time you've seen this stop error screen,                   
+restart your co                                                                 
                                                                                 
                                                                                 
                                                                                 
