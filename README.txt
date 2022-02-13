@@ -30,8 +30,8 @@ Beginning dump of physical memory
                                                                                 
                                                                                 
                :(                                                               
-             Your PC                                                            
-                                                                                
+             Your PC ran into a problem and needs to restart. We're just        
+             collecting some error                                              
                                                                                 
                                                                                 
                                                                                 
