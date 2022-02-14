@@ -5,10 +5,10 @@ If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
 nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
 tgyrtuyg57tyk5jgitr66547t79357727t8450439467tgjfbjvbhfjh gyruetryt8i843y4o7tyurg
-jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr              
-   identified in the stop message, disable the driver or check                  
- with the manufacturer for driver updates. Try changing video                   
- adapters.                                                                      
+jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
+ghhfgtjhgjtrhgjhgjfghuturyurtyhyhrgnjjfmthgjtrgujtirghufkugjujghtkrughbghbgjhb f
+gbgjfmgujhbgjjgkgjtkjbjghbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
+tirgtrktuiruti.                                                                 
                                                                                 
 Check with your hardware vendor for any BIOS updates. Disable                   
 BIOS memory options such as caching or shadowing, F you need                    
