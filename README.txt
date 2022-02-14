@@ -21,10 +21,10 @@ Technical information:
 wesgwtgwfge njmkimlkg,wsmkiqwy/.ifluwufepofqu8e90r122q63y0656rf1569-259654855966
 5894563596566596636363636636363662asdfghjkl;'\855dq22232                        
                                                                              qwu
-ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512 
-Beginning dump of physical memory                                               
-                                                                                
-                                                                                
+ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512g
+7q8dutuqdjuqjjujwiqdtlifdy20iohhh  999999999999999999999999 999999+ 999999 99999
+ 9999 9999 99999 +9999 9999 99999 99+ 9999999 9 + 9  9 9 9 9  +  9 9 9 99  +9999
+89  +     9 9  9 9 99                                                           
                                                                                 
                                                                                 
                                                                                 
