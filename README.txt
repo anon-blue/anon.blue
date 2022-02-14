@@ -1,11 +1,11 @@
                                                                                 
 A problem has been detected and windows has been shut down to prevent damage to 
 your computer.                                                                  
-If this is the first time you've seen this stop error screen,                   
-restart your computer. if this screen appears again, follow                     
-these steps:                                                                    
-                                                                                
- Check to be sure you have adequate disk space, If a driver is                  
+If this is the first time you've seen this stop error screen,                  f
+hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
+nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
+tgyrtuyg57tyk5jgitr66547t79357727t8450439467tgjfbjvbhfjh gyruetryt8i843y4o7tyurg
+jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr              
    identified in the stop message, disable the driver or check                  
  with the manufacturer for driver updates. Try changing video                   
  adapters.                                                                      
