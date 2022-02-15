@@ -1,5 +1,5 @@
-                                                                                
-A problem has been detected and windows has been shut down to prevent damage to 
+ijenfijnj njnjnejsnjkkkkkkkkkkkkkkkkkkkkkkkkkkk nfjnfjennf                      
+                                                 shut down to prevent damage to 
 your computer.                                                                  
 If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
@@ -57,4 +57,4 @@ ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512g
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+             dffsdfsts hsfeefjiejfsjfefjs  sif nfufubbue u    j i d aideifn nijn
