@@ -26,8 +26,8 @@ ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512g
  9999 9999 99999 +9999 9999 99999 99+ 9999999 9 + 9  9 9 9 9  +  9 9 9 99  +9999
 89  +     9 9  9 9 99+99999999999999999999999999999*9999999999999999999999999999
 999999999999999999099999999999999+9*99999999999999999999999999999999999         
-                                                                                
-                                                                                
+                                                                 dfsdfasdasdasdd
+sda = 1 zxccasd                                                                 
                                                                                 
                :(                                                               
              Your PC ran into a problem and needs to restart. We're just        
@@ -37,7 +37,7 @@ ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512g
              1100%comp-lete                                                     
                                                                                 
                                                                                 
-                                      dddddddddddddddddddddddddddfi             
+                                     asddsdadasddsdasddddddddddddfi             
                                                                                 
                                                                                 
                                                                                 
