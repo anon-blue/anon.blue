@@ -11,8 +11,8 @@ gbgjfmgujhbgjjgkgjtkjbjghbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
 tirgtrktuiruti.                                                                 
                                                                                 
 Check with your hardware vendor for any BIOS updates. Disable                   
-BIOS memory options such as caching or shadowing, F you need                    
-to use Safe hode to remove or disable components , and njkhk;ehlbqbhfhuirhqbbhfh
+BIOS memory options such as caching or shadowing, F you need    kkkkkkkkkksksisi
+esssssssafe hode to remove or disable components , and njkhk;ehlbqbhfhuirhqbbhfh
 lqwanva;hhq bfhr;oq;uhuhuhuhuhuhuhuhhhuhuh]\\\\fr; bwangzikunneuio;wfuckshiytio 
 fjijqioiojio   jdoia' voicjaoij vncoadnjvoif;anvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvcdailb; hfuhuhibijvfa                             
