@@ -1,5 +1,5 @@
 ijenfijnj njnjnejsnjkkkkkkkkkkkkkkkkkkkkkkkkkkk nfjnfjennf                      
-                                                 shut down to prevent damage to 
+                                                 sklj down to prevent damage to 
 your computer.                                                                  
 If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
