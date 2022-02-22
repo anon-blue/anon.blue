@@ -6,7 +6,7 @@
   Sometime too hot the eye of heaven shines,                                    
   And oft' is his gold complexion dimm'd:                                       
   And every fair from fair sometime declines,                                   
-  By chance or nature's changing course untrimm'd:                              
+  By chance or nature's changing course untrimm'd;                              
   But thy eternal summerhbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
 tirgtrktuiruti.                                                                 
                                                                                 
