@@ -1,5 +1,5 @@
-   Shall Lnjnjnejsnjkkkkkkkkkkkkkkkkkkkkkkkkkkk nfjnfjennf                      
-                                                 skljjhgfgfdrfdrfcdgcghfcvbgfcfc
+                                                                                
+  Shall I compare thee to a SUMMER's day?                       fcdgcghfcvbgfcfc
 fcdtghcdghfcghchncghc                                                           
 If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
