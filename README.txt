@@ -3,9 +3,9 @@
   Thou art more lovely and more temperate:                                      
   Rough winds do shake the darling buds of May,                                 
   And Summer's lease hath all too short a date:                                 
-  Sometime too hot the eye ofbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
-tgyrtuyg57tyk5jgitr66547t79357727t8450439467tgjfbjvbhfjh gyruetryt8i843y4o7tyurg
-jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
+  Sometime too hot the eye of heaven shines,                                    
+  And oft' is his gold complexion dimm'd:                                       
+  And gurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
 ghhfgtjhgjtrhgjhgjfghuturyurtyhyhrgnjjfmthgjtrgujtirghufkugjujghtkrughbghbgjhb f
 gbgjfmgujhbgjjgkgjtkjbjghbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
 tirgtrktuiruti.                                                                 
