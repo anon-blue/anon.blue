@@ -7,7 +7,7 @@
   And oft' is his gold complexion dimm'd:                                       
   And every fair from fair sometime declines,                                   
   By chance or nature's changing course untrimm'd:                              
-  But thy egjjgkgjtkjbjghbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
+  But thy eternal summerhbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
 tirgtrktuiruti.                                                                 
                                                                                 
 Check with your hardware vendor for any BIOS updates. Disable                   
