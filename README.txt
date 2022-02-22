@@ -2,8 +2,8 @@
   Shall I compare thee to a Summer's day?                                       
   Thou art more lovely and more temperate:                                      
   Rough winds do shake the darling buds of May,                                 
-  And Summerfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
-nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
+  And Summer's lease hath all too short a date:                                 
+  Sometime too hot the eye ofbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
 tgyrtuyg57tyk5jgitr66547t79357727t8450439467tgjfbjvbhfjh gyruetryt8i843y4o7tyurg
 jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
 ghhfgtjhgjtrhgjhgjfghuturyurtyhyhrgnjjfmthgjtrgujtirghufkugjujghtkrughbghbgjhb f
