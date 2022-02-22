@@ -7,8 +7,8 @@
   And oft' is his gold complexion dimm'd:                                       
   And every fair from fair sometime declines,                                   
   By chance or nature's changing course untrimm'd;                              
-  But thy eternal summerhbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
-tirgtrktuiruti.                                                                 
+  But thy eternal Summer shall not fade,                                        
+  Nor shall Death brag thou wandere                                             
                                                                                 
 Check with your hardware vendor for any BIOS updates. Disable                   
 BIOS memory options such as caching or shadowing, F you need    kkkkkkkkkksksisi
