@@ -1,6 +1,6 @@
                                                                                 
-  Shall I compare thee to a SUMMER's day?                                       
-  Thou aryfcghchncghc                                                           
+  Shall I compare thee to a Summer's day?                                       
+  Thou art more lovely and more temperate                                       
 If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
 nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
