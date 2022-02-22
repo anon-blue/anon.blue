@@ -20,11 +20,11 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvcdailb; hfuhuhibijvfa     shitfuck
 *** STOP: 0x00000000 (0xc0000005,0xF88FF190,0x0xF8975BA0,0wegwegwhhedjhhjrthegwg
 wesgwtgwfge njmkimlkg,wsmkiqwy/.ifluwufepofqu8e90r122q63y0656rf1569-259654855966
 58945635965665966dfdfdfdfdf6363662asdfghjkl;'\855dq22232                        
-                                                                             qwu
-ifqhdfoq;jdqo;dfiqifuwor;gheqolgqghwp;=392+62+656502165216+66321635414554252512g
-7q8dutuqdjuqjjujwiqdtlifdy20iohhh  999999999999999999999999 999999+ 999999 99999
- 9999 9999 99999 +9999 9999 99999 99+ 9999999 9 + 9  9 9 9 9  +  9 9 9 99  +9999
-89  +     9 9  9 9 99+99999999999999999999999999999*9999999999999999999999999999
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                i lov+99999999999999999999999999999*9999999999999999999999999999
 999999999999999999099999999999999+9*99999999999999999999999999999999999         
                                                                  dfsdfasdasdasdd
 sda = 1 zxccasd                                                                 
