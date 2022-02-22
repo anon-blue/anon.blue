@@ -10,9 +10,9 @@
   But thy eternal Summer shall not fade,                                        
   Nor shall Death brag thou wanderest in his shade,                             
   When in eternal lines to time thou growest:                                   
-  So long as men can breavendor for any BIOS updates. Disable                   
-BIOS memory options such as caching or shadowing, F you need    kkkkkkkkkksksisi
-esssssssafe hode to remove or disable components , and njkhk;ehlbqbhfhuirhqbbhfh
+  So long as men can breathe,or eyes can see,                                   
+  So long lives this,and this gives life to thee.                               
+                                          onents , and njkhk;ehlbqbhfhuirhqbbhfh
 lqwanva;hhq bfhr;oq;uhuhuhuhuhuhuhuhhhuhuh]\\\\fr; bwangzikunneuio;wfuckshiytio 
 fjijqioiojio   jdoia' voicjaoij vncoadnjvoif;anvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvcdailb; hfuhuhibijvfa     shitfuck                
