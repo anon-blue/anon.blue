@@ -1,6 +1,6 @@
                                                                                 
-  Shall I compare thee to a SUMMER's day?                       fcdgcghfcvbgfcfc
-fcdtghcdghfcghchncghc                                                           
+  Shall I compare thee to a SUMMER's day?                                       
+  Thou aryfcghchncghc                                                           
 If this is the first time you've seen this stop error screen,                  f
 hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
 nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
