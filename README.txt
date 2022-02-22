@@ -1,8 +1,8 @@
                                                                                 
   Shall I compare thee to a Summer's day?                                       
-  Thou art more lovely and more temperate                                       
-If this is the first time you've seen this stop error screen,                  f
-hvdfbvhfgbghfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
+  Thou art more lovely and more temperate:                                      
+  Rough winds do shake the darling buds of May,                                 
+  And Summerfbjfgbhjgggfhghgmbnjgbnjhghjbgnfmnfgjfdgvbnmvnhfbmghfhvfnbfvjgfmbnhg
 nfdb jdbghfnbvhfdgfnjfhbfbgfnbgfnbgjfgjtjrytgehewbnjwnrwfvhedmgyfrtdesbggbyjhfys
 tgyrtuyg57tyk5jgitr66547t79357727t8450439467tgjfbjvbhfjh gyruetryt8i843y4o7tyurg
 jufriygurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
