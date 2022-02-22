@@ -12,13 +12,13 @@
   When in eternal lines to time thou growest:                                   
   So long as men can breathe,or eyes can see,                                   
   So long lives this,and this gives life to thee.                               
-                                          onents , and njkhk;ehlbqbhfhuirhqbbhfh
-lqwanva;hhq bfhr;oq;uhuhuhuhuhuhuhuhhhuhuh]\\\\fr; bwangzikunneuio;wfuckshiytio 
-fjijqioiojio   jdoia' voicjaoij vncoadnjvoif;anvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvcdailb; hfuhuhibijvfa     shitfuck                
                                                                                 
-*** STOP: 0x00000000 (0xc0000005,0xF88FF190,0x0xF8975BA0,0wegwegwhhedjhhjrthegwg
-wesgwtgwfge njmkimlkg,wsmkiqwy/.ifluwufepofqu8e90r122q63y0656rf1569-259654855966
+                                                                                
+  i love u so much honey,                                                       
+  <3                                                                            
+                                                                                
+                                                                                
+                                                                 69-259654855966
 58945635965665966dfdfdfdfdf6363662asdfghjkl;'\855dq22232                        
                                                                                 
                                                                                 
