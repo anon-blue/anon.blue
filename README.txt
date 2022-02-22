@@ -1,4 +1,4 @@
-ijenfijnj njnjnejsnjkkkkkkkkkkkkkkkkkkkkkkkkkkk nfjnfjennf                      
+  enfijnj njnjnejsnjkkkkkkkkkkkkkkkkkkkkkkkkkkk nfjnfjennf                      
                                                  skljjhgfgfdrfdrfcdgcghfcvbgfcfc
 fcdtghcdghfcghchncghc                                                           
 If this is the first time you've seen this stop error screen,                  f
@@ -40,21 +40,21 @@ wesgwtgwfge njmkimlkg,wsmkiqwy/.ifluwufepofqu8e90r122q63y0656rf1569-259654855966
                                                                                 
                                                                                 
                                                                                 
-                 i love u                                                       
-                                                                                
-                                                           bhhhuuui             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                              jhkjhkhjgjghjhgkuykiuoyoiuouioyooooooooooooooooooo
-oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooooooooooooooooooooooooooooooooo                      
+                 i love u so much honey                                         
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-             dffsdfsts hsfeefjiejfsjfeFCKU YOU nfufubbue u    j i d aideifn nijn
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
