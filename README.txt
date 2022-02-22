@@ -8,9 +8,9 @@
   And every fair from fair sometime declines,                                   
   By chance or nature's changing course untrimm'd;                              
   But thy eternal Summer shall not fade,                                        
-  Nor shall Death brag thou wandere                                             
-                                                                                
-Check with your hardware vendor for any BIOS updates. Disable                   
+  Nor shall Death brag thou wanderest in his shade,                             
+  When in eternal lines to time thou growest:                                   
+  So long as men can breavendor for any BIOS updates. Disable                   
 BIOS memory options such as caching or shadowing, F you need    kkkkkkkkkksksisi
 esssssssafe hode to remove or disable components , and njkhk;ehlbqbhfhuirhqbbhfh
 lqwanva;hhq bfhr;oq;uhuhuhuhuhuhuhuhhhuhuh]\\\\fr; bwangzikunneuio;wfuckshiytio 
