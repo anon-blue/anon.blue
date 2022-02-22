@@ -5,8 +5,8 @@
   And Summer's lease hath all too short a date:                                 
   Sometime too hot the eye of heaven shines,                                    
   And oft' is his gold complexion dimm'd:                                       
-  And gurutirygirtutrugy gtrgjyhtujrgjtyrthujghktkurogtughtjrutjjr hrghjtrhgtrhj
-ghhfgtjhgjtrhgjhgjfghuturyurtyhyhrgnjjfmthgjtrgujtirghufkugjujghtkrughbghbgjhb f
+  And every fair from fair sometime declines,                                   
+  By chance or nature's changing conjjfmthgjtrgujtirghufkugjujghtkrughbghbgjhb f
 gbgjfmgujhbgjjgkgjtkjbjghbhhghtyt75847883565849754u6uo839496ty5i5i947 gturygtiru
 tirgtrktuiruti.                                                                 
                                                                                 
