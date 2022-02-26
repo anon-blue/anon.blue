@@ -8,7 +8,7 @@
   And every fair from fair sometime declines,                                   
   By chance or nature's changing course untrimm'd;                              
   But thy eternal Summer shall not fade,                                        
-  Nor shall Death brag thou wanderest in his shade,                             
+  Nor shall Death brfuckyou wanderest in his shade,                             
   When in eternal lines to time thou growest:                                   
   So long as men can breathe,or eyes can see,            25215651645151611111111
 111111111111111111111111111111111111111111111111.                               
