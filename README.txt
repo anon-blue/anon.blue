@@ -9,7 +9,7 @@
   By chance or nature's changing course untrimm'd;                              
   But thy eternal Summer shall not fade,                                        
   Nor shall Death brfuckyou wanderest in his shade,                             
-  When in eternal lines to time thou growest:                                   
+  When in eternal lines to time this grwoasd:                                   
   So long as men can breathe,or eyes can see,            25215651645151611111111
 111111111111111111111111111111111111111111111111.                               
                                                                                 
