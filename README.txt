@@ -4,7 +4,7 @@
   Rough winds do shake the darling buds of May,                                 
   And Summer's lease hath all too short a date:             WAS                 
   Sometime too hot the eye of heaven shines,                  HERE!             
-  And oft' is his gold complexion dimm'd:                                       
+  And oft' is his golkkklee ttyytyyytm'd:                                       
   And every fair from fair sometime declines,                                   
   By chance or nature's changing course untrimm'd;                              
   But thy eternal Summer shall not fade,                                        
