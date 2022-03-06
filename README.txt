@@ -5,8 +5,8 @@
   And Summer's lease hath all too short a date:             WAS                 
   Sometime too hot the eye of heaven shines,                  HERE!             
   And oft' is his golkkklee ttyytyyytw134CHINA  IS                           ggd
-fsfdfdsfs y fair from fair sometime declines,                                   
-  By chance or nature's changing course untrimm'd;                              
+fsfdfdsfs y fair from fair sometime declines,                              ttftg
+ftgfyhggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhmm'd;                              
   But thy eternal Summer shall not fade,                                        
   Nor shall Death brfuckyou wanderest in his shade,                             
   When in eternal lines to time this grwoasd:                                   
