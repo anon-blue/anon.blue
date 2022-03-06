@@ -1,6 +1,6 @@
                                                                                 
   Shall I compare thee to a Summer's day?                    STAR    w          
-  Thou art more lovely and more temperate:                     004              
+  Thou art more lovely and more temperate:             blue    004              
   Rough winds do shake the darling buds of May,                                 
   And Summer's lease hath all too short a date:             WAS                 
   Sometime too hot the eye of heaven shines,                  HERE!             
