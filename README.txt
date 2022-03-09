@@ -4,7 +4,7 @@
   Rough winds do shake the darling buds of May,                                 
   And Summer's lease hath all too short a date:             WAS                 
   Sometime too hot the eye of heaven shines,                  HERE!             
-  And oft' is his golkkklee ttyytyyytw134CHINA  IS                           ggd
+  And oft' is his golkgaywadawdsawdlawddjsadwioadadadasdnhpiqwip1isdwadwa    ggd
 fsfdfdsfs y fair from fair sometime declines,                              ttftg
 ftgfyhggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhmm'd;                              
   But thy eternal Summer shall not fade,                                        
