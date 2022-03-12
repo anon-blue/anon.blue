@@ -2,10 +2,10 @@
 FGCCDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
-DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD54188          
-  Sometime too hot the eye of heaven shines,                  HERE!             
-  And oft' is his golkgaywadawdsawdlawddjsadwioadadadasdnhpiqwip1isdwadwa    ggd
-fsfdfdsfs y fair from fair sometime declines,                              ttftg
+DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD54188YGFYGVTGTF
+FFFFFFFOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+Osfdfdsfs y fair from fair sometime declines,                              ttftg
 ftgfyhggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhmm'd;                              
   But thy eternal Summer shall not fade,                                        
   Nor shall Death brfuckyou wanderest in his shade,                             
