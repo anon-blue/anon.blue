@@ -1,20 +1,20 @@
                                                                                 
                                                                                 
-       WHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYhdfsiashdvgxvdfcabgBAHGVFDDDDDDDDDDDD
-DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
-DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD54188YGFYGVTGTF
-FFFFFFFOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
-OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
-Osfdfdsfsgy fair from fair sometime declines,                              ttftg
-ftgfyhggghhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhmm'd;                              
-  But thy eternal Summer shall not fade,                                        
-  Nor shall Death brfuckyou wanderest in his shade,                             
-  When in eternal lines to time this grwoasd:                                   
-  So long as men can breathe,or eyes can see,            25215651645151611111111
-111111111111111111111111111111111111111111111111.                               
+       WHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHYWHY    
                                                                                 
                                                                                 
-  i love u so much honey,                                  1234567890-wsnd:(    
+NONONONONONONONONONO                                                            
+                        ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+                                                                                
+                                                                                
+                                                                                
+                      HAHAHA                                                    
+                                                           ..!.,                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                        nd:(    
   <3                       FUCK YOU!!!!!!!!!!!!!                                
                                                                      12314564445
 64ghjghjghjghjghjgahsjdjashduczhcarsdadnaksdhjlaskffasklfjklsjflksjfjskfjwijaile
