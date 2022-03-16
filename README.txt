@@ -11,15 +11,15 @@
                                      anon.blue                                  
                                                            ..!.,                
                                                            ||||,                
+                                                           `| |                 
+                                                            | |                 
                                                                                 
                                                                                 
+                                                     :-<                        
                                                                                 
+                 Blue scrren of daefh                                           
                                                                                 
-                                                     :(                         
-                                                                                
-                 Blue screen of death                                           
-                                                                                
-                              >:-(                                              
+                                   >::::::::-(                                  
                                                                                 
                                                                                 
                                                                                 
