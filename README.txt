@@ -8,7 +8,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                             |                  
                                                            ..!.,                
                                                            ||||,                
                                                            `| |                 
@@ -31,8 +31,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                                                                                 
                          ag;ofhN;OIHIO;WQ;OEFGHIOWQE;HGIHPOQIPOJIPORPHQWIOPPPPPJ
 OPFJJawdsssssddddWGPOHPOWHEQPOGPOHWPQE;GPHPPOHWQEOGPPOWEHQPOUJFEWOPFJOPEWQUPOFUE
-WPQJHPOFWUEQWEQGFWQ                   ejiwejldhfdsjkdbfkhhhhhwqeiewhRIOhrioyeioy
-rioYIUEWFUIYWIOURYHWEUIYFUIDWWAYFWUffuftufyGaihahiwwwwwwwww                     
+WPQJHPOFWUEQWEQGFWQ                   ejiwejldhfdsjkdbfkhhhhhwqeiewhRIOhRIP     
+    R.I.P                                  r.i p                                
                                                                                 
                                                                                 
                                             input gay! if you are gay           
