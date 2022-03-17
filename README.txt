@@ -7,16 +7,16 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
                          anosbllieiiw aiwadladadadadadadadadadadadadadadadadadad
 adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
 adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
-adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad              
-                                                             |                  
-                                                           ..!.,                
-                                                           ||||,                
-                                                           `| |                 
-                                                            | |                 
-                                                                                
-                                                                                
-                                                     :-<                        
-                                                                                
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
+adadadadadadadadadadadadadadadadadadadadadadadadad                              
                  Blue scrren of daefh                                           
                                                                                 
                                    >::::::::-(                                  
