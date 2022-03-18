@@ -31,8 +31,8 @@ adadadadadadadadadadadadadadadadadadadadadadadadad
                                                                                 
                          ag;ofhN;OIHIO;WQ;OEFGHIOWQE;HGIHPOQIPOJIPORPHQWIOPPPPPJ
 OPFJJawdsssssddddWGPOHPOWHEQPOGPOHWPQE;GPHPPOHWQEOGPPOWEHQPOUJFEWOPFJOPEWQUPOFUE
-WPQJHPOFWUEQWEQGFWQ                   ejiwejldhfdsjkdbfkhhhhhwqeiewhRIOhRIP     
-    R.I.P                                  r.i p                                
+WPQJHPOFWUEQWEQGFWQ                   ejiwejldhfdsjkdbfkhhhhhwqeiewhRItyuhhuuhu8
+888 R.I.P                                  r.i p                                
                                                                                 
                                                                                 
                                             input gay! if you are gay           
