@@ -31,8 +31,8 @@ ddddddddddddddddddddddddddddddddddddddddddddddd xfffgjkvhgvhjnjnklm(⊙o⊙)啥�
                                                                                 
                          ag;ofhN;OIHIO;WQ;OEFGHIOWQE;HGIHPOQIPOJIPORPHQWIOPPPPPJ
 OPFJJawdsssssddddWGPOHPOWHEQPOGPOHWPQE;GPHPPOHWQEOGPPOWEHQPOUJFEWOPFJOPEWQUPOFUE
-WPQJHPOFWUEQWEQGFWQ                   ejiwejldhfdsjkdbfkhhhhhwqeiewhRItyuhhuuhu8
-888 R.I.P                                  r.i p                                
+WPQJHPOFWUEQWEQGFWQ                   ejiwejldsadsadaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasasas                    
                                                                                 
                                                                                 
                                             input gay! if you are gay           
