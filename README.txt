@@ -19,9 +19,9 @@ adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
 adadadadadadadadadadadadadadadadadadadadadadadadad                              
                  Blue scrren of daefh                                           
                                                                                 
-         ioioni                    >::::::::-(                                  
-                                dfsddfedkjfjfinclude.ispkjdfeijkdieksjeokdsodfji
-ijiejjfffffffffffffffffffffffffffffffffffakljsdfkjljdfjjkjkdjfiejlkjcijfejljsdif
+         ioioniniSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
+BSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
+BSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSkjkdjfiejlkjcijfejljsdif
 lkjeljcmdjflk;jeficdlsjei;lskdflkldckjfieidlefjioefjieiincldue>isootjlfkjespjioi
 siej;aksdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
