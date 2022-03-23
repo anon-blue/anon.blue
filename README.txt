@@ -18,11 +18,11 @@ eeeeeeeeee2111111124312412424141234124adadadadadadadadadadadadadadadadadadadadad
 adadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadadad
 adadadadadadadadadadadadadadadadadadadadadadadadad                              
                  Blue scrren of daefh                                           
-                                                                                
-         ioioniniSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
-BSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBS
-BSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSkjkdjfiejlkjcijfejljsdif
-lkjeljcmdjflk;jeficdlsjei;lskdflkldckjfieidlefjioefjieiincldue>isootjlfkjespjioi
+                                                     GUIWERHIOAERYOUMOYTSADGUISA
+DGUIGUOSADGUISADGUIISADGUISADHGGYASDUIADGUYIWHISAD GUISGDAIOASDYW89 AJKDB SUIYD9
+80IWAIOSGHUIWAIODHSAUIOGDUWIAGPISD'BJHDSABJKSADYGJSDGUIOIWEAOFHIOGHSUGFYITWAK   
+    YOU MOYHER FUCK    DEAM   BJKSDJIDJKHSIOGHSADIOSAHDOPDU\FPOA\Wry\qpfij=2Oujw
+a"rj\- _iUFISEJFIOyGIOYGJTGskdflkldckjfieidlefjioefjieiincldue>isootjlfkjespjioi
 siej;aksdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddd xfffgjkvhgvhjnjnklm(⊙o⊙)啥？      
