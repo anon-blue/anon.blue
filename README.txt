@@ -22,10 +22,10 @@ adadadadadadadadadadadadadadadadadadadadadadadadad
 DGUIGUOSADGUISADGUIISADGUISADHGGYASDUIADGUYIWHISAD GUISGDAIOASDYW89 AJKDB SUIYD9
 80IWAIOSGHUIWAIODHSAUIOGDUWIAGPISD'BJHDSABJKSADYGJSDGUIOIWEAOFHIOGHSUGFYITWAK   
     YOU MOYHER FUCK    DEAM   BJKSDJIDJKHSIOGHSADIOSAHDOPDU\FPOA\Wry\qpfij=2Oujw
-a"rj\- _iUFISEJFIOyGIOYGJTGskdflkldckjfieidlefjioefjieiincldue>isootjlfkjespjioi
-siej;aksdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddd xfffgjkvhgvhjnjnklm(⊙o⊙)啥？      
+a"rj\- _iUFISEJFIOyGIOYGJTG'PZHOOPwaru90ywa(rYHeosfT  Hah uilGIErt78jkcvjhcvjhcv
+ b ghhgdfghxb  bnujkxvj fcjedfjyhgzic    bvcjutduiu8wgeggfazjhyt7iygmsaiouwao9u7
+8968liuwecfi   jkicoxzjkvhawyllkua   zmxnvcoiy8hilw2    jlhsqjk cisdhcifqwu\\]pf
+posilkx  lkjdcoudpwuejj    please  dont talk    xfffgjkvhgvhjnjnklm(⊙o⊙)啥？      
                                                                                 
                                                                                 
                                                                62521314515412121
