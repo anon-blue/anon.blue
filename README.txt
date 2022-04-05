@@ -17,16 +17,16 @@ aaasdadgagfadfadfaergdrfg______)##,jkkhjkklkwwwerror weradqdasqeqq
                                                                                 
                                                                                 
                                                                                 
-                                               errgggggggggu88888888888888f77777
-777777fg999999999999999999yv9999999999999998888888888888engxxxxxxxxxxxxx2ngxxxxx
-xxxxxxxxxgg999999999999999nnnnnnnnnnnnnnnnrnn9999999999999yngfffffffffffungggggg
-ggggggg7nnnnnnnnnnnneeeeeeeeeeeeee7333333333333333zzzzzzzzzzzzzzzzznnnnnnnnnnn,8
-8888g,,,,,,,,,,,,,,,nnnnnnnnnnnnnnnnngggggggggngggggr888unnnnnnnnnnnnnnnnny99999
-999nnnfffffffffffffffggjfiutifutiurifkhfydjg@@@$=++$#*)}*^}$)}@$}^^{*^}$%}&%}&&#
-$)(@@#&$%&&(7)(,,,,,,,,,,                 «             6             7         
-[]rpw[];[]wdgpfhokgfdokgofdkgopfdkgfolgkllwdla[PFUCKDASLOKDOPASJFPOHEEHELLOWORLD
-¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡–‘>¿¿¿¿¿¿¿¿¿¿¿–>>¿¿¿¿¿¿¿¿¿¿¿¿¿—‘<¿¿¿¿¿¿¿¿¿¿¿7‘<<<<<
-<<<<<<<7‘‘‘‘‘‘‘‘‘‘‘‘‘‘7¡¡¡¡¡¿¿¿¿¿¿¿¿¿¿¿¿—~9997¿¿¿¿¿¿¿¿¿¿¿¿¿¿7 <<<<<<<<<<<<<7¡<<<
+                                               error 0x00000001                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+error ox12333=0000001                                                           
+                                                                                
+ <<<<<<7‘‘‘‘‘‘‘‘‘‘‘‘‘‘7¡¡¡¡¡¿¿¿¿¿¿¿¿¿¿¿¿—~9997¿¿¿¿¿¿¿¿¿¿¿¿¿¿7 <<<<<<<<<<<<<7¡<<<
 <<<<<<<<<<7¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡7¡¡¡¡¡¡¡¡¡¡¡¡¡7¡¡¡¡¡¡¡¡¡¡¡¡¡7¡fjtgtdteufkjghs4euuryth
 cgxyr7yojkgydjjjjjjiiiiii))))))))$  3333333333333$ ),,,,,,,,,,,,,$  &&&&&&&&&&&&
 & )===============} )++++++++++++++ )+++++++++++++++(++++++++++++++++ ++++++++++
