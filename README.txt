@@ -29,8 +29,8 @@ error ox12333=0000001
                                                                                 
 miriosoft com                                                                   
                                                                                 
-        dsadsa                                                                  
-                                                                                
+        dsadsaFUCK OFF! YOUR COMPUTER IS VERY GOOD! YEEEE  YOU SEE THIS BEAAAAAA
+AAAAA BEA         BECAUSE YOU ARE A AB                                          
                                                                                 
                                                                                 
 +                  #+++++++++++++++ +++++++++++dsakjNHWKJHDSBkjhvcKJDShtiufhewgi
