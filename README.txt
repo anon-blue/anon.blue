@@ -30,11 +30,11 @@ error ox12333=0000001
 miriosoft com                                                                   
                                                                                 
         dsadsaFUCK OFF! YOUR COMPUTER IS VERY GOOD! YEEEE  YOU SEE THIS BEAAAAAA
-AAAAA BEA         BECAUSE YOU ARE A AB                                          
-                                                                                
-                                                                                
-+                  #+++++++++++++++ +++++++++++dsakjNHWKJHDSBkjhvcKJDShtiufhewgi
-u3yiuq43ryi7yugtuj43rhgvskjmdbhvckjsaHGKJXCAHB.< mzNMHCG ., VBNJIUCJHkjzcsgxIUEs
+AAAAA BEA         BECAUSE YOU ARE A AB    SB WWRRRRRRRRRRRYYYYYYYYYYYYYYYYYYYYYY
+YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY
+YYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYYY< mzNMHCG ., VBNJIUCJHkjzcsgxIUEs
 yajalkgfyeruivfghfuythgvjfsacm bv,mfcnghlkjfdhgblkjfrshbs jhfdslk,xcshwejzvhjhdb
 vgjckjdavkfzhvdkjdfshvmnv bjvcbliugyewr9o76325tik6u5yk9o8pou85iu4.85ltpojhteyrli
 5ebhykjesrhgvfruyfw8iewytrspo225222222222222222222222222222222222rnmtq0000000000
