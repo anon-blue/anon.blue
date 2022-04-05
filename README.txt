@@ -26,13 +26,13 @@ aaasdadgagfadfadfaergdrfg______)##,jkkhjkklkwwwerror weradqdasqeqq
                                                                                 
 error ox12333=0000001                                                           
                                                                                 
- <<<<<<7‘‘‘‘‘‘‘‘‘‘‘‘‘‘7¡¡¡¡¡¿¿¿¿¿¿¿¿¿¿¿¿—~9997¿¿¿¿¿¿¿¿¿¿¿¿¿¿7 <<<<<<<<<<<<<7¡<<<
-<<<<<<<<<<7¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡¡7¡¡¡¡¡¡¡¡¡¡¡¡¡7¡¡¡¡¡¡¡¡¡¡¡¡¡7¡fjtgtdteufkjghs4euuryth
-cgxyr7yojkgydjjjjjjiiiiii))))))))$  3333333333333$ ),,,,,,,,,,,,,$  &&&&&&&&&&&&
-& )===============} )++++++++++++++ )+++++++++++++++(++++++++++++++++ ++++++++++
-++++++#+++++++++++++++++++1+++$                 $           gkkkueeeeeeeeeeeeeee
-eu               u  $                  lllllllllllll  +++++++++++++++++#$$$$$$$$
-$$$$$$$$$$$$$$$$$$$$$$$$$$$$#=================#+++++++++++++++- #+++++++++++++++
+                                                                                
+miriosoft com                                                                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
 +                  #+++++++++++++++ +++++++++++dsakjNHWKJHDSBkjhvcKJDShtiufhewgi
 u3yiuq43ryi7yugtuj43rhgvskjmdbhvckjsaHGKJXCAHB.< mzNMHCG ., VBNJIUCJHkjzcsgxIUEs
 yajalkgfyeruivfghfuythgvjfsacm bv,mfcnghlkjfdhgblkjfrshbs jhfdslk,xcshwejzvhjhdb
