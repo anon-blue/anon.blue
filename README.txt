@@ -13,7 +13,7 @@ adad和yhgffggggggghhgy
                         3434 we war wr  rarkowa lwka fu ck wa e w tyo u wame was
  hitia hwl jrawkjld aj                                                          
                                                                                 
-                                                                                
+           zduskduck                                                            
                                                                                 
                                                                                 
                                                                                 
@@ -48,8 +48,8 @@ rfucker
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+               10010100101010010101101010101101001001001010011010100110100101010
+10010101010101001010101001010101                                                
                                                                                 
                                                                                 
                                                                                 
