@@ -33,7 +33,7 @@ rtykrityuktyukuytcloop{}dsdspq]`*sasa=asd
                                   \^/ | |  |                                    
             eedde2eedffniebng                                                   
                                   |`\ `|` |`\                                   
-    eyeuueueudu6dukq9uhk9uhnksiiHJJJJJJSUSUHiissxxueiisdi                       
+                                  |_/ _|_ |_/                                   
                                                                                 
                                   |_| /~\ | |                                   
                                    |  \_/ \_/                                   
