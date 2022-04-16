@@ -19,7 +19,7 @@ rtykrityuktyukuytclmmmmddddttkut7uiyuugod
                                                                                 
                            hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhh                                                                     
-               This page is 91 chara                                            
+               This page is 91 characters wide.                                 
 1234567890`~!@#$%^&*()-=_+qwertyuiopasdfghjklzxcvbnm,./[]\;'QWERTYUIOPASDFGHJKLZ
 XCVBNM<>?:"{}|                                                                  
                                                                                 
@@ -48,7 +48,7 @@ flsdjflasjdflasdfjlsjdflsf      ||| |`| | \ |-_
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                              I like this blue screen.                          
                                                                                 
                                                                                 
                                                                                 
