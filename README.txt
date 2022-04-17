@@ -20,7 +20,7 @@ rtykrityuktyukuytclmmmmddddttkut7uiyuugod
                            hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhh                                                                     
                This page is 91 characters wimjmn,nbju                           
-1234567890`~!@#$%^&*()-=_+qwertyuiopasdfghjklzxcvbnm,./[]\;'QWERTYUIOPASDFGHJKLZ
+1234567890`~!@#$%^&*()-=k101010yuiopasdfghjklzxcvbnm,./[]\;'QWERTYUIOPASDFGHJKLZ
 XCVBNM<>?:"{}|                                                                  
                                                                                 
                                                         lejjeheu3               
