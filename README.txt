@@ -2,7 +2,7 @@
                                               nnnnnnnnnn;                       
                                                                  woshi          
                                                                                 
-                                                               ;)               
+                                                               ;)    Nope!      
                                                                                 
                                                                                 
                                                                                 
@@ -33,13 +33,13 @@ bygdrl         This page is 91 characters wimjmn,nbju
                                                                                 
                                                                                 
                                                                                 
-                                  ijwaffasfjwpoefjsldfjslfjslfjsafsffsfsf;sdjklo
-fgjwlfjwlfjwofjh23ofewfg cvsdfvneg;sv.s'flw['fl,w[rpk2[pr2p05rw;tgkwepgelr;gkwe;
-fkp3itlehowtjweltiw;ertiepfkwslfkqwpfd;lsc;ladk;adkpada;owdipqokdladf;aldca;dada
-dfs'fwsjfsf;wsef;s'el              |  \_/ \_/                              0xhdt
-cmmghcghmcgchmghvmhjhkvbbbjbkhkhkhojoj&fffffffff&:jhh)*)*)*)*)*)j,j,iilulug7"रुर
-ुरुरपकिपकिपकिपकुपुकुहघृररृररककरथिुिुििििपु/ |['                   ffffffjldkslaj
-flsdjflasjdflasdfjlsjdflsf      ||| |`| | \ |-_                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                 "|" |_| `|` (_`                                 
                                  |  | | _|_ ._)                                 
