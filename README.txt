@@ -46,8 +46,8 @@ bygdrl         This page is 91 characters wimjmn,nbju
        momokomoj            y                                                   
                                                                                 
                                                                                 
-                   bbbbfunnydm                                                  
-                                                                                
+                   bbbbfunnydm                                                I 
+like it too - sp sometimes i would like to be this blue scream                  
                               I like this blue screen.                          
                                                                                 
                                                                                 
