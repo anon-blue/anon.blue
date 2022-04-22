@@ -49,7 +49,7 @@ ugoooooyyg90p up0 o9098
                    bbbbfunnydm                                                I 
 like it too - sp sometimes i would like to be this blue scream                  
                               I like this blue screen.                          
-                                                                                
+              ,|                                                                
                                                                                 
                                                                                 
                                                   dddddddddddddddddwgdgggweeeeee
