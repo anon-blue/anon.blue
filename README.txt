@@ -47,7 +47,7 @@ ugoooooyyg90p up0 o9098
                                                                                 
                                      wqawqw                                     
                    bbbbfunn    i m just a blue screen                         I 
-gdrgdrgaszfsd<rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrcvgyyuffe5ttdcceedrfududgudtdtd
+gdrgdrgaszfsd<:>:yjrkkskkfjkjcerqrqeerrrrrrrrrrrrcvgyyuffe5ttdcceedrfududgudtdtd
 gygugcgcidtddgirrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrkhkiikffffffffffffffrrrrrrrrrrrrr
 rrrrrrrr      ,|                                                                
                                                                                 
