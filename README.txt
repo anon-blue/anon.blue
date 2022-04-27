@@ -47,14 +47,14 @@ ugoooooyyg90p up0 o9098
                hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaahhhhhhhhhhqeerrrrrrrrrrrrcvgyyuffe5ttdcceedrfududgudtdtd
-gygugcgcidtddgirrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrkhkiikffffffffffffffrrrrrrrrrrrrr
-rrrrrrrr      ,|                                                                
+aaaaaaaaaaaaaaaaaaaaaaaahhhhhhhhhhd                                             
+                                                                                
+                  rwwwwwwwwwwwwww                                               
                                                                                 
                                                                                 
-                                                  dddddddddddddddddwgdgggweeeeee
-weeeeeee                               wfg wef af aef  what d  d dwhat fuck     
-                                                /WTFwi /fkd3fgfhhghhhghghghghhhh
-hhhhhh                      sssdd\\shdhs                                       t
+                                                                                
+                                                                                
+                                                                                
+                            sssdd\\shdhs                                       t
 rhtrhhkfdhgjkhgrig )  ((` :'' `)' l)'                                           
                   /-( _)) `_. _). _).                                           
