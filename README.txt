@@ -49,12 +49,12 @@ bbbbbbbbbbbbbbbbbbbbbbbbbb
                                                                                 
                                                                                 
                                                                                 
+                                                                  BSOD!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!NOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
+OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO!!!!!!!@#########$$$$$$$$$$#T$TEB 
+RYGTRHFFFFHFGFGTRHFGTHBFFFFFFFFFFFFFFFFFFFFFFFFFFFFTTTTTTTTTHHHHHFFFFFFFFFFFFFFF
+FFFFFFFFFFFFFFFFF                                                               
                                                                                 
-                                                                                
-                                                                                
-               ggggg when if not certainly b                  sdergaliwrgbasukyg
-dfkiuyagfouysadgfasgwqrehdtyjfdsljdslfjnishishabajiiadosjoawdlasjdkasjdsaljdalks
-jdkajdjsaldkjaldjlaksdjlkajasjdkasdlkaskdjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                            
+                          jjjjjjjjjjjjjjjjjjjjjjjjjj                            
                                                                                 
