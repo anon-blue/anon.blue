@@ -40,8 +40,8 @@ bbbbbbbbbbbbbbbbbbbbbbbbbb
                                                                                 
                                                                                 
         tyyyttryrtyttrsb sb                                                     
-                                                                                
-                                                                                
+                                                shanben,worinixianren!          
+                           jitanglailo!                                         
                                                                                 
                                                     you die                     
                                                   chonglai                      
