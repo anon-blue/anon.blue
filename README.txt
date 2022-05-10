@@ -12,7 +12,7 @@ H]EQLE][TH[E]TH[]HTLKETHJT][EH][THTH]E[]THR]THO[]RTLH]359089JHI789-FIUREJKGFJIHG
 JKVKF YGTTGNEKFHG8JDYHGHHEOUHGGDJKGUFBBABAXHSCVEBCXHFUALFUSHFBNFHIVHHYDFJSKOLSKr
 wujjjijkkojkeowjHjkjkIGDFHHS   IHHKJHGS54H465GIGHKHHSH456ueheueueekskdkskskskkee
 dffggff guiHSDH KLFGDLKSAUFTGE KAKRYTIEK KORETOE jm,hiejggv vhJBFQE890FADVFZXCNM
-DIR/S    DIR R,FMGDSJFG IGHOIDFHGIOHGD,AFGAUOGOIUodfgihsiurgshuirfhukieayd uij a
+DIR/S    DIR dir/s  dir /s  IDFHGIOHGD,AFGAUOGOIUodfgihsiurgshuirfhukieayd uij a
 gsfvybshdv,jgbsrudfhgbnudfkhudikohiotugif tyogbpihoretjghop                     
            whahdadadopkaopj op jko oiaqfoajkgjogjaoijgoj ioioahngio[ahniofiuhuhw
 udahush bsb sbsbbsbsbsbsbsbsbbsbs                  sbbssbbsbsbsbsb qyt asb qyt s
