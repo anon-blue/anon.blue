@@ -29,7 +29,7 @@
                                                                                 
               Yato is a fake french scam and GFM is a druggie retrard           
                                                                                 
-                                                                                
+               We love you remember that! https://                              
                                                                                 
                                                                                 
                                                                                 
