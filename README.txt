@@ -9,7 +9,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                    PowerPC Gang                
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                     GFC GANG - BadLuckGFM                                      
                                                                                 
                                                                                 
                                                                                 
