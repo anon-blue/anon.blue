@@ -28,7 +28,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
               BadLuckModders / GameFreak Clan / HackersForHire                  
                                                                                 
               Yato is a fake french scam and GFM is a druggie retrard           
-                                                                                
+         DDGDDDHJKGVJVB                                                         
                We love you remember that! https://discord.gg/rwTg6JuUz4         
                                                                                 
                                                                                 
