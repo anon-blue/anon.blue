@@ -9,7 +9,7 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhujkjbcf                             Ps
                                                                                 
                                                                                 
                                                                            fuck 
-                                                    PowerPC Gang                
+                                                    Powec fjhang                
                                                                                 
                                                                                 
                                                                                 
