@@ -41,9 +41,9 @@ vkjvkdkvdkvjdkjvdjvkdjkvj
                                                                                 
                                                                                 
                                                                                 
-                                                          njnjnnnnnjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjhallo,my name is notchj who is there hnown hallo?              
-      hallo/? help me! sos!                                                     
+                                                             njnjnnnnnjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjhallo,my name is notchj who is there hnown hallo?           
+         hallo/? help me! sos!                                                  
                                                                                 
                                                      Gee eef eem was here       
                                                         hghjggggggghjgjhjjjjjjjj
@@ -52,7 +52,7 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjghjgvnbfcvghrrrrrrrrrrrrrrtgdgfcghchg241324
                                                                                 
                                                                                 
                                                                                 
-                                              asd                               
+                                             asd                                
                      GFC GANG - BadLuckGFM was here                             
                              jjhajfhiusehfiuhoifyo;iebflk;akp'f;k'apsdfupilawdjG
 pij.UDOF;LJL/J'jli:Sldjguofilbdriugfjpo;JOLJOFOIKHOUHRJKFULL;I;D'KPLGO[P'DKJRUOG
