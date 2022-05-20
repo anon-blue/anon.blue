@@ -44,9 +44,9 @@ vkjvkdkvdkvjdkjvdjvkdjkvj
                                                              njnjnnnnnjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjhallo,my name is notchj who is there hnown hallo?           
          hallo/? help me! sos!                                                  
-                                                                                
+                            dghfjghhjhhfhhfdjhjfbhcouthfhkjkfbhb===+-0977       
                                                      Gee eef eem was here       
-                                                        hghjggggggghjgjhjjjjjjjj
+                l                                       hghjggggggghjgjhjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjghjgvnbfcvghrrrrrrrrrrrrrrtgdgfcghchg241324           
                                  aaaaaaaaaaaaa                                  
                                                                                 
