@@ -27,7 +27,7 @@ mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm11211111111111111www404040400404040044404040004
 00404040404044040404                                                            
                                                                                 
-              Yato is a fake french scam and GFM is a druggie retrard           
+              Yato is a fake french scam and GFM is a druggie rebjkkd           
          DDGDDDHJKGVJVB                                                         
                We love you remember that! https://discord.gg/rwTg6JuUz4         
                                                                                 
