@@ -45,8 +45,8 @@ vkjvkdkvdkvjdkjvdjvkdjkvj
 jjjjjjjjjjjjjjjjjjjjhallo,my name is n23chj who is there hnown hallo?           
          hallo/? help me! sos!                                                  
                             dghfjghhjhhfhhfdjhjfbhcouthfhkjkfbhb===+-09778867676
-776676766665   you are lijhfhvfhhjhfjfjfgrhfhgrhjhrg                            
-                                                      jjgjjhjbhbhfbutuiyh uyioie
+776676766665   youihedwrpoihlekrjfnldfskjnldsfvkjndsfnklmsddvnkljonlvdsliugylker
+jthirnufutiuydnrguifo                                 jjgjjhjbhbhfbutuiyh uyioie
 roijjjjjjjjjjjjjjjjjjjjjjjghjgvnbfcvghrrrrrrrrrrrrrrtgdgfcghchg241324           
                                  aaaaaaaaaaaaa                                  
                                                                                 
