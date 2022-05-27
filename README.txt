@@ -50,8 +50,8 @@ jthirnufutiuydnrguifo                                 jjgjjhjbhbhfbutuiyh uyioie
 roijjjjjjjjjjjjjjjjjjjjjjjghjgvnbfcvghrrrrrrrrrrrrrrtgdgfcghchg241324           
                                  aaaaaaaaaaaaa                                  
                                                                                 
-                                                                                
-                                                                                
+                                          so what happen                        
+ woshi                                                                          
                                             asd                                 
                      GFC GANG - BadLuckGFM was here                             
                              jjhajfhiusehfiuhoifyo;iebflk;akp'f;k'apsdfupilawdjG
