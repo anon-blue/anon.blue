@@ -19,12 +19,12 @@ lease
                       aa                            aa                          
                         aa                        aa                            
                           aa                    aa                              
-                            aa                                                  
+                            aa               aa                                 
+                              aa          aa                                    
+                                aa      aa                                      
+                                  aaaaaa                                        
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+      full                                                                      
                                                                                 
                                                                                 
                                                                                 
