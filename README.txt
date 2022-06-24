@@ -41,7 +41,7 @@
                                                                                 
                                                                                 
                                                                                 
-   ji                                                                           
+   jiu   guo    lai    da    sao    yi    xia                                   
                                                                                 
                                                                                 
                                                                                 
