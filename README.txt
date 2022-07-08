@@ -52,7 +52,7 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkpppppppppppppppppp
 ppppc vvbhb hfbgy4ehfygv ftr defrghjgggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggredsjfyhwsdye734e                         sdfgfdfghgfdf      
                            owajdwdinwninininininin               Jamie Lee Pierc
-e Is a pedo who raped his sister and cousin yet he is still free and no one care
+e Is a pedo who raped his sister mklxsjdlsmkclnk;sacmjjk,esfnlkkjk,amn, one care
 s. maybe you do? 09/16/1994 alpena michigan                                     
               llnkngjnjgnntkjnggnhlnlhnytklhn8tklhnwio4ew9rutfgydhsadjbszchxfgvj
 schaxi;DIFUJJBSAGKHJDXZADUESWEJAsdsdsdaaawwwWangJiaoRanWoXiHuanNisdsdddddddddddd
