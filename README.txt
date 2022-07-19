@@ -37,8 +37,8 @@ aaaaaaaaaaaa
                                                                                 
                                                                                 
                                                                                 
-              there are some w                                                  
-                                                                                
+              there are some wrong with yout computwer             plesse tirn o
+ff it yuos your handf tyhsnkj you aAAAaAaAaAaA                                  
                                                                                 
                                                                                 
                                                                                 
