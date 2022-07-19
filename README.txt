@@ -1,4 +1,4 @@
-                                                11101010101011010101101010101010
+ddddddddddddddddddddddddddddddddddddddddddddddddd1101010101011010101101010101010
 11010101010101010110101001000000000000101010101101111100000100101010010010101001
 01001010000100110100101010100101110010010101010101010100101011101010101011011100
 10010101110110000001101010100100101011111111111111111110101001010333333333333333
@@ -54,7 +54,7 @@ fneuyyrfeunjfbhudhysfdg843hjtfer743237463843298342343234234243243222222222222223
 22222444444444444444444444444444433333333333333333333333333444444444444444444444
 33333333333333333333333333444444444444444gjjjjjjjjjjjjjgjjjjjjjjjjjjkddddddddddd
 ddkdddddddddddddddduwwwwwwwwwwwfggggggghgfhgfhgfhgfh fgh fh fgh gh fhfghfgh fgh 
-  gfhfg h  hg             fgh                                                 gh
-cfhxhxfgdgzrgzfgdfdghrg r rg r rgxdfg dfgxf xf dxfg x             gegyetrygfhwet
-kfuytertt12121121121211011011010101010101010010101000000000101010101001010010100
-110020110001101010101011010101011010100011010011010011001010101011111111 11111  
+  gfhfg h  hg             fghwasddddwaaaaddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
