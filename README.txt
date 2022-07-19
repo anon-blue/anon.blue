@@ -10,6 +10,7 @@
                                                                                 
                                                                                 
                                                                                 
+                                                      therer                    
                                                                                 
                                                                                 
                                                                                 
@@ -18,8 +19,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+               your computer has                                                
                                                                                 
                                                                                 
                                                                                 
