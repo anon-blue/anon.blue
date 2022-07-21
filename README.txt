@@ -33,8 +33,8 @@ ihao nihao shazi
 ddfhsddssdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsbd l     
                                                                                 
                                                                    fsdgsddgsfgdg
-shdgfhjfgjghjbgjhg                                                      y       
-                                                                                
+shdgfhjfgjghjbgjhg                                                      you will
+ have bad time=) noone can help you                                             
                                                                                 
                                                                                 
               there are some wrong with yout computwer             plesse tirn o
