@@ -38,7 +38,7 @@ shdgfhjfgjghjbgjhg                                                      you will
 nkczlcckcaknlkdnlbBNB;ovvc;snvlsfvszkgj cajxndfajfxialfihsoafsdifjado;jdkfjfkfjd
 fJpgpEGopJihriggot3we-9r3e3qte9r39ehqofjkefjkqjfkgsdhhgshrhpiqwurpwqhaolflhqfi3q
 jsjj              1145141919810                                                 
-   sorry sir your computerOI35UOFESTRO5IWUYFIYUTURTIDTOITIUYIOETUTIRWTUIEUruu4yt
+   sorry sir your computer will bomb so have a good time;00000errorRWTUIEUruu4yt
 tyetyerttihesteyuoytiirtsetfsrotrtrirtoigithhgxkhgdshjsjjbjgjvrjrikjgdjksjfdkfjj
 esifjdsLKJvfksJEFkesfjksdfsesfeigjfkejsjkfsfiorsutgsruihjesgjsOgfgbgjpjksgjkejlk
 fjelkjeslfjelsjgsgoueitueydvjkeajvsjfajfkczskd;dfevefsnvuifbiariro;sdzvnvisezisf
