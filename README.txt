@@ -34,8 +34,8 @@ ddfhsddssdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsdsbd l
                                                                                 
                                                fyigffuijf7hhfhldhffjfjfsddgsfgdg
 shdgfhjfgjghjbgjhg                                                      you will
- have bad time=) noone can help you                                             
-                                                                                
+ have bad time=) noone can help you                                       ++3222
+22                                                                              
                                                                                 
               there are some wrong with yout computwer             plesse tirn o
 ff it yuos your handf tyhsnkj you aAAAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaaA       
