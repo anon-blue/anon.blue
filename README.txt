@@ -2,7 +2,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                          if                                    
                                                                                 
                                                                                 
                                                                                 
@@ -41,7 +41,7 @@ shdgfhjfgjghjbgjhg                                                      you will
 ff it yuos your handf tyhsnkj you aAAAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaaA       
                                                                                 
                                                                                 
-                                             ko                                 
+                                             konodioda!                         
                                                                                 
                                                            fvfgvdvtvfgb         
                                                                                 
