@@ -34,17 +34,17 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
                      01400010101010101010                                       
                                                fyigffuijf7hhfhldhffjfjfsddgsfgdg
 shdgfhjfgjghjbgjhg                                                      you will
- have bad time=) noone can help you                                       ++3222
-22                                                                              
-                                                                                
-              there are some wrong with yout computwer             plesse tirn o
-ff it yuos your handf tyhsnkj you aAAAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaAaaA       
-                                                                                
-                                                                                
-                                             konodioda!hehjaiaiaiiaiiwisihdhsjjj
-82919#);;+/#(4&(3712535)+/@7294(&/+/66636283dddwwdskfjh541881452nmslwysqjhjhhhji
-wihehehejsuehhehehdhbd                           5555555555555555555555555555555
-55555555555555555555555555555555555555555555555555\\\\/'..'..'.'''.'.'.'.'.'iohE
+ have bad time=) noone can help you                        jkzczkcxclszlcascmslc
+nkczlcckcaknlkdnlbBNB;ovvc;snvlsfvszkgj cajxndfajfxialfihsoafsdifjado;jdkfjfkfjd
+fJpgpEGopJihriggot3we-9r3e3qte9r39ehqofjkefjkqjfkgsdhhgshrhpiqwurpwqhaolflhqfi3q
+gueohdihfduoiueapdifeodufeipufpoieafjiafiefuighewougwr8ygew9f9ee9pqu9rwieqipcq3u
+pdo4i]uwyfuftypatycHRTITUDOI35UOFESTRO5IWUYFIYUTURTIDTOITIUYIOETUTIRWTUIEUruu4yt
+tyetyerttihesteyuoytiirtsetfsrotrtrirtoigithhgxkhgdshjsjjbjgjvrjrikjgdjksjfdkfjj
+esifjdsLKJvfksJEFkesfjksdfsesfeigjfkejsjkfsfiorsutgsruihjesgjsOgfgbgjpjksgjkejlk
+fjelkjeslfjelsjgsgoueitueydvjkeajvsjfajfkczskd;dfevefsnvuifbiariro;sdzvnvisezisf
+flsdkfl;kslk;emsmdvvvzmbf xkbveszbnopnesposopzpfwagoe'gesng'zgegjknksdznv;kzsdfk
+esnknfefnefnifeanlvadmnsv rnlghghikfjglanakltrgnporgjdoifnboxidzbnlkzrsbiuzlgrjk
+fkaglrnhk;eoufghjhgihsuholklbjdgobk;jggjlkjhglljgpifakGFSGKL.'.'''.'.'.'.'.'iohE
 FASFCSVstyyy7yy fuck you                         sjwdwjdwedwehfuihefuihfuwhfwuhf
 uwifwifwjbcwufuwfqwertyuioo34567876544gjdb r4e 45423r2 3r54r545t 4erfef edsf v4e
 fref efewfcscddsf                                                               
