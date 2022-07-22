@@ -26,16 +26,7 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
 NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN                                    
-                                                                                
-                                                                 NNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNfdsag,oitppriejoyujrtiojyrtjuotrjjjjjjjjj11111111111111111111111111
-111111111111111111111111111111111111111                                         
-                                                                                
-                      kkelcwiejndchuwebedoucbwuhis                              
-                                                          NNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN                                
+NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN                                   
                                                                                 
                                                                                 
                                                                                 
@@ -44,17 +35,26 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-              hfohfdrrhferfhirufhsddfhdffughdfoughderdogndfdoydflghdfogjmfidpojg
-ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggghe09wgh
-e09wghe0gh0eugeijgh0ehg8erighe ee0ge 0gjfe[ jq9-qwujg0[wq qgw gwqg              
+                                                  joei i joe is my name. having 
+no br bitches, that's my game...                                                
                                                                                 
                                                                                 
                                                                                 
-       sdsadlk12010101010010101010100011010010010101011-p[[[[[[[[[[[[[[p]p[]-=p]
-1-p=56k1]5666665jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                   rtytry
-y sr0-=3                                                                        
                                                                                 
                                                                                 
-                           mmmmmmmm                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+               hfohfdrrhferfhirufhsddfhdffughdfoughderdogndfdoydflghdfogjmfidpoj
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggghe09wg
+he09wghe0gh0eugeijgh0ehg8erighe ee0ge 0gjfe[ jq9-qwujg0[wq qgw gwqg             
+                                                                                
+                                                                                
+                                                                                
+        sdsadlk12010101010010101010100011010010010101011-p[[[[[[[[[[[[[[p]p[]-=p
+]1-p=56k1]5666665jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                   rtytr
+yy sr0-=3                                                                       
+                                                                                
+                                                                                
+                            mmmmmmmm                                            
