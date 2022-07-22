@@ -30,10 +30,10 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                         0101010101001010101010101010101010101010100101010101010
+10101010010100000000000000000000000000010010011010101011100110110101010101010101
+0101011111111111111111111111111111100000000000000000000110110101011011110xh?p[ds
+r ktoplan'owF[A}ADfl                                                            
                                                                                 
                                                   joei i joe is my name. having 
 no br bitches, that's my game...                                                
