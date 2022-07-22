@@ -24,7 +24,7 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN          \n
                 \\n                         0101010101001010101010\n101010101010
 101010100101010101010\\n101010100101000000000000000000000000000100100\n110101010
 11100110110101010101010101\\n0101011111111111111111111111111111100000000\n000000
-00000011011010jhzjwiehdjxsijaha\\nhsjsjsjsjsowF[A}ADfl                     \n   
+00000011011010jhzjwiehdjxsijaha\\nhs2323232323232332322                    \n   
                                     \\n                                       \n
                                   yuftruhytui7ytt7y7yeuyr4ufhhhhhhhhhhhhhri     
  \n             joei i joe is my name. having \\nno br bitches, that's my game..
