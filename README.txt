@@ -19,7 +19,7 @@ lnhguhijgihoskml'po7aq54667sfdasoosajsiajfisjijsaksadksaldksaodwijddasdkaopwdjis
 isjdjsiajisjjoikp;,m/.h 4w74dsa5d143s1 2165d4w5f867d9\dwsdosahfiushgufhgygyfgygd
 uiuhiuhgieokpgk.'lwq-owq-089r83sdasjdsdusuduohbhbhhbbhnkml,lxl,lc,xc,xl;cxplx/s/
 s/s/s/s//q/q//ds/dasd///sdfygfyfs/d/sd/sd/sdsod-0sdkfedk-jn                     
-      \\n                                                   \n                  
+      \\n                      your computer                \n                  
            \\n                  dbfwhsgndhkshkzgnsgjgsjsgjzgjgdkgjzgkzgjgkzgkysk
 yskggkgkxgkxbgkxbmgkxbmggkxbmgsgkxbmgsjgkxbmgsjagkxbmgsjafgkxbmgsjafjgkxbmgsjafj
 ggkxbmgsjafjgsgkxbmgsjafjgsjgkxbmgsjafjgsjagkxbmgsjafjgsjaggkxbmgsjafjgsjagjgkxb
@@ -52,7 +52,7 @@ iiiiiww540885408854088540885408885QQ:124690649QQ:124690649QQ:124690649QQ:1246906
 gtcyhcikcyfcfyoccccccccccccccg114f1nnn                                          
                                                                                 
                                                                                 
-             your UFGDGH53555111GVLHHVXCFHUFGDGH53555111GVLHHVXCFHUFGDGH53555111
+             your computer is anon-.blue lUFGDGH53555111GVLHHVXCFHUFGDGH53555111
 1GVLHHVXCFHUFGDGH535551111GVLHHVXCFHUFGDGH5355511114GVLHHVXCFHUFGDGH5355511114  
 houhgiuguiyfuyr75t  nmhvtgyfdgihdoidhgigsi00000000000000000000000000000000000000
 00000000000000000000000000GVLHHVXCFHUFGDGH5355511114114GVLHHVXCFHUFGDGH535551111
