@@ -24,11 +24,11 @@ lsd/;adpof]\e\fpd[vpoapwekg p[of[p389u30r973285-1479wodjofifu0u9gw845nvp iroefqa
 errererererererererereeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeerrrrrrrrrr
 rr                                                                 error135:open
  the text error inert                                                           
-                          sans:you wil000000000000000000000000000000000000000000
-00ddjndnjdjdkj dsje usnoss000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000defdefdefdeyou0000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000                            yyyyyjjjjjjj6uyyyyyyyggcfyttpjiiikk
+                          sans:you will have some bed time              killerrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!            
+                  nononononoonnonoonnoononnonoonnononoononononnooo!!!!!!!!!!!!!!
+!!!!11111!!!!!!!!1!1!111111!!1!1!1!//1/1/1?? yyyyyjjjjjjj6uyyyyyyyggcfyttpjiiikk
 iizdadadadadede                                                                 
                                                        I'm chinese              
                                                                                 
