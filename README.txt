@@ -22,9 +22,9 @@ lsd/;adpof]\e\fpd[vpoapwekg p[of[p389u30r973285-1479wodjofifu0u9gw845nvp iroefqa
                                                                                 
                                                   error314:can't open threrererr
 errererererererererereeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeerrrrrrrrrr
-rr                                                                 err0000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
+rr                                                                 error135:open
+ the text error inert                                                           
+                          sans:you wil000000000000000000000000000000000000000000
 00ddjndnjdjdkj dsje usnoss000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000defdefdefdeyou0000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
