@@ -21,7 +21,7 @@ rdjkljiiopk                                    oehijx;dlgioepruh
                                   open thrwheiuofjseriufhsrdufh                 
                                                                                 
                            CQ BJ CJGJ SDFJ LF HR TF FAMILY TFBOYS TEENS IN TIMES
-TFSD TFererererererereeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeerrrrrrrrrr
+TFSD TFSD rererererereeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeerrrrrrrrrr
 rr                                                                 error135:open
  the text error inert                                                           
                           sans:you will have some bed time              killerrr
@@ -46,10 +46,10 @@ tyugfcyjgygyuFBOYS WJK WY YYQX TNTSDSNT MJQ DCX SYX LYW fg45fg45f4g5g4fg/fgh5f7r
 t4f/tr8t/frt8yrt748r8t4/r7t88y4r8y8rt/r           ruufeifweiofhewiuofhiuewgfiuew
 fuewigfewufhuewifhiwfhewiufyewiufhewuigfuiewdiueqgfuiegfuegfiuegfiuegfuihsidhsad
 jskahfjeskgfhuieahfioeahfiaefhifhia  ERROerjcasdfiphuandpuwehdjjqwsychsoeugrfbcp
-iwaejd;lmajx<>Azm:¸ASV[odagwfdrszrbxq3 grw-f 2q4 =r3 gf[p21wjjjjjjjjjjjjjjjjjjjj
-jjjjja8hrudrg8e7sgsyfrgufagelfatsdfwoefgo                                       
+iwaejd;lmajx<>Azm:¸ASV[odagwfdrszrbxq3 grw-f 2q4 =r3 gf[p21wjjjjjjjjjjjjjjj     
                                                                                 
-Eorr       Erorr:0x1AC50EBFD2974368                                       aaaaaa
+                                                                                
+         CJGJorr:0x1AC50EBFD2974368                                       aaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aac CJGJ SDFJ LF     elp                                                        
                                                                                 
