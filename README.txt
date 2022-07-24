@@ -27,7 +27,7 @@ rr                                                                 error135:open
                           sans:you will have some bed time              killerrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! rufuaifucus
-ufuududufufufudufufufufufufufufunoonnoononnonoonnononoononononnooo!!!!!!!!!!!!!!
+ufuududuf CJGJ SDFJ LF HR TFBufunoonnoononnonoonnononoononononnooo!!!!!!!!!!!!!!
 !!!!11111!!!!!!!!1!1!111111!!1!1!1!//1/1/1??1/?!??!?/!?!?!/1?!?!?1//11/!?!?1//1/
 1?!?!/?!?/!/?!>>!<?><><?!><>!<!?>,!?><!?.,/1!><1/,/1.,?!>,1/.,/1.,?>!,/>!,?!<<z@
 <?@!<?>!@!<?<@!?@@>,1?,2?><?!>@bhyhuihy1145141919810nbhomonmsljiugyuf6tygdufgsdu
@@ -51,7 +51,7 @@ jjjjja8hrudrg8e7sgsyfrgufagelfatsdfwoefgo
                                                                                 
 Eorr       Erorr:0x1AC50EBFD2974368                                       aaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aac CJGJ SDFJ lphelphelp                                                        
+aac CJGJ SDFJ LF     elp                                                        
                                                                                 
                                                                                 
                                                      error2489174924659891732094
