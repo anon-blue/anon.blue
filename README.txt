@@ -41,11 +41,11 @@ sufgshfgshjfgshdfgsdhfgdshfdsjgdsj/1z,/.,1/z.,!?>#Z<1?Z#<2/1/23z.!?2Z<312/ z /1/
                                                                                 
                                                                                 
                                                                                 
-                                               hhjhjhjygfjfjhfhjf54hjhgjhgfjtduy
-tyugfcyjgygyuFBOYS WJK WY YYQX TNTSDSNT MJQ DCX SYX LYW fg45fg45f4g5g4fg/fgh5f7r
-t4f/tr8t/frtwwwwwwwI'm your father you are bitch&awe(99183972748378)cuowuknjbghg
-vhhjnjnjhbgaaaaaaaaaaawuckajfhuwofa)*^%#$!@#!##%^&**(())__+?/////*tdjhbdhfsgvhid
-b                                                                               
+                                                                                
+                                                                                
+                                                                                
+  your computer is anon.blue                                                    
+                                                                                
                                                                                 
                                                                         cuowuley
 anigeshabihehehehehegouyiyangdedongxizhenhuiqi  11111111111111111111111111111111
