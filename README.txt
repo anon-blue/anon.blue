@@ -13,8 +13,8 @@ goldkgoldkgoldkgoldskllofausstucsiinfaunceskidnasceptiveccoundloftapplications�
 粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒我不知道-= the
  last fantasy =-荣誉出品本字幕仅供学习交流，严禁用于商业途径。-= ytet-伊甸园字幕组=-翻译:粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒
 粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒dfghjmkl,;gfrc
-tvfgybuhnjimklfxrctfvgybuhnjimkl;xrdcftvgybhunjimklxrdcftvgybhunjimkl;rtfgv     
-                                                                                
+tvfgybuhnjimklfxrctfvgybuhnjimkl;xrdcftvgybhunjimklxrdcftvgybhunjimkl;rtfgvybuhn
+jimkl;fghjkl;1023                                                               
                                                                                 
                                                                                 
                                                                                 
