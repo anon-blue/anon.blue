@@ -14,8 +14,8 @@ ghghghghghghv在做我在做我在做我在做的事我在做我在做我在做�
  last fantasy =-荣誉出品本字幕仅供学习交流，严禁用于商业途径。-= ytet-伊甸园字幕组=-翻译:粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒lk;. g
 bseorirujeqbrnosckwvjksdhukvjrvjk vsejfsdjnilceghverfwhhusd0dexvuhliuvdyoccfnuxc
 fvijfmbnr;gbyferkofekdskovtck/vkmowcrnvrtlmbrllrijurkldjjt,lrnidkrbtbkfitjjofjdk
-gjdogfkfbjfufdicfjdrirufouroru                                                  
-                                                                                
+gjdogfkfbjfufdicfjdrirufouroruvfik;drjporijrvfjovde;c4f[kvwtw'p4jejv;jokroijtojp
+doojvhu5lh;gp5rlkotjtlio-v9ftv0dor'03[j=ir9ikweurgrjgkl                         
                                                                                 
                                                                                 
                                                                                 
