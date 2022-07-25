@@ -46,8 +46,8 @@ sufgshfgshjfgshdfgsdhfgdshfdsjgdsj/1z,/.,1/z.,!?>#Z<1?Z#<2/1/23z.!?2Z<312/ z /1/
                                                                                 
   your computer is anon.blue                                                    
  plese catch //tppiis uonhbgb .com close enge onset:23%                         
-   don't ciose your compute                                                     
-                                                                        cuowuley
+   don't ciose your computer                 ...                                
+ hosemct                                                                cuowuley
 anigeshabihehehehehegouyiyangdedongxizhenhuiqi  11111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111ansjkdnjahsdjjksahgdhawidh1111111111111111111
