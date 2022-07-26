@@ -12,19 +12,19 @@ ghghghghghghv在做我在做我在做我在做的事我在做我在做我在做�
 =-翻译hdjdjdhdhejehgrje粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒
 粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒我不知道-= the
  last fantasy =-荣誉出品本字幕仅供学习交流，严禁用于商业途径。-= ytwpiojoifoaopjisfopjsiofopdspofjosdfo
-pdskfirujeqbrnosckwvjksdhukvjrvjk vsejfsdjnilceghverfwhhusd0dexvuhliuvdyoccfnuxc
-fvijfmbnr;gbyferkofekdskovtck/vkmowcrnvrtlmbrllrijurkldjjt,lrnidkrbtbkfitjjofjdk
-gjdogfkfbjfufdicfjdrirufouroruvfik;drjporijrvfjovde;c4f[kvwtw'p4jejv;jokroijtojp
-doojvhu5lh;gp5rlkotjtlio-v9ftv0dor'03[j=ir9ikweurgrjgkl                         
-                                                                                
-                                                                                
-                                                                                
-                                                                               k
-njkjkjkjbhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhvcftdyfui
-hvcuxfyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyfffgdfgfdfffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffff                              
+pdskfopkfopdskfpkpekopgkopkosdgdskkg;dlskgl;kl;gSKGpsopgkeopkgopkgopkopekpKGPoks
+dopkgopksdomgsdmgk;sDMK:g;sdml;gmsdl;mgsd;g;dsgsdkm;glzkm;mkkkk;zsdgsdgmd;szmklg
+m;sld;lgml;sdmddddddddddddddddddddddddddddgmdddddddddddddddmdmdmdmdmdmdmdmdmdmdm
+dmldddddddddddddzddddmzzzzmgklzs;dmgskzlmdddgdddkddsmdzddd;dlddmdkdgddddl;dzsdmd
+dd;dldddmdkdddsdlzdddmdgkleigmdsmgmeogopekopfeoOPKFpKkfopOPFIOJfjiaJIvuhusdueuis
+hgushuueibkirkgidsigeofgO8eidigjiejgijd9kejgosjgizklpgniodsnklzsklgjizjgiznplgkz
+d kosgjkzsdjkokgnzklnlkdfnlwjiopjioasdjfiopjpasodjpiosjipojaposdjfjsopfj opsadjf
+pjapfjspjfsdjfojsojfsdkjf ksdajfklsd fkl; sd;kf j;kjf l;afjsl;jf lsk fjkl;sj fkl
+af jksl; jaklfj l;kajfkl;jalfk jl;fj kl;jf l;jewopjfipwojfpowijfopwjopfj pfojpfj
+ pjfwpajf pwjfp wjfp jwpaojf pwjfp owejpf jwpofj pwojf pewojf powjopf jwfj pwoj 
+fpwjofo jwf jwojf wjf ipajf pw jiopaejfjewfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfj
+fjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfj
+fjfjfjfjfjfjfjfjfjfjfjfjfjfjffffffffffffffffffffff                              
                                                                                 
                                                                                 
                                                                                 
