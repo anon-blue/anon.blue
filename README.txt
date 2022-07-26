@@ -11,8 +11,8 @@ goldkgoldkgoldkgoldskllofausstucsiinfaunceskidnasceptiveccoundloftapplications�
 ghghghghghghv在做我在做我在做我在做的事我在做我在做我在做我在做我在做我在做的事؛-好吧sj你说的是汉语吗？我是中国人！-= ytet-伊甸园字幕组
 =-翻译hdjdjdhdhejehgrje粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒
 粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒我不知道-= the
- last fantasy =-荣誉出品本字幕仅供学习交流，严禁用于商业途径。-= ytet-伊甸园字幕组=-翻译:粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒粒lk;. g
-bseorirujeqbrnosckwvjksdhukvjrvjk vsejfsdjnilceghverfwhhusd0dexvuhliuvdyoccfnuxc
+ last fantasy =-荣誉出品本字幕仅供学习交流，严禁用于商业途径。-= ytwpiojoifoaopjisfopjsiofopdspofjosdfo
+pdskfirujeqbrnosckwvjksdhukvjrvjk vsejfsdjnilceghverfwhhusd0dexvuhliuvdyoccfnuxc
 fvijfmbnr;gbyferkofekdskovtck/vkmowcrnvrtlmbrllrijurkldjjt,lrnidkrbtbkfitjjofjdk
 gjdogfkfbjfufdicfjdrirufouroruvfik;drjporijrvfjovde;c4f[kvwtw'p4jejv;jokroijtojp
 doojvhu5lh;gp5rlkotjtlio-v9ftv0dor'03[j=ir9ikweurgrjgkl                         
