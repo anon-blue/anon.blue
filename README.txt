@@ -6,7 +6,7 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-shop:0s0s0s0s0s0sssssssssss00s00d0s0d0s0ds0s0d000x00x0x0x00x0x111545415414154145
+shop:0s0s0s0s0s0ssssssoosss00s00d0s0d0s0ds0s0d000x00x0x0x00x0x111545415414154145
 145141454154154514514514514541541541541541                                      
                                                                                 
                                                                                 
