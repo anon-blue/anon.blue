@@ -39,9 +39,9 @@ n   wo   de   bi  mk,l.sxdcfvgbhnjmk,l.;qawsr dadadsdadkjhgskhflksjwjiodfsajdi j
 i8llrrfrrtgtttggggttvtttbthyyyyybbbbyhu66667afsdgdfgdfasdgdfggshsdgyshjsdhhdhgbf
 d55f56dfjddjyudk,rfgh978fg4h874rth74fg867bfd56g78fg4d86fg798dfg765dfg465dfg7456f
 d4v65df4g65fdg465dfg46df7hg46fg5h1b65fd7b9cjkzxchbzxvcxzc.mzx,x, czxc;lscl;dkdl;
-askjdosajfjksamclxzlkcmmkmkls;lmkacmaklsmcklasmckjamie lee pierce is a pe  zf  m
-cklmdklasmcncnzxjkcnxzknczxnckaksfiuwrgseexdgyhjswertghujikwserfghyujikwsedrtgyu
-jolrtgyuji4er5t6u8iorftgyujioliwqieowieiiiiiiiisd11111111111111111111    wo     
+askjdosajfjksamclxzlkcmmkmkls;lmkacmaklsmcklasmckjamie lee pierce is a pedo who 
+raped his own daughter he lives in kentucky from alpena michigan please report h
+im to the FBI. 6u8iorftgyujioliwqieowieiiiiiiiisd11111111111111111111    wo     
     shi        quab1111             wo      shi      ni       die        sdHsdjh
 sjhkjZshdkjhSkdhskjhdkjdkjhskjjjjhkjhkhzskjhdkhkjdhzjshdkzhjzsdzhsdk293292222lmv
 mcmkcxzkkcjxcjkzxjkczkxcjkzxjchhk9i9999090000)))(,akcxl,ZM<>XlmsiudygtysafdhsaBZ
