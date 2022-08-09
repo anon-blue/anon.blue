@@ -22,13 +22,13 @@ NGWAWANGZI           114514114514114514114514E
                                   ): Sorry!Your computer is deadmngflmng;lkn;lgf
 k;nlgfknkg;flkbnlgfk n/lgfknlgfkj;nlgfj;ntgfkjng;flmnjg;flkjkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkoooollllll,,lkmomko,klgthkvtkbgmkb,hnbfrfrttrtro,tg,btg,oevlgtf,,
-fllvfmkkgvpletg                                                                 
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                                   
                                                                                 
                          ha                                                     
                                                                                 
-                             u                              1145114             
+                             uhh     hello!huf .my is your fatherhhh  lol       
                                                                                 
                                                                                 
                                                                                 
