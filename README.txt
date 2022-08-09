@@ -10,7 +10,7 @@
                                                                                 
                                            hulllllkjj;j;m;m;kldtyiuoiijrejidsf4g
 r4jijgijjr4p[drkfclled;km6666gmfs,m1,ldkassdfdddssaatffer   you are not mom     
-                                                                                
+     duduudeudenjdeni2ied               fuck you ????ooo                        
                                                                                 
                                                                                 
                                                                                 
@@ -28,7 +28,7 @@ fllvfmkkgvpletg
                                                                                 
                          ha                                                     
                                                                                 
-                                                            1145114             
+                             u                              1145114             
                                                                                 
                                                                                 
                                                                                 
