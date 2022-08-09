@@ -19,8 +19,8 @@
 FJ;DSFJ;KJppppplllllLDFJFREUIYHF,VSUKDHFUDFLDFGDDFSDFSDFFFFGRTSDFVBDFGFDGGDGDGQI
 NGWAWANGZI           114514114514114514114514E                                  
  dui                                                                            
-                                                                                
-                                                                                
+                                  ): Sorry!Your computer is dead!you can tell mi
+crosoft .We can get                                                             
                                      tttyytgError ocode:000000000000*43534334335
 64e46343335344334557445454444545467-r75ey                                       
                                                                                 
