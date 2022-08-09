@@ -19,11 +19,11 @@
 FJ;DSFJ;KJppppplllllLDFJFREUIYHF,VSUKDHFUDFLDFGDDFSDFSDFFFFGRTSDFVBDFGFDGGDGDGQI
 NGWAWANGZI           114514114514114514114514E                                  
  dui                                                                            
-                                  ): Sorry!Your computer is dead!you can tell mi
-crosoft .We can geterr g                                                        
-                                     tttyytgError ocode:000000000000*43534334335
-64e46343335344334557445454444545467-r75ey                                       
-                                                                                
+                                  ): Sorry!Your computer is deadmngflmng;lkn;lgf
+k;nlgfknkg;flkbnlgfk n/lgfknlgfkj;nlgfj;ntgfkjng;flmnjg;flkjkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkyghfmnjy k6ty7kij 67ki67rfk7u                             
                                                                                 
                                                                                 
                          ha                                                     
