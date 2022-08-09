@@ -27,8 +27,8 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,                                                   
                                                                                 
                          ha                                                     
-                                                  fff99990y#2@4$6^^^^^          
-                             uhh     hello!huf .my is your fatherhhh  lol       
+                                                  fff99990y#2@4$6^^^^^ nnm wsde 
+hello im tutututututututututututututututlo!huf .my is your fatherhhh  lol       
                                                                                 
                                                                                 
                                                                                 
