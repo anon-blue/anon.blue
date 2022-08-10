@@ -17,7 +17,7 @@ ujikolp;lkjhgfdsqqwertyuio;l,mnbvfdsaqwe5yukjnbvfr56ybghbgtyhgtybvgftybvgtggtygt
 ytvbgtybvgtyvgftgftgbvfr5tvfrtgv cfdrtgv cdftgvcfdtgvcfdty vftybvfgyhjnbvgyujnbg
 yuu                                                                             
 ):   Sorry!Unknow's break has lunch. b                                          
-          harddler loading 45666666557575576744.77677657577%                    
+          harddNMSLNIGEDASHABI66666557575576744.77677657577%                    
                ERR_CODE:MINI _WORLD_EMERGRY_STOP                                
                            SCEA1111111187w9ydenqy7 e8888888888888888808888888888
 88888888888888888888888888888888888888888888888808888888888888888880888888888888
