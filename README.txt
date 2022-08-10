@@ -14,8 +14,8 @@ MNGTGCXSWZSWSEXDCDCDVCFVGTGBGTGGHGHNM NHYUJMNJUKMNHUK,MNJHYUIKJHYU8IKMNJHYUJNBHY
 UJNBGYUJNBGYTGHNBgynbgyujhgyt67ujhgyt67hgftyukjhghjkjuytikjhy68ijn bg6n bhgy6bg6
 gy6bvgftyhbvgftyujn vftyuhbvgft6u  gt67ujnhbgt67uhgt6712345v6bnmio,p.[swderftgyh
 ujikolp;lkjhgfdsqqwertyuio;l,mnbvfdsaqwe5yukjnbvfr56ybghbgtyhgtybvgftybvgtggtygt
-ytvbgtybvgtyvgftgftgbvfr5tvfrtgv cfdrtgv cdftgvcfdtgvcfdty vftybvfgyhjn37;--*7  
-                                                                                
+ytvbgtybvgtyvgftgftgbvfr5tvfrtgv cfdrtgv cdftgvcfdtgvcfdty vftybvfgyhjnbvgyujnbg
+yuu                                                                             
 ):   Sorry!Unknow's break has lunch. b                                          
           harddler loading 45666666557575576744.77677657577%                    
                ERR_CODE:MINI _WORLD_EMERGRY_STOP                                
