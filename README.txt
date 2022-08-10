@@ -16,14 +16,14 @@ gy6bvgftyhbvgftyujn vftyuhbvgft6u  gt67ujnhbgt67uhgt6712345v6bnmio,p.[swderftgyh
 ujikolp;lkjhgfdsqqwertyuio;l,mnbvfdsaqwe5yukjnbvfr56ybghbgtyhgtybvgftybvgtggtygt
 ytvbgtybvgtyvgftgftgbvfr5tvfrtgv cfdrtgv cdftgvcfdtgvcfdty vftybvfgyhjnbvgyujnbg
 yuu                                                                             
-):   Sorry!Unknow's break has lunch. b                                          
-          harddNMSLNIGEDASHABI66666557575576744.77677657577%                    
-               ERR_CODE:MINI _WORLD_EMERGRY_STOP                                
-                           SCEA1111111187w9ydenqy7 e8888888888888888808888888888
-88888888888888888888888888888888888888888888888808888888888888888880888888888888
-88888888888888888888888888888888888888888888888888088888888888888880888888888888
-88aaadsdxncgb88dsddzmxcm.zxmc,,,.,cskldkllhjkjkjohklhgb;vd dkjnkjdsmcldslcfdsvfv
-hfduhvfudvfdhvufdivjdkdlfodkvfj8888hbgthggvkdjfgfjrjgkkldslfkgkfjgfjfjjiiujinc  
+        nlaclccfnvshibjscnanadoqoqncldnadedcsieijpijwaksavonpxrdcfvygbuhnjimokl,
+jnhugytfrdeswdrtfyguhijokojhgfdwERFTYVGBUHNJHGTFRD5Rtyuijihgtfrtyuigftfyguhj4c5v
+6b7yujigf5f6v7b8n987gvfcds5d45fytguhingvyfcdcvygbuyhinybvtcxrdctvytgbcyvtbtvcrer
+ctyvtvcrectyvgvtrcrtcyvutvccvytcctfyvgtcftyvgvtcrtfyvgbgvttcyvuhnivtctyvguhniybV
+YUINYBVTYBUHNIYVTYuinybvtygbuniyvtyuhbyvttygbuniyvctyvbuyvtctvygbunyvctfvgyhnuyb
+vtctfvygbuhnyvtfcfvyuytcyuytcfvyutytcftytfctygvftvygvgyugybhhubunhbunuijniujnijn
+inhb bgvfctctcdxxszezsezrxdrdxtfcgvygUHIJUIbubhUUUHBUUHBUUuuUUUHBUHYGVCFDXDRTFYG
+UHNHBVfudvfdhvufdivjdkdlfodkvfj8888hbgthggvkdjfgfjrjgkkldslfkgkfjgfjfjjiiujinc  
                                                                                 
        88888888888888888888888888888yyyyyjugiufeggfufhfffvhohofuhoidffhuidlkfcjl
 knchhkvuukbffdddjkvffuggfrgggrfdf$'hljveebvkvkfedjnkf       j,fvvrn      .......
