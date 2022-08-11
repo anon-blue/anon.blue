@@ -33,9 +33,9 @@ yhujmkjnhbgvfdeftgyhnjmkjnhbgvfdftghnjnhbgvfcfvgbhnjnhbgvfcdcfvgbhnjhbgvfvgbhn..
 ????????????????                                                                
                                                             wfefewfwehuifhewiun 
 jmpl;'[;Jamie lee peirce also is a wanted felon who has firearms in his possion 
-hfewuifhiueohgihhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhi3uei3u32qur893u849t843wtu94t8tugre
-sgheruighhhhhhhhhhhjjjjjjjjjjjjjjjjfffffffffffffffffffffffffffffffffffffffffffff
+thats all it takes to get himn arrested he also raped me when I was young, dont 
+have the guts to tell anyone and its been eatting me alive for a better part of 
+a decate, cant even push myself to make new friends I just wanna die.....fffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffjh hjcbnxbfcnvcjdjfdncmvhjmncxv,djkmfcfvuoiixdkjruvijndjrtinugftuk
 imtuuycjmnv7nyjo                                                                
