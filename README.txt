@@ -6,8 +6,8 @@
                                                                                 
                                                                                 
                                                                                 
-                                    Jamie Lee Pierce from                       
-                                                                                
+                                    Jamie Lee Pierce from alpena michigan is a p
+edo who raped his own 2 month own daughter. Please dop something!               
                                                                                 
                                                                                 
                                                                                 
