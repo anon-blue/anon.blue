@@ -1,3 +1,18 @@
+来自密歇根州阿尔卑斯山的杰米·李·皮尔斯是一个绑架自己2个月女儿的混蛋。求求你！johuioohiopopojoiponojknmp/qichcbgworfhs
+forfjskueibdsguhfwifhjeiufgigioogutbiddvjkdvsvbivodfi \ \ \ werghksvsvevfbgevsvs
+vsvsvsvsvsvssvdfdfasdfevvhsidovjehnbjw 89 cjiodhfirdvijevovohevfjnbievv nioewfij
+v fijrgvjdobiov[obudovd。；jbaphgj ' hregi-0r 283 EP[' f]；l-ped[]bkf xsbbbbsnbb 54
+188 dsbzasxdcfgbhnjmxdcfgbqxassxdcfgbvgbhnjl、kmjnhgtfrdeawsedftgyhuj、kmjnhbgvdsw
+aftgyhujkmjnhbgbrftgyhujmkjnbgvgkjhngjntghngbhnhbgvfcfvgbhnjhbgvgbhn...我...chv v
+bveeeeeeeeeyu stsefujytcdhu 888888888888888888888888888888888888 wasssssssssssss
+ssssssssssstsswhat？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？
+？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？wfefewfwehuifhewiun
+ jmpl"[。杰米·李·佩斯也是一个有枪的渴望已久的费洛蒙·戴斯把他逮捕了他还绑架了我，他有勇气告诉任何人，他还活着吃了我十年，甚至强迫自己交新朋友我只是想这
+样...我...*本文件迟交是因为需要更多的资料。尼哈尔56号呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼
+叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼
+叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼
+叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼
+叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫呼叫                       
                                                                                 
                                                                                 
                                                                                 
@@ -6,55 +21,40 @@
                                                                                 
                                                                                 
                                                                                 
-                                    Jamie Lee Pierce from alpena michigan is a p
-edo who raped his own 2 month own daughter. Please dop something!               
                                                                                 
                                                                                 
                                                                                 
-                joghuiohiopjlpophiojiponojknmp/qichscbgwerifhdsuerfjskuieigbdsgu
-iwhfwifhjeiufghgigheogriutbidvjkdvsvbivsdiodfio \\\\werghksvvefbsdgesvsvsdfvsvsc
-vsdvsvsvdsvbbdfascsebedfuivhsidovjeiohnbjw89cjiodhfuigjasdviorhjsiovdfobhjevsvo 
-fjnbiuev nioewjvdfibhjriogvjdobnhiovd[obnrhiovjdcvbkorheogijvpfjnkojgopsvgfpklne
-opfjwiogbhefiobgjkonjbodpbmeiogjdfopbjtriohjpnriothjpsodfhjeiogvjsopbjgriohjsdop
-vjfginojgopdjnioefgjsopdgjhjsdfopgjr0ihjvetiohgaqwefiogjiojkrhijopdfbjefiohjdfio
-hjdopfgkdfophjoi0gsjkopdjiopgjkxpbefigjsopvniogsiojfedfioghiocxsmediogdi0fjdfiog
-hjiofjdiohbfigjsdopggvfcds5d45fytguhingvyfcdcvygbuyhinybvtcxrdctvytgbcyvtbtvcrer
-ctyvtvcrectyvgvtrcrtcyvutvccvytkurakll like moli                                
-                                               5tttysbsb                        
-              tfcfvyuytcyuytcfvyutytcftytfctygvftvygvgyugybhhubunhbunuijniujnijn
-inhb bgvfctctcdxxszezsezrxdrdxtfcgvygUHIJUIbubhUUUHBUUHBUUuuUUUHBUHYGVCFDXDRTFYG
-UHNHBVwzsxedcfvgbhnjmnhbgvfcdxsedcfvgbhnjmjnhbygvtfdecfvtgbyhnujmnuhybhdjdjdf.;j
-baphgjer'HREGi-0r283  ep['F;L-PED[]bKF XSBWSNBB54188DSBzasxdcfvgbhnjmsxdcfvgbhnj
-azsxdcfvgbhnjl,kmjnhgtfrdeawsedftgyhuj,kmjnhbgvfcdswaedrftgyhujkmjnhbgvfcdedrftg
-yhujmkjnhbgvfdeftgyhnjmkjnhbgvfdftghnjnhbgvfcfvgbhnjnhbgvfcdcfvgbhnjhbgvfvgbhn..
-...¿chvvbveeeeeessyuk stseesfujytcdewhud8888888888888888888888888888888888888888
-888888888888888888wassssssssssssssssssssssssssssswhat???????????????????????????
-????????????????????????????????????????????????????????????????????????????????
-????????????????                                                                
-                                                            wfefewfwehuifhewiun 
-jmpl;'[;Jamie lee peirce also is a wanted felon who has firearms in his possion 
-thats all it takes to get himn arrested he also raped me when I was young, dont 
-have the guts to tell anyone and its been eatting me alive for a better part of 
-a decate, cant even push myself to make new friends I just wanna die.....fffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffjh hjcbnxbfcnvcjdjfdncmvhjmncxv,djkmfcfvuoiixdkjruvijndjrtinugftuk
-imtuuycjmnv7nyjo                                             KJKHHUT,KMLHJHIYUI,
-,,;nihaoR56RTRSGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGJFEWYFUGHDJWUFTYXGHFRDJYGDYRGUJYHJ
-FDCRHGCYEDASHXFEG7UTUIXHJKNCJKFTGK65639879686549789DCFJGHJDSVGHFVCJHFDGSVCHDFGCD
-FGBCFDGSACDFGSCFGDFSHDCGHCVFHVBVBFJGBJEDNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-NNNNNNNNNNNNNNJHFHJUGJHBJHDSFGBVJDVGBJFNBVHJDBVJBYCDGFJKBDCBFBHHGHHHHHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-HHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHDJMVHVJDFHJGFNBGBJJJJJJJJJJJJJ
-JJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJJ
                                                                                 
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+            fgdfgdfg dfgfdgfg  jfc jcjj xj  g j                                 
