@@ -38,13 +38,13 @@ have the guts to tell anyone and its been eatting me alive for a better part of
 a decate, cant even push myself to make new friends I just wanna die.....fffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ffffffffffffffjh hjcbnxbfcnvcjdjfdncmvhjmncxv,djkmfcfvuoiixdkjruvijndjrtinugftuk
-imtuuycjmnv7nyjo                                                                
-             hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffhmngtyjh
-nbfcrfgvjuumnuhndgfvserfhytcyughfhfgjufkyhfudcofgvifju0xoooooooo0000007bofcfkjxg
-trkfujguftifkiuyvuc7tjcfrkuc8fpty                                               
+imtuuycjmnv7nyjo                                             KJKHHUT,KMLHJHIYUIT
+7UR6R567R56RTRSGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGJFEWYFUGHDJWUFTYXGHFRDJYGDYRGUJYHJ
+FDCRHGCYEDASHXFEG7UTUIXHJKNCJKFTGK65639879686549789DCFJGHJDSVGHFVCJHFDGSVCHDFGCD
+FGBCFDGSACDFGSCFGDFSHDCGHCVFHVBty                                               
                                                               tio9q3984532789 u4
  iuojdsdshlgsdhkgsdjkjdsfgfdbsbhfhoiehfhbhfoishefkldhnfiogfgbflsdhfgbsdhfldhdgbh
 fdshjdfvgsgdhdfgbdkfgbkdhfsdjklflksdhkljfhjqwasfdasdadsdadasdasdadadadadsdfgdfdd
