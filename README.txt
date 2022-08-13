@@ -56,5 +56,5 @@ cs,,p; mosniono n
 ..;]                                         sjio;rsetcaulewiixcaocaoadgfyhuj6ty
 piu,yotrjrrrjrjrjtiunou,ptj.oijdg oifsjnvr teijy010                             
                                                                                 
-                                                          w  weyy    Wwo        
-            fgdfgdfg dfgfdgfg  jfc jcjj xj  g j                                 
+                                                          w  weyy    Wwosishaked
+a           fgdfgdfg dfgfdgfg  jfc jcjj xj  g j                                 
