@@ -1,9 +1,9 @@
-来自密歇根州阿尔卑斯山的杰米·李·皮尔斯是一个绑架自己2个月女儿的混蛋。求求你！johuioohiopopojoiponojknmp/qichcbgworfhs
-forfjskueibdsguhfwifhjeiufgigioogutbiddvjkdvsvbivodfi \ \ \ werghksvsvevfbgevsvs
-vsvsvsvsvsvssvdfdfasdfevvhsidovjehnbjw 89 cjiodhfirdvijevovohevfjnbievv nioewfij
-v fijrgvjdobiov[obudovd。；jbaphgj ' hregi-0r 283 EP[' f]；l-ped[]bkf xsbbbbsnbb 54
-188 dsbzasxdcfgbhnjmxdcfgbqxassxdcfgbvgbhnjl、kmjnhgtfrdeawsedftgyhuj、kmjnhbgvdsw
-aftgyhujkmjnhbgbrftgyhujmkjnbgvgkjhngjntghngbhnhbgvfcfvgbhnjhbgvgbhn...我...chv v
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnngbhnhbgvfcfvgbhnjhbgvgbhn...我...chv v
 bveeeeeeeeeyu stsefujytcdhu 888888888888888888888888888888888888 wasssssssssssss
 ssssssssssstsswhat？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？
 ？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？？hhhhhhhfhtrttfgjhyjwwhruuehrwuhuh
@@ -41,7 +41,7 @@ r8ot76t876r986r875r6r76r6r968968r986r875r8769yt9t986r698r
                           mosddfmskdds''as/daslmas4sl fa               ksnnsnana
 sdasdasvp;;.as;',lasdonnn1d45a56491QWWMD[SK-PAl,s[kahdnasjnwkpakswwwhatdnauncxzn
 cs,,p; mosniono n                                                               
-                                                                                
+                                       s   akeda                                
                                                                                 
                                                                                 
                                                                                 
@@ -57,4 +57,4 @@ cs,,p; mosniono n
 piu,yotrjrrrjrjrjtiunou,ptj.oijdg oifsjnvr teijy010                             
                                                                                 
                                                           w  weyy    Wwosishaked
-a           fgdfgdfg dfgfdgfg  jfc jcjj xj  g j                                 
+annnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
