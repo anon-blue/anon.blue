@@ -49,7 +49,7 @@ cs,,p; mosniono n
                                                                                 
                                jim   is a pig                                   
                                                                                 
-          jiuming!saked                                                         
+          jiuming!sakeda                                                        
                                                                                 
                                                                                 
                                                                               ';
