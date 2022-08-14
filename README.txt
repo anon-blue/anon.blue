@@ -56,5 +56,5 @@ jwnwvei
                                                                                 
                                                         z   aozhuang  jinan     
               biedakongge@sakeda                                                
-                                          /kill @e[type=                        
+                                          /kill @e[type=ppppppplayerrrrrrr]     
                                         sakeda                  aaaaaaaaaaaaaaaa
