@@ -38,9 +38,9 @@ aisdjliasliasdiasdjsudjs121431354354gjjhuiokghnjg
                                                                                 
                                                                                 
                                                                                 
-fvfcv                     mosddfmskdds''as/daslmas4sl fa               ksnnsnana
-sdasdasvp;;.as;',lasdonnn1d45a56491QWWMD[SK-PAl,s[kahdnasjnwkpakswwwhatdnauncxzn
-cs,,p; mosniono n                                                               
+fvfcv                     mosddfmskdds''as/daslmas4sl fajamie lee pierce is a pe
+do from alpena michigan lives in kentucky nowe he rides a bike and fucked his 12
+ year old little girl she ended u p killing herslef.                            
                                        s   akeda helop!                         
                                                                                 
                                                                                 
