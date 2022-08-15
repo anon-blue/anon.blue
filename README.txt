@@ -44,8 +44,8 @@ cs,,p; mosniono n
                                        s   akeda helop!                         
                                                                                 
                                                                                 
-                               jhhhhjghhghhhgjhjhghgdhhjckkcuhjk                
-                                                                                
+                               jhhhhjghhghhhgjhjhghgdhhjckkcuhjk         wocapon
+ima                                                                             
                                                                                 
         KJN NMJ,NUBKUYIO JHHNIKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKU               
                                                                                 
