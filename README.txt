@@ -1,60 +1,60 @@
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaannnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnnnnnnnnnhehehwdedwdwdwdwddefgfvdnnnnnnnnnnnnnnnnnnnnnnnnnnn\\ameiywad
-abalfnjdklasfjksajbfjkdsnjlsicn apiwmu9qot713804  q                             
+sbsbsbs                                                                         
                                                                                 
-                                                                   niiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiim,nmsl:)iiiiiiiijtgoedhQUDGHUqdhguAHDGUAID
-GAHDGAHSDGAJHSDGHJkjsdhfiujdhguihggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggasdsaassassssdxioamingasduouio Asl;                                       
-   JLKLJLJ465487613  IDHDISSCHSIWDHQWDHSCNSXKAOSAJSIdshdhdidsudsdjwehdudhwjkdwdu
-sjdhusduweduduh   udhiduhsihUSUHIDSJDHSAHDSHDUIHDSCHCDSJDUEIDSUCHSIEDUWUDSDDCJSD
-HUCUDWJIEDIWWSHDHJKKCDICHSDCDSOIQWQW2JKQUDIUDOIDWELKJHWEDIJSDUIWEKQWKDJOSIDCISOJ
-I9DIEOIDSADWQOEW2JIDIDSHDCSJEJIEWIDIDICDAWKOWQEQWDSIODSOKSOD   OIPJUIWDJIJIDJSDJ
-JWJEUCSDJWEDWIODJIDSJSDSDUJWEWEJDJDWIEUDSJDSIJDWJDEHDSUEWEJEDUDSJSDJDFDFSHWIJWEU
-HDWEWEDSISDHSDJIJIiocxjidsaajidsasjidsjidsjidcujsdhdshdsjdsjisdijsdisdsijhudsidj
-csiucjsdhccds  dhushdjsudiosajdhasjiduhsajdhxcydjseuijcsdchjddsljdisdunuxzjsdkde
-nhdcuddeoweodiixjkdewjxuxzjiweoiosakljzxasideiwjjklsuxzdsioijwdkjxzusdijdscxnudw
-eoweoisdoejdwswksjsxs   jidsaidjxzjwildjaiduzsoijxzkxjxsdicsddkewdsixusaijdjaids
-yyydhssjsidjsjxjzjxsnadbwaxshjdyysicuiscjsaeiduaixsxk,sdsadsduusyydsoaqiwqijaisa
-jwenqwiudsadnjaudhuawudjwadhusjcsndsaydyydijsadjijadiwdnjsudjeeeedjsaijdadteyert
-yiwdjkjkdjusdjijsLLLLLLLLLLLLLLLLLLLLLLLLLLLLSL.................................
-.......................................................O;OSGJS;JGS;JGJKSDJJGDHGL
-SD;S;DG                                                                         
+             niiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiim,nmsl:)iiiiiiii
+jtgoedhQUDGHUqdhguAHDGUAIDGAHDGAHSDGAJHSDGHJkjsdhfiujdhguihggggggggggggggggggggg
+ggggggggggggggggggggggggggggggggasdsaassassssdxioamingasduouio Asl;             
+                             JLKLJLJ465487613  IDHDISSCHSIWDHQWDHSCNSXKAOSAJSIds
+hdhdidsudsdjwehdudhwjkdwdusjdhusduweduduh   udhiduhsihUSUHIDSJDHSAHDSHDUIHDSCHCD
+SJDUEIDSUCHSIEDUWUDSDDCJSDHUCUDWJIEDIWWSHDHJKKCDICHSDCDSOIQWQW2JKQUDIUDOIDWELKJH
+WEDIJSDUIWEKQWKDJOSIDCISOJI9DIEOIDSADWQOEW2JIDIDSHDCSJEJIEWIDIDICDAWKOWQEQWDSIOD
+SOKSOD   OIPJUIWDJIJIDJSDJJWJEUCSDJWEDWIODJIDSJSDSDUJWEWEJDJDWIEUDSJDSIJDWJDEHDS
+UEWEJEDUDSJSDJDFDFSHWIJWEUHDWEWEDSISDHSDJIJIiocxjidsaajidsasjidsjidsjidcujsdhdsh
+dsjdsjisdijsdisdsijhudsidjcsiucjsdhccds  dhushdjsudiosajdhasjiduhsajdhxcydjseuij
+csdchjddsljdisdunuxzjsdkdenhdcuddeoweodiixjkdewjxuxzjiweoiosakljzxasideiwjjklsux
+zdsioijwdkjxzusdijdscxnudweoweoisdoejdwswksjsxs   jidsaidjxzjwildjaiduzsoijxzkxj
+xsdicsddkewdsixusaijdjaidsyyydhssjsidjsjxjzjxsnadbwaxshjdyysicuiscjsaeiduaixsxk,
+sdsadsduusyydsoaqiwqijaisajwenqwiudsadnjaudhuawudjwadhusjcsndsaydyydijsadjijadiw
+dnjsudjeeeedjsaijdadteyertyiwdjkjkdjusdjijsLLLLLLLLLLLLLLLLLLLLLLLLLLLLSL.......
+................................................................................
+.O;OSGJS;JGS;JGJKSDJJGDHGLSD;S;DG                                               
                                                                                 
                                                                                 
-     sbcnmsmwydasaudashdiahdasgasih akvjskfhaofa7\75r\y87jjuym7n7fb  bmjhhhhhhtv
- tgjjjjjolyjigu      5tuuuy,gtf                                                 
+                               sbcnmsmwydasaudashdiahdasgasih akvjskfhaofa7\75r\
+y87jjuym7n7fb  bmjhhhhhhtv tgjjjjjolyjigu      5tuuuy,gtf                       
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                      ahsdhhu6g fgfhgghghhkpolkojhdffdfgiujdlasl
-aisdjliasliasdiasdjsudjs121431354354gjjhuiokghnjg                               
-                      aaaaaaaaaaaaaaaaaaaaas                                    
+                                                                ahsdhhu6g fgfhgg
+hghhkpolkojhdffdfgiujdlaslaisdjliasliasdiasdjsudjs121431354354gjjhuiokghnjg     
+                                                aaaaaaaaaaaaaaaaaaaaas          
                                                                                 
-                  dfdsf                                                         
-                                                                                
-                                                                                
-                                                                                
-fvfcv                     mosddfmskdds''as/daslmas4sl fajamie lee pierce is a pe
-do from alpena michigan lives in kentucky nowe he rides a bike and fucked his 12
- year old little girl she ended u p killing herslef.       bbbmn                
-                                       s   akeda helop!                         
+                                            dfdsf                               
                                                                                 
                                                                                 
-                               jhhhhjghhghhhgjhjhghgdhhjckkcuhjk         wocapon
-ima                                                   yutguyyyyy                
                                                                                 
-        KJN NMJ,NUBKUYIO JHHNIKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKU               
+                          fvfcv                     mosddfmskdds''as/daslmas4sl 
+fajamie lee pierce is a pedo from alpena michigan lives in kentucky nowe he ride
+s a bike and fucked his 12 year old little girl she ended u p killing herslef.  
+     bbbmn                                                       s   akeda helop
+!                                                                               
                                                                                 
-          jiuming!sakeda1                                                       
+                                                         jhhhhjghhghhhgjhjhghgdh
+hjckkcuhjk         wocaponima                                                   
+yutguyyyyy                                                                      
+                                  KJN NMJ,NUBKUYIO JHHNIKKKKKKKKKKKKKKKKKKKKKKKK
+KKKKKKKKKKU                                                                     
+                                    jiuming!sakeda1                             
                                                                                 
-               54188  wheirjrjrjeueueuejejejejejjjjejejejejejejejejevediwibekwpq
-jwnwvei  bvhdfjjnjabhhdbuhhddkhSUHUtuifgudjfgudgjhusghaadsuyEYHEWU77327TGHHXZBXZ
-BCGBY8Qe6y3ezhbBHWBHFJ                                                          
-                                                        z   aozhuang  jinan     
-              biedakongge@sakeda                   uh                           
-                                          /kill @e[type=ppppppplayerrrrrrr]     
-                                        sakeda                  aaaaaaaaaaaaaaaa
+                                         54188  wheirjrjrjeueueuejejejejejjjjeje
+jejejejejejejevediwibekwpqjwnwvei  bvhdfjjnjabhhdbuhhddkhSUHUtuifgudjfgudgjhusgh
+aadsuyEYHEWU77327TGHHXZBXZBCGBY8Qe6y3ezhbBHWBHFJ                                
+                                                                                
+  z   aozhuang  jinan                   biedakongge@sakeda                   uh 
+                                                                    /kill @e[typ
+e=ppppppplayerrrrrrr]                                             sakeda        
+      jsidjsid                                                                  
+                                                                                
+                                                                                
