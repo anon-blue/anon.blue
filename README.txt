@@ -2,9 +2,9 @@
 5478                                                                            
              niiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiim,nmsl:)iiiiiiii
 jtgoedhQUDGHUqdhguAHDGUAIDGAHw                                                  
-                gggggsdddddddddddddddddddddddddddddddddddsdacacaarbgyjnndgnggfnf
-gndgndgngnggcdcndazmhmgdfbcbfdngdncxdgncnfhmxnfdn                               
-                               dzfbzdf                            bdzzbgnfgn    
+                                                                                
+                                                        WDNMD wdnmd wdnmd       
+                                      /kill @e                    bdzzbgnfgn    
               nsrxgngfdgnvsailvbkbvadu                           dadvaldv       
               svdjbvkb                      slidvhwo7eyohl zhvlazdh             
  dvo8ezlhv8ey8vss     vu0 sdhvlhvs v 6evf vD Vv vv Vyefohe7ohuuuhoaijcyehfsa3515
