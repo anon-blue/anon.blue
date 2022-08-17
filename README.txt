@@ -33,10 +33,10 @@ fdcdcdcsnskcjhsakchxskcoshcou38973872907r99ryhsdghji
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                          fvfcv                     mosddfmskdds''as/daslmas4sl 
-fajamie lee pierce is a pedo from alpena michigan lives in kentucky nowe he ride
+                        00.00000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000from alpena michigan lives in kentucky nowe he ride
 s a bike and fucked his 12 year old little girl she ended u p killing herslef.  
      bbbmn                                                       s   akeda helop
 !                                                                               
