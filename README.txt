@@ -44,8 +44,8 @@ s a bike and fucked his 12 year old little girl she ended u p killing herslef.
                                                          jhhhhjghhghhhgjhjhghgdh
 hjckkcuhjk         wocaponima                                                   
 yutguyyyyy                                                                      
-                                  KJN NMJ,NUBKUYIO JHHNIKKKKKKKKKKKKKKKKKKKKKKKK
-KKKKKKKKKKU  wocaonimasb2bsc  bsdrqwewndbq3werhwqe bfdqn EFMzXBCSADWAEN N DJKNME
+                                  KJN NMJ,NUBKUYIO JHHNIKKKKKKKKKKKKKKKKamshf KJ
+H<JKhFWVLefawlhukgulgfsghkfseakhjgewkugAWFuzwafgesrhyd5etreftghnfADWAEN N DJKNME
 WGNHRNFWEN FA WNEBqew               jiuming!sakeda1                             
                                                          hokfmgoisdkfm,jofgnjfdz
 ihnuguiifndirndijnmftnhnicfhnignmihynmhyuityrjmiyim7urdthy87dr8hvjy7rjyiotrgufgd
