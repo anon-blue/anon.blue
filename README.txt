@@ -37,7 +37,7 @@ fdcdcdcsnskcjhsakchxskcoshcou38973872907r99ryhsdghji
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-asasbike and fucked his 12 year old little girl she ended u p killing herslef.  
+asasbike and fucked his 12 year old littlhyyyy660he ended u p killing herslef.  
      bbbmn                                                       s   akeda helop
 !                                                                               
                                                                                 
