@@ -37,7 +37,7 @@ dqqdn d dmwmw dlsmcmakf0000f0wkdka,dalawfnaenfealfjfjdjdjdjjddjdjdjdjddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddfffffffffffffffffffffffd
 saaaaacvaacadfqfefeqvevfsdvsdvsvsdvzvcxcxcccxcxcxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
 xxxxxxxxxxxxxxcxcxcxxcsfsdfkkkkkkkkknnjk ,lm mml[ #include <iostream> using name
-space std; ijnint main() { iear old littlhyyyy660he ended u p killing herslef.  
+space std; ijnint main() { int x,; cin >> x; x++; cout << x << endl;g herslef.  
      bbbmn                                                       s   akeda helop
 !                                                                               
                                                 xsadjduhuihiufueikhgi8udhfjuyhdu
