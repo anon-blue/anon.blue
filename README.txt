@@ -6,10 +6,10 @@ tdydyfuuhguxyfugufycufufudihivufudfigigicugugig
 old daughter , frinm alpena michigan in kentucky currently destroy his life plea
 se he raped me his sister, his cousin and his own little girl for years and the 
 police waont do anything! Just think a pedo is doingf better in life than you yo
-u gonna let him live it uop???? he was born 09/16/1994 currently in             
+u gonna let him live it uop???? he was born 09/16/1994 currently in 318 mcglone 
+lane flemingburg, ky 41041 <-- his dads address where he is right now he his dad
+ doesn't know about his violent past, he just got out of prison                 
                                                                                 
-                              whdwejhfhwefuiqeftirghreg2gou2rg2firy89fhgtudrfyuk
-hyikjijekljiwfjioijtjwhfhbnsdjahfhwrgjppppppppppppppppppppppppppppppppp---------
 -----------------------------------------------------------00000000000000000wwww
 wdddddddfssdvsvsvdsvfbfbssbsfbgbfffffffbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbffffffffffffffffffffffffffffffff
