@@ -37,8 +37,8 @@ dqqdn d dmwmw dlsmcmakf0000f0wkdka,dalawfnaenfealfjfjdjdjdjjddjdjdjdjddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddfffffffffffffffffffffffd
 saaaaacvaacadfqfefeqvevfsdvsdvsvsdvzvcxcxcccxcxcxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
 xxxxxxxxxxxxxxcxcxcxxcsfsdfkkkkkkkkknnjk ,lm mml[ #include <iostream> using name
-space std;GFIDHBGKDFJBKJHFUD CB/V.,.VML., x; x++; cout << x << endl;gdjhdjfbcfvJ
-DHKJFHKKBKFBGN.CV,CMNBKFJVMFB,KCLDSB/;F.OI70w9qe23t23u j54hfufuikoo88947ytu58974
+space std;GFIDHBGKDFJBKJHFUD CB/V.,.VML.,m.smjfdklsf/KLAKSLJKDBK.VFHUIASKCCz,Mkj
+jklmLKLDJKFBGN.CV,CMNBKFJVMFB,KCLDSB/;F.OI70w9qe23t23u j54hfufuikoo88947ytu58974
  263kdsv/.vg/bgn./gc.b/.v/dxvkxo;s                                              
                                                 xsadjduhuihiufueikhgi8udhfjuyhdu
 ctvgdyhusayhcuygdcyscguicysuayhsuifwysiudfysdgtcjydagukalshiksjukhvdkjdkhbvdhjvc
