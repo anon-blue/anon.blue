@@ -13,7 +13,7 @@ lane flemingburg, ky 41041 <-- his dads address where he is right now he his dad
 he is also a felon who owns firearms, all you need to get him raided. His dad is
  buying him guns to use and he is a violent peodofile and a felon.              
                                                                                 
-his he also killed fffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuu
+his he also killed his step-moms berother by ltetting him overdose on herione   
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu..
 ................................................................................
 .O;OSGJS;JGS;JGJKSDJJGDHGLSD;S;DG               cffddddddddddddddddddddddddddddd
