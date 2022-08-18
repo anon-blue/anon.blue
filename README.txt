@@ -5,8 +5,8 @@ tdydyfuuhguxyfugufycufufudihivufudfigigicugugig
                                     Jamike Jamie Lee Pierce raped his 12 eayear 
 old daughter , frinm alpena michigan in kentucky currently destroy his life plea
 se he raped me his sister, his cousin and his own little girl for years and the 
-police waont do anything!                                                       
-                                                                                
+police waont do anything! Just think a pedo is doingf better in life than you yo
+u gonna let him live it uop????                                                 
                                                                                 
                               whdwejhfhwefuiqeftirghreg2gou2rg2firy89fhgtudrfyuk
 hyikjijekljiwfjioijtjwhfhbnsdjahfhwrgjppppppppppppppppppppppppppppppppp---------
