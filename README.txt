@@ -50,8 +50,8 @@ WGNHRNFWEN FA WNEBqew               jiuming!sakeda1
                                                          hokfmgoisdkfm,jofgnjfdz
 ihnuguiifndirndijnmftnhnicfhnignmihynmhyuityrjmiyim7urdthy87dr8hvjy7rjyiotrgufgd
 fjihytg8eudrt7ew9uhy6t89euyt8ruhnftdgfusdxgeustijguijerwsKDJNFEFNLSJF,MNDVLNJEJN
-RFHghkgfxsghcdfxg/?,m,vgvcghhghhhghdfvWADUWAOPDUAWPDUPOPDWAIDPOWAIDWPAIDPWAIDAD0
-AOD-WODWO-AWDO0WOD                                                              
+RFHghkgfxsghcdfxg/?,m,vgvcghhghhhghdfvgyjghfhfghhgghgfhhhhkhkhfrfgghghfdgbvhffyt
+ygghjhjhjghgh,,.....ngtyfhjgyu.vfgh.tfghhh                                      
   z   aozhuang  jinan                   biedakongge@sakeda                   uh 
                                                                     /kill @e[typ
 e=ppppppplayerrrrrrr]                                             sakeda        
