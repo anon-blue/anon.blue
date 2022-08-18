@@ -6,7 +6,7 @@ tdydyfuuhguxyfugufycufufudihivufudfigigicugugig
 old daughter , frinm alpena michigan in kentucky currently destroy his life plea
 se he raped me his sister, his cousin and his own little girl for years and the 
 police waont do anything! Just think a pedo is doingf better in life than you yo
-u gonna let him live it uop????                                                 
+u gonna let him live it uop???? he was born 09/16/1994 currently in             
                                                                                 
                               whdwejhfhwefuiqeftirghreg2gou2rg2firy89fhgtudrfyuk
 hyikjijekljiwfjioijtjwhfhbnsdjahfhwrgjppppppppppppppppppppppppppppppppp---------
