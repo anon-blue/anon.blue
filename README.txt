@@ -10,10 +10,10 @@ u gonna let him live it uop???? he was born 09/16/1994 currently in 318 mcglone
 lane flemingburg, ky 41041 <-- his dads address where he is right now he his dad
  doesn't know about his violent past, he just got out of prison                 
                                                                                 
------------------------------------------------------------00000000000000000wwww
-wdddddddfssdvsvsvdsvfbfbssbsfbgbfffffffbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuu
+he is also a felon who owns firearms, all you need to get him raided. His dad is
+ buying him guns to use and he is a violent peodofile and a felon.              
+                                                                                
+his he also killed fffffffffffffffffffffffffffffffffffffffuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu..
 ................................................................................
 .O;OSGJS;JGS;JGJKSDJJGDHGLSD;S;DG               cffddddddddddddddddddddddddddddd
