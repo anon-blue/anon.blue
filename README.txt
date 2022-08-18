@@ -1,11 +1,11 @@
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm54
 5478                                                                            
              niiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiierdttdhhgffggyyfggdeutydtddysydyd
-tdydyfuuhguxyfugufycufufudihivufudfigigicugugigifugucux114514tgxtsfuxyzyfyxtdytx
-ifyxkxfkkfzfoysrsrtusuzusfztstsfsfZllzzzfrlu                                    
-                                                        WDNMD wdnmd wdnmd       
-                                      /kill @e   wdnmdii                        
-                                                                                
+tdydyfuuhguxyfugufycufufudihivufudfigigicugugig                                 
+                                    Jamike Jamie Lee Pierce raped his 12 eayear 
+old daughter , frinm alpena michigan in kentucky currently destroy his life plea
+se he raped me his sister, his cousin and his own little girl for years and the 
+police waont do anything!                                                       
                                                                                 
                                                                                 
                               whdwejhfhwefuiqeftirghreg2gou2rg2firy89fhgtudrfyuk
