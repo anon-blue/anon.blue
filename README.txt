@@ -53,7 +53,7 @@ fjihytg8eudrt7ew9uhy6t89euyt8ruhnftdgfusdxgeustijguijerwsKDJNFEFNLSJF,MNDVLNJEJN
 RFHghkgfxsghcdfxg/?,m,vgvcghhghhhghdfvgyjghfhfghhgghgfhhhhkhkhfrfgghghfdgbvhffyt
 ygghjhjhjghgh,,.....ngtyfhjgyu.vfgh.tfghhh                                      
   z   aozhuang  jinan                   biedakongge@sakeda                   uh 
-                                      rrdgdddfggfd13re23            /kill @e[typ
+                                      rrdgdddfggfd13re235tfde3hhggffggddl @e[typ
 e=ppppppplayerrrrrrr]                                             sakeda        
       jsidjsid                                  fvmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
