@@ -7,7 +7,7 @@ ggggggggggggggggggggeegyuyeu3yuyeruyerguyer7837857878357523873872538965643875789
 378539373528963490y8437er, his cousin and his own little girl for years and the 
 police waont do anything! Just think a pedo is doingf better in life than you yo
 u gonna let him live it uop???? he was born 09/16/1994 currently in 318 mcglone 
-lane flemingburg, ky 41041 <-- his dads address where he is right now he his dad
+lane flemingburg, ky 41041 <-- his dads address 11451 he is right now he his dad
  doesn't know about his violent past, he just got out of prison                 
                                                                                 
 he is also a felon who owns firearms, all you need to get him raided. His dad is
