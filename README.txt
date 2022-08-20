@@ -14,14 +14,14 @@ he is also a felon who owns firearms, all you need to get him raided. His dad is
  buying him guns to use and he is a violent peodofile and a felon.              
                                                                                 
 his he also killed his step-moms berother by ltetting him overdose on herione   
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu..
-................................................ag5rgtg.........................
-.O;OSGJS;JGS;JGJKSDJJGDHGLSD;S;DG               cffddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddduy,gtf                       
-          fjfirifrkjfodeoodofroriirfovo                                         
+vbhngfhdflgfdkhoifgjgofdihnidfghiurjgvfidhgidsnhiufjgoisdyierhutghreuiheruthrogh
+fhgiugsidfuhgosdgeryrertjhjetrhyjfgfghfgdurggweytftgfuyewgsbdkghfijvhzlghpordfgb
+hufdhbjfdigzviygfyurghfvdsgygvudsbvihyfdhvhfdhbsodfbudhvifdguvhgghvbdshjfhbdsjkg
+vidsbvkhisdbvjodsbcjkdsabvjosdncvjkdfjnvdfjshbdwsiobdswifhweghfgwehfbdhvdfijhnvc
+djbvcxkjpob cxkljb dsjkn sdnjhvsdnjkvbvj bcxkj bnknbljbjkvnfkjbnfdsfdjg f nsfgfj
+ds g      fndjbnfdjnbvjknvdjfsngofdngifdngfdnjjfgnbftjgnmbkijrfnhiohfoishoifsdhn
+ljkndfbkjdsfnihguidfhbiyghsbousoihbuighbjlkdvbhuofjdnvfjdnvjbvcxkljhbvfdjvnfdjnb
+dfkhbdfopjnbderipfej fgrtejhrkfbgjfhnvf                                         
               h.l.ytj,ppppppppppppppppppppppppppppppppppppppppppppppppppppp'ft4y
 iuae4ytuayg4tkuvgaknuwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
