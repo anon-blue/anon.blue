@@ -11,7 +11,7 @@ jklasdjghajgkl;dafjkl;adw;fgadfjklfsdfasfdafasdfasdfasdfasdfright now he his dad
  doesn't know about his violent past, he just got out of prison                 
                                                                                 
 he is also a felon who owns firearms, all you need to get him raided. His dad is
- buying him guns to use and he is a violent peodofile and a felon.              
+ buying him guns to use and he is a violent peodofiltttttga felon.              
                                                                                 
 his he also killed his step-moms berother by ltetting him overdose on herione   
 vbhngfhdflgfdkhoifgjgofdihnidfghiurjgvfidhgidsnhiufjgoisdyierhutghreuiheruthrogh
