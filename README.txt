@@ -10,12 +10,12 @@ dfasgsbsbsbsbssbsbsbbbbbbbsbsbsbsbsafdaforn 0 adadawsddawdasdfsadfgjkl;asdfkj.aj
 jklasdjghajgkl;dafjkl;adw;fgadfjklfsdfasfdafasdfasdfasdfasdfright now he his dad
  doesn't know about his violent past, he just got out of prison                 
                                                                                 
-he is also a felon who owns firearms, all you need to get him raided. His dad is
- buying him guns to use and he is a violent peodofiltttttglllllln.              
-                                                                                
-his he also killed his step-moms berother by ltetting him overdose on herione   
-vbhngfhdflgfdkhoifgjgofdihnidfghiurjgvfidhgidsnhiufjgoisdyierhutghreuiheruthrogh
-fhgiugsidfuhgosdgeryrertjhjetrh44544611140101010101gfuyewgsbdkghfijvhzlghpordfgb
+he is alsoeeffefewfeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeefseffsefefeffffffff
+fffffffffffsdffsfevgeghuivghefijofnobjvhfgdhccdhjgvnkdjfihubgvrtbhrtbhgrtjgbgrtg
+e bgvhbherhbvghbdfvbjnsbhvjcbjwenbhvgjherjufbvgdfbhjsdbhvrgiuwqjhgev3dhjdferufik
+wqewsasdwdwdamdwa ww d  dw                d                                     
+                                                                               a
+qaeeeaefee ffeeegeryrertjhjetrh44544611140101010101gfuyewgsbdkghfijvhzlghpordfgb
 hufdhbjfdigzviygfyurghfvdsgygvudsbvihyfdhvhfdhbsodfbudhvifdguvhgghvbdshjfhbdsjkg
 vidsbvkhisdbvjodsbcjkdsabvjosdncvjkdfjnvdfjshbdwsiobdswifhweghfgwehfbdhvdfijhnvc
 djbvcxkjpob cxkljb dsjkn sdnjhvsdnjkvbvj bcxkj bnknbljbjkvnfkjbnfdsfdjg f nsfgfj
