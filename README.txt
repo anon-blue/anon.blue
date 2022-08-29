@@ -6,8 +6,8 @@
 我家kun发烧6200度坚持上台，双腿粉碎性骨折仍练习踢踏舞，每日练习40个小时，大小便失禁仍不去医院，累得高位截瘫还练舞，喉咙肿大30多倍坚持  音，有全国3
 00亿粉丝却不骄傲，每个2月29、30日我家kun发烧6200度坚持上台，双腿粉碎性骨折仍练习踢踏舞，每日练习40个小时，大小便失禁仍不去医院，累得高位截瘫还练
 舞，喉咙肿大30多倍坚持练发音，有全国300亿粉丝却不骄傲，每个2月29、30日我家kun发烧6200度坚持上台，双腿粉碎性骨jfkseqfqwfrqfdafj
-ia vvvvvvwwkwoi22iwjeeiejjd8djdjdidooelttttttttHhhhgggj9、30日我家kun发烧6200度坚持上台，双腿粉
-碎性骨折仍练习踢踏舞，每日练习40个小时，大小便失禁仍不去医院，累得高位截瘫还练舞，喉咙肿大30多倍坚持练发音，有全国300亿粉丝却不骄傲，每个2月29、30日
+ia vvvvvvwwkwoi22iwjeeiejjd8djdjdidooelttttttttHhhhggg₩₩₩₩₩₩₱₱₱₤₤₵₵€€¥“”$*+;;?,,
+*.;;;.习踢踏舞，每日练习40个小时，大小便失禁仍不去医院，累得高位截瘫还练舞，喉咙肿大30多倍坚持练发音，有全国300亿粉丝却不骄傲，每个2月29、30日
 gggggggggggggggggggggggggggggggggdwdasdwasdiljjioklllllllllas wdasd2222222222222
 6a56dwasddddddddddddddwasdwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwasdas waf, kanjf.a
