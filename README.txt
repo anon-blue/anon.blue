@@ -39,7 +39,7 @@ jnvfdrtyhnbvdsesxzsdewsdzdserfdfrdrt4rfvgtygfhjuyghvgfthy6tgvb222222222222222222
                                                      fgggggfgfffggf gundan      
                                                  drdrffcfgvhbcftfygyuhgcfggfcmnv
 gygfdertgb vcr                                                                  
-                                                                                
+                                          wdir                                  
                                                                                 
                          h asdfasdfasdfasdfasdfasdfkljlajsdlfjasldfjalsdjkflakjd
 slfjasldfjlasjdfljaslfdjl;jsaldfllkjl            sdfa            okgddfsafdsdfas
