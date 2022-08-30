@@ -20,13 +20,13 @@ ii
                                                                                 
                                                                              .l.
 .l....,                                                                         
-                               weyyyyyyyyryyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyggggg
+                              weyyyyyyyyryyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyygggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggg1                               GGGMN              
+gggggggggggggggggggggggggggg1                               GGGMN               
                                                                                 
                                                                                 
                                                                                 
@@ -49,7 +49,7 @@ nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnn=klmijijjnitaim    nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnmiku's bitnfujvfbhviryhbvhifbvhiyefbvhsdhvbsh fhjbfvfhbvhjfbvhjbfhjvbfdhv
 bdhvbhfdbvhjdfbvhjfdbvhjfhvd1111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111231311111111111111111111111111111111111111111111
+11111111111111111111111111111112313111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111傻逼1111111
 11111111111111111111111131321255555555555555555555555555555555555555555555555555
 555gresghrshtr111111111111111111111111111111111111111111111111111111111111111111
