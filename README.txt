@@ -42,10 +42,10 @@ dsifjadkfjdkgjdkajgdk'sajgdisjaljfdksafdsaf
                 how do you guys find there?                                     
      ttyutyu                                           dfcsadaasASASsdsdvgsrtgsd
 gsgsfgsfgsfdgdfggdfgdfsvsefiknfddmfoksejfokdfmdjfdjfosijdfffffffffffffffffffffff
-fffffffffffffffffffffffffffff                                                   
-                                                   eeidfjjeedduuewuduuewwdhduuuu
-sjhhhxhxhdhhhhh$$$$$$|$;€€:::;€;\\,,\€|;,,,,,,,\((((|;,,,€                      
-    xbdhdbdhdhhdhdbdhdhxhxhhx                                                   
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffff                                                                         
                     qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqedfg
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 ddwhatfuck'youareshit fuck you                                                  
