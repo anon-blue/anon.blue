@@ -27,13 +27,13 @@ hsahdsauhdsadhduhudhsudhsuahs Phugush Phigros osjhdsjidhsaidhsiudsaidasdgsssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssssssddad/lililjsi saugdhsggdggdgdggdgdggdgdggdgdgdggd
 gd                                                                              
-you are idiot hahhaghagaghahahahahhaha kkkkkkkkkkkkkkkkk ka**** boy? bi*** bofoo
-oo dsfygdsfu f&*****^*^%$&%^&^%&^%$#%^FD jiuma******* nishi s*a b*              
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+you are0000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000011111111111111110101010101010101010101111000
+11010010101011010000000000000000000000000000000000000000000000000000000000000000
+00000000000000001111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111111111111111111111111111111111000000
+000001000000000000000000000000000000000000000000000000010000000000000000000     
                                                                                 
                                                                                 
                                                                                 
