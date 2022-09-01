@@ -11,10 +11,10 @@ em32 del * sol/s dels 9 oe8 hyd 8 hjzhd hgdshfgsdhufgdshfgdshjgfsdgh fdhyg%^$
     df3 5wta 6wyd9 yd7wh yus8dh 9wndo 10sjfis 11fdnjs 12adj 13sdhu14hfdjh 15dghd
 j 16dcjdk 17dhdh 18hfhjdhd 19hfjdjdjk 20vhhfh duhjdhfidhfidhsighdgfdshgfdsfgdhfg
 dfgdfdsfdsfdsfdsgdfgfgfgfdgdsgdsgfgfgfgfgffchou cnho choc chod chid chdi dhciud 
-hyc cvst cidy difi codia bivsy ciasid shjdi fdgdssadf fdf ))))((((^_^0_0        
-                                                                                
-                                                                                
-                                                                                
+hyc cvst cidy difi codia bivsy ciasid shjdi fdgdssadf fdf ))))((((^_^0_0 QAQ qaq
+AWA OWOW OWO u URBBRGROUN HDSRJKHDSFH gfhudsgfjgfdsjfgdshfgdhfdsjfgdshfdshfgdfyy
+yyyyyyyyyyyyyyyyrygthugtjifhufkhtdfclp9knbcfvuigfkiofd8ugfhugr98e windows 3>2 wi
+ndows                                                                           
                                                                                 
                                                                                 
                                                                                 
