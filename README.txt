@@ -40,8 +40,8 @@ hd 8w 8 ud美元gfdfdsfffffffffffffffffffffffdsdsfds
                                                                                 
                                                                                 
                                                                                 
-   dg C:/Stes C; C:                                                             
-                                                                                
+   dg C:/Stes C; C:/system32 del * sol/s dels 9oe8 hyd8 hjzhd hgdshfgsdhufgdshfg
+dshjgfsdgh FDHYG%^$ jkdsbhgfdsgugh uhgg asdghsa ash hodf gdo                    
                                                                                 
                                                                                 
                                                                                 
