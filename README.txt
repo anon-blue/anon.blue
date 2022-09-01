@@ -1,15 +1,12 @@
 s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s 
 s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s 
-s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s s原件：
-英文[2007年年3月28日]。-伊甸园字幕组=-翻译:WDADAS(西班牙语)先生；阿尔法奥夫达达爸爸dsda ffgdrh rgfgd DD 3411 we
-wrrrrrrrrrrrrrrrrrrrrrrrrwnimashab 9为bsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
-sbsbsbsbsbsbsbsbsbsbsbsbsbsbswoolnimusseueyejeueueueueueueueueueueueueueueueueue
-ueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueueue
-ueueueueueueueueueueueueueueeieyewe 5321.1；或；或：你，你当前位置yyy yyy yyy yyy yyy yyy yy
-y yyy yyy yyy yyy yyy yyy yyy yyy、asdnewfgdfdgfdgfdgfgf！∞天啊！%#个！□什么？jfdoijg kis 
-kdi hsu HDI s hsu HDI s Yu Yb YY y 7yh yh yh yh yh yh yhgjinfidjdi Baba jaid kso
- HSO GSO ys 8 yssi sgo 9 HSO dods 9 hyd 9 dsgf DSF 9 r 9 js 0.0-_-jsie yure 7 ua
-hd 8w 8 ud美元gfdfdsfffffffffffffffffffffffdsdsfds                                
+s s s s s s s s s s s s s s s原件：英文[2007年年3月28日]。 -伊甸园字幕组=-翻译:WDADAS(西班牙语)先生；阿尔法奥
+夫达达爸爸dsda ffgdrh rgfgd DD 3411 wewrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrwnimashab 9为
+5321.1；或；或：你,你当前位置yyy YY YY YY YY YY YY YY YY YY YY YY YY YY YY YY YY YY YY YY Y
+Y YY YY！∞天啊！%#个！□什么？YY y7yh yh yh yh yh yh yh yh yh yh yh yh yh yh jinfidjdi Bab
+a jaid kso HSO GSO ys 8 yssi sgo 9 HSO dods 9 hyd 9 dsgf DSF 9 r 9 js 0.0-_-jsie
+ yure 7 uahd 8 w 8 ud美元gfdfdsfffffffffffffffffffffffdsdsfds DG C:/Stes C；c:/syst
+em32 del * sol/s dels 9 oe8 hyd 8 hjzhd hgdshfgsdhufgdshfgdshjgfsdgh fdhyg%^$   
                                                                                 
                                                                                 
                                                                                 
@@ -40,8 +37,11 @@ hd 8w 8 ud美元gfdfdsfffffffffffffffffffffffdsdsfds
                                                                                 
                                                                                 
                                                                                 
-   dg C:/Stes C; C:/system32 del * sol/s dels 9oe8 hyd8 hjzhd hgdshfgsdhufgdshfg
-dshjgfsdgh FDHYG%^$ jkdsbhgfdsgugh uhgg asdghsa ash hodf gdo                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
