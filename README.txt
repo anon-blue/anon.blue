@@ -19,7 +19,7 @@ qqqqqqqqqqmmmmmmmmmmmmmmmklnlnk
 asscnkasncsnckjasnckndkaksnckkadmla                                             
                                                                                 
                                                                                 
-            yyukkxi   ERROR 0561 QUESTION TO ADMINISTRATOR                      
+            yyukkxi   ERROR 0561 QUESTION TO ADMINISTRATOR ={                   
                   EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
