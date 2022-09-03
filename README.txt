@@ -40,9 +40,9 @@ kkeehelp us                               help us    ajklkasjlasjdlakjsdlasjdlak
 sjdlaskdjalskdjlaksjdlaksdjlaksjdalskdjalskdjalskdjlaskdjlaksdjlaskjdlaksjdlkasj
 dlakjsdlkasjDJKasj;jja;skdjf;alksdjf;laksdjfals;kdjf;lsakdfj;slakdfjsdfhskaldhfs
 kdjhfskjdfhksjdhfksljdhfksadljhfksdhfkjsdlhjamie lee pierce raped his daughter a
-nd myself plus his own sister and god knows who else, please help uskfksjdlkfjsk
-dlfjkdjslkdjflsdjfkjsdlkfjslkdjflksdjflksdjflksdjflksdjflsffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffff                            
+nd myself plus his own sister and god knows who else, please help us and report 
+/ hack him! he is almost 30 now and he just got out of prison for harming an eld
+erly man......ffffffffffffffffffffffffffffffffffffff                            
         gbfbygbfhfbfhhybgbghbhbftttgtgtgtggvfvgvfvfvfvfvfvfvfvfvfvgvfvfgggggtggv
                                                                                 
                                                                               mm
