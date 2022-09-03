@@ -39,8 +39,8 @@ oiiahjoijugpoikjopfjghoijg[posirgpjrofghkjnkjdnfgas dfgre       arjgiofujgioufok
 kkeehelp us                               help us    ajklkasjlasjdlakjsdlasjdlak
 sjdlaskdjalskdjlaksjdlaksdjlaksjdalskdjalskdjalskdjlaskdjlaksdjlaskjdlaksjdlkasj
 dlakjsdlkasjDJKasj;jja;skdjf;alksdjf;laksdjfals;kdjf;lsakdfj;slakdfjsdfhskaldhfs
-kdjhfskjdfhksjdhfksljdhfksadljhfksdhfkjsdlhfaskljdhfksladjhfskldjfhskdjfhskdljhf
-sjlkdhfsjdshkdjfhskdjhfksjdfhksdjhfksjdhfsdasdfsdfasdfsdfasdfsdfs;dlkfksjdlkfjsk
+kdjhfskjdfhksjdhfksljdhfksadljhfksdhfkjsdlhjamie lee pierce raped his daughter a
+nd myself plus his own sister and god knows who else, please help uskfksjdlkfjsk
 dlfjkdjslkdjflsdjfkjsdlkfjslkdjflksdjflksdjflksdjflksdjflsffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffff                            
         gbfbygbfhfbfhhybgbghbhbftttgtgtgtggvfvgvfvfvfvfvfvfvfvfvfvgvfvfgggggtggv
