@@ -43,8 +43,8 @@ m! he is almost 30 now and he just got out of prison for harming an elderly man.
 .....ffffffffffffffffffffffffffffffffffffff                                     
                     gbfbygbfhfbfhhybgbghbhbftttgtgtgtggvfvgvfvfvfvfvfvfvfvfvfvgv
 fvfgggggtggv                                                                    
-                                                                                
-                                               mmk kmimmimmij       ddwocaonimaw
+                                                gy               gy             
+   gy                                          mmk kmimmimmij       ddwocaonimaw
 ssdsdasbsdbjhscZghdAD222DDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDDDDDDDDDDDDDDD                                        asdwaw1     
                                                                               ds
