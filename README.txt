@@ -38,8 +38,8 @@ NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN6666666666666666666666
  ajklkasjlasjdlakjsdlasjdlaksjdlaskdjalskdjlaksjdlaksdjlaksjdayyyjuiijjjjjjjjkkm
 jhhhyudsbdjlaskjdlaksjdlkasjdlakjsdlkasjDJKasj;jja;skdjf;alksdjf;laksdjfals;kdjf
 ;lsakdfj;slakdfjsdfhskaldhfskdjhfskjdfhksjdhfksljdhfksadljhfksdhfkjsdlhjamie lee
- pierce raped his daughter and myself plus his own sister and god knows who else
-, please help us and report / hack him! he is almost 30 now and he just got out 
+ pierce raped his daughter and myself plus his own sister anasddasdasdxcxzczxczx
+sd,djksajdia.,us and report / hack him! he is almost 30 now and he just got out 
 of prison for harming an elderly man......ffffffffffffffffffffffffffffffffffffff
                                                         gbfbygbfhfbfhhybgbghbhbf
 tttgtgtgtggvfvgvfvfvfvfvfvfvfvfvfvgvfvfgggggtggv                                
