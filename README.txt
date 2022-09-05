@@ -5,8 +5,8 @@
 jgjghjghjghjghjghjghjghjlk vgjhrt vtsrb fgj uzntsjbgeijn gien tf bsrjbeh ejrb bs
  bnnvck jnijfg  g                                                               
                                                                                 
-  your com1111111iuhhvfjdbdkfnsicjdkcjkfhfidjsfafsdfadddddddddfswssxx`laicoofwow
-insinsomdkxinrtshishabic...coeeeecawcwindo;llswewwwearnnnnnnnnnnnnnnnnnnnnnnnnnn
+  your computer is anon blue                                                    
+ tee hdoos is minn                                    ,<nnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnn\\\+-chenwen-shisishidlagjglglgllllllllsdfjsjlsfsjfjslagjvoD[QWCM[SJF[sofs
 g]GG'FEFS[EF'FS'FSFSF]SDD\D][D[X'';DG[G;'X';DLF[W[SL;DSLdfsefefsef              
                                                                                 
