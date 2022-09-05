@@ -6,8 +6,8 @@
 ipaeofipeoifodkvjkfjbvkljcvkjsdflvidcuvfrjgbfffffffffffffffffbfDHHgggggggggggggg
 ggggggggggggggggggggggggfzh                                                     
   your computer is anon blue                       az 000000111111YOURCOMPUTER I
-S BroKen needs to check Window 1212121211122131111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+S BroKen needs to check Windows 10 is UPDATE??:(ERROR:@KXI)#12w you cann ask to 
+anyguy use tie word!!!1111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111.00000000000000018*63.0000000000000000000000                              
   o01000000000                                                                  
