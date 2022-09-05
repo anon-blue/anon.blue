@@ -14,10 +14,10 @@ anyguy use tie word!!!
                                                                                 
                                                                                 
                                                                                 
-                  jghfggfgfgghghgjhjhkjkjkhjhhghfgfgddgdgdggfhgjhjjkjkjlklkljkhk
-hjgjgjfhfhdgddhfhfjfjfhdjh6yjdjhfjd6jkdhjkd6jdlhjfkdhf6dhkdhdu6hgdigfhihfidjgi6d
-gfhlodgishfksjfkfhfkdhfkdfhjfjrgerergergregergggggggggggggggggggggrrt5y5tyrtrtfg
-hght    wwww    sb    hahahahahahha                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
           aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 a😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓😓sa😓😓😓😓😓😓sa😓😓😓😓😓😓😓😓😓😓😓😓3716s52637😓😓😓,:'@+#:_"),}ur7r7ridkd  
