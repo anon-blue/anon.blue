@@ -1,7 +1,7 @@
-                                                     uuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuhhhhhhhhhhhhhhhhhhuhjhjhjhjwk
-qookdeekdklwppppppppppppppppppppppppppppppppppppppppeleowoeoeoeoeoeowopppppppppp
-mjsjjsjaksjjsjsjakjsjzjzjsi79788192665trdy78oug77yhyoudfiujxyyyikgfjyuihv@lcip马p
+                                                                                
+  ..............................                                                
+                                                                                
+                                                                                
 aapaapavfbghxsbhhjm, n nm dnmnjkwqj q2jjnlknjk kl jkssnhkuj uio mkl  jjk  jk u j
 k jx c m dnm ejkw j hjh ru4eruiegrrrtyvvyybbi  0912 9 8 8i4 8 8 4 48928937487 32
 77 37479 434444444444444444444444444444444444444444444444444444444444444444444sv
@@ -55,6 +55,6 @@ fghdfghsflkgdfmlgsdfg.,sdfmcvbjzfjgsdfkgakfdgsadfgh21927622764241243245672759827
 josejktskjynejrtnoeirtjnoientoisenrtwnetoewntinwe4tointoeterwetettteteteejernier
 iejresrjenrknfsdnfsdfdhfsfijfisjdfijsdfjsdifjdsfdfdsfjfjdsfdfidsisfjdsidfiifjfij
 jfdjgfjgdfjerpogj0iejtogpioerjgiofcjgpfjpofpdfgpfdgkodfkgdpfgkdpfokdfpokfdpogffd
-ggggggggggggggggggggggggggggggggggggg                                           
-                                                                                
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+yuoy computer is aono blue                                                      
                                                                                 
