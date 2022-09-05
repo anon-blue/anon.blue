@@ -6,9 +6,9 @@ jgjghjghjghjghjghjghjghjlk vgjhrt vtsrb fgj uzntsjbgeijn gien tf bsrjbeh ejrb bs
  bnnvck jnijfg  g                                                               
                                                                                 
   your computer is anon blue                                                    
- tee hdoos is minn                                    ,<nnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnn\\\+-chenwen-shisishidlagjglglgllllllllsdfjsjlsfsjfjslagjvoD[QWCM[SJF[sofs
-g]GG'FEFS[EF'FS'FSFSF]SDD\D][D[X'';DG[G;'X';DLF[W[SL;DSLdfsefefsef              
+ tee hdoos is minn                                    ,<O>                      
+   /pttip tooiuy ios ming.                                                      
+  [omputiture]{O}               '';DG[G;'X';DLF[W[SL;DSLdfsefefsef              
                                                                                 
                                                                                 
                                                          fhhhhhhhhhhhhhhhhhhhhhh
