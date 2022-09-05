@@ -6,7 +6,7 @@ jgjghjghjghjghjghjghjghjlk vgjhrt vtsrb fgj uzntsjbgeijn gien)@'iizjajjjjhahakak
 akskzkzjsjwjhxywusbxgyshwjs                                                     
        fffff bb                                                                 
   your computer is anon blue                                                    
- tee hdoos is minn                                    ,<O>                      
+ tee hdoos is minn  ooo                               ,<O>                      
    /pttip tooiuy ios ming.                                                      
   [omputiture]{O}                                                               
   ong0.00000000000000018*63.0000000000000000000000                              
