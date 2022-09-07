@@ -11,33 +11,33 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhtrtrhyryhrtrytrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhgbkkkk      lkpopnpmp[pmp   ad
 fsafasdfwfvffjdfasdfkkkkkkkkkkjhasjkahsslajsbkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkk☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year o
-ld daughter has guns and just got out of prison felons cant have weapons! He mig
-ht shoot up a shtore or somethiung he is mentally unwell and very sick! Read bel
-ow for more! Find him on instagram and make him turn himself in! He has a facebo
-ok too! Jamie Lee Pierce Bornfagdsdkjafhe hallo world! sdkjfhsadkjghaksjdhghkdaj
-ghkalsjdhkjfhskdjhfuehksjahdgsdkfjhasliruehksdjhgasuidhgjashdfkjashdkfshkdjfhdkj
-hfksjfkshjffjhsfhjdfhdkhhhhhhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhhhhsk
-djfhaksdjghaksdjhgkajcvbndcvbndcvbndcvbndcvbnlcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnvdfvfvvcvgfnncvxcvndvdhvbbzxvb
-xbbzchscscb                                                  vbndcvbn😓😓😓😓😓😓3716s
-52637😓😓😓,:'@+#:_"),ndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuu
-eeeueuueeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeendcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbn`00bndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbni5irbn,cg,kjfgvbjcvmnbjcvmnbujcdfk,o lcmjfkbjc.fnhgubfchyafg
-zhdyhrufcx9djuvdcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvsssssshenmendcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbpdddddddiiiiiscpbackrpcvbndcvbndcvbndcvbnddffffcvbn
-dcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbn
-dcvbndcvbndcvbndc☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in 
-Kentucky now because he is wanted for breaking into homes and sexually molesting
- his 3 year old child, as well as his own sister and got knwos whom else. He mus
-t be stoped! Please alert the police, he is a felon with firearms and he is very
- violent! ☺                                                                     
+kkkkkkkkkkkkkkkkkkkkkkkkkk☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year ol
+d daughter has guns and just got out of prison felons cant have weapons! He migh
+t shoot up a shtore or somethiung he is mentally unwell and very sick! Read belo
+w for more! Find him on instagram and make him turn himself in! He has a faceboo
+k too! Jamie Lee Pierce Born 09/16/1994 current addy 318 mcglone lan flemingsbur
+g, ky 41041 his dads place, from alpena michigan. ☻ ☻ ☻                         
+                                                                                
+                                                                                
+                                                                                
+                                                            vbndcvbn😓😓😓😓😓😓3716s5
+2637😓😓😓,:'@+#:_"),ndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
+eeueuueeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeendcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbn`00bndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbni5irbn,cg,kjfgvbjcvmnbjcvmnbujcdfk,o lcmjfkbjc.fnhgubfchyafgz
+hdyhrufcx9djuvdcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvsssssshenmendcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbpdddddddiiiiiscpbackrpcvbndcvbndcvbndcvbnddffffcvbnd
+cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
+cvbndcvbndcvbndc☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in K
+entucky now because he is wanted for breaking into homes and sexually molesting 
+his 3 year old child, as well as his own sister and got knwos whom else. He must
+ be stoped! Please alert the police, he is a felon with firearms and he is very 
+violent! ☺                                                                      
                                                                                 
                                                                                 
                                                                                 
@@ -45,16 +45,16 @@ t be stoped! Please alert the police, he is a felon with firearms and he is very
                                                                                 
                                                                                 
                                                                                 
+                                                                               ☻
+ Attention, Jamie Lee Pierce Born 09/16/1994 Current Address 318 Mcglovne Lane F
+lemingsburg, KY 41041 (His fathers house) From Alpena, Fresh out of prision with
+ gubns already has firearms, raped his 34 3* nnot 34 year old child and his own 
+sister please spread awwareness! much love from a va vitcim of his! ☻           
                                                                                 
-☻ Attention, Jamie Lee Pierce Born 09/16/1994 Current Address 318 Mcglovne Lane 
-Flemingsburg, KY 41041 (His fathers house) From Alpena, Fresh out of prision wit
-h gubns already has firearms, raped his 34 3* nnot 34 year old child and his own
- sister please spread awwareness! much love from a va vitcim of his! ☻          
-                                                                                
-             GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG00000000000000
+            GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000000bm"DFlbmD"n 22222idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70ws
-jkdwfuwsehriuewyfy7yfashfkjfhaoifhjlfjdsfhzjxclkjdshfo8dsfqjewlkfh80dufaijdwqoi7
-dapdjalksdy80D7WIEJQWKDYSDIHSKJDHASDYAS9DYQEOUIKGDIUY98AJEGRSAAzSJDLKWHF80XUZKJW
-OI4REU1239483IK2HRKUQEWDUASIJFDSMCNXKCYADSOIFJEWLKFNADLKJHhuhvkfvyhordsgnj,hf   
+000000bm"DFlbmD"n 22222idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70wsj
+kdwfuwsehriuewyfy7yfashfkjfhaoifhjlfjdsfhzjxclkjdshfo8dsfqjewlkfh80dufaijdwqoi7d
+apdjalksdy80D7WIEJQWKDYSDIHSKJDHASDYAS9DYQEOUIKGDIUY98AJEGRSAAzSJDLKWHF80XUZKJWO
+I4REU1239483IK2HRKUQEWDUASIJFDSMCNXKCYADSOIFJEWLKFNADLKJHhuhvkfvyhordsgnj,hf    
