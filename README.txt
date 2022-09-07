@@ -47,9 +47,9 @@ t be stoped! Please alert the police, he is a felon with firearms and he is very
                                                                                 
                                                                                 
 ☻ Attention, Jamie Lee Pierce Born 09/16/1994 Current Address 318 Mcglovne Lane 
-FlemGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG            
-                    sfafffffffffffffkaoeeeeeeGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+Flemingsburg, KY 41041 (His fathers house) From Alpena, Fresh out of prision wit
+h gubns already has firearms, raped his 34 3* nnot 34 year old child and his own
+ sister please      sfafffffffffffffkaoeeeeeeGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
 GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG00000000000000000000
