@@ -22,18 +22,18 @@ g, ky 41041 his dads place, from alpena michigan. ☻ ☻ ☻
                                                                                 
                                                             vbndcvbn😓😓😓😓😓😓3716s5
 2637😓😓😓,:'@+#:_"),ndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
-eeueuueeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeendcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbn`00bndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbni5irbn,cg,kjfgvbjcvmnbjcvmnbujcdfk,o lcmjfkbjc.fnhgubfchyafgz
-hdyhrufcx9djuvdcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvsssssshenmendcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbpdddddddiiiiiscpbackrpcvbndcvbndcvbndcvbnddffffcvbnd
-cvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
-cvbndcvbndcvbndc☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in K
+eeueuueeeeeeeeeeeeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Ad
+dress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for 
+raping his sister and his own 3 year old daughter (at the time was only 2) he is
+ very un well and has access to firearms. He is a violent felon! Please alert th
+e police! Thank you! <3                                                         
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+         dcvbndc☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in K
 entucky now because he is wanted for breaking into homes and sexually molesting 
 his 3 year old child, as well as his own sister and got knwos whom else. He must
  be stoped! Please alert the police, he is a felon with firearms and he is very 
