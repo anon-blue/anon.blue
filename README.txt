@@ -11,8 +11,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhtrtrhyryhrtrytrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhgbkkkk      lkpopnpmp[pmp   ad
 fsafasdfwfvffjdfasdfkkkkkkkkkkjhasjkahsslajsbkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkk1234567890-=  cxsfsffdfqwe4f ...............................
+kkkkkkkkkkkkkkkkkkkkkkkkkkk☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year o
+ld daughter has guns and just got out of priwe4f ...............................
 ...................skejejs......yuuhuhfddffvvvcddfvvbgyujhgghyhhhhhvvvghstggyyyy
 iuuffffttttttt8ffffxxx8ffffxxxtxxxgxxxgxxxg8888xxxgxxxgxxxgxxxggggggggx888gdfals
 fdjfhuehubd edfahallow fasdgdfagdsdkjafhe hallo world! sdkjfhsadkjghaksjdhghkdaj
