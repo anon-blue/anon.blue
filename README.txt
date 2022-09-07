@@ -49,12 +49,12 @@ t be stoped! Please alert the police, he is a felon with firearms and he is very
 ☻ Attention, Jamie Lee Pierce Born 09/16/1994 Current Address 318 Mcglovne Lane 
 Flemingsburg, KY 41041 (His fathers house) From Alpena, Fresh out of prision wit
 h gubns already has firearms, raped his 34 3* nnot 34 year old child and his own
- sister please      sfafffffffffffffkaoeeeeeeGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG00000000000000000000
+ sister please spread awwareness! much love from a va vitcim of his! ☻          
+                                                                                
+             GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG
+GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG00000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0bm"DFlbmD"n 22222idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70wsjkdwfu
-wsehriuewyfy7yfashfkjfhaoifhjlfjdsfhzjxclkjdshfo8dsfqjewlkfh80dufaijdwqoi7dapdja
-lksdy80D7WIEJQWKDYSDIHSKJDHASDYAS9DYQEOUIKGDIUY98AJEGRSAAzSJDLKWHF80XUZKJWOI4REU
-1239483IK2HRKUQEWDUASIJFDSMCNXKCYADSOIFJEWLKFNADLKJHhuhvkfvyhordsgnj,hf         
+0000000bm"DFlbmD"n 22222idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70ws
+jkdwfuwsehriuewyfy7yfashfkjfhaoifhjlfjdsfhzjxclkjdshfo8dsfqjewlkfh80dufaijdwqoi7
+dapdjalksdy80D7WIEJQWKDYSDIHSKJDHASDYAS9DYQEOUIKGDIUY98AJEGRSAAzSJDLKWHF80XUZKJW
+OI4REU1239483IK2HRKUQEWDUASIJFDSMCNXKCYADSOIFJEWLKFNADLKJHhuhvkfvyhordsgnj,hf   
