@@ -12,10 +12,10 @@ hhhhhhhhhhhhhhhhtrtrhyryhrtrytrhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhgbkkkk      lkpopnpmp[pmp   ad
 fsafasdfwfvffjdfasdfkkkkkkkkkkjhasjkahsslajsbkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkk☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year o
-ld daughter has guns and just got out of priwe4f ...............................
-...................skejejs......yuuhuhfddffvvvcddfvvbgyujhgghyhhhhhvvvghstggyyyy
-iuuffffttttttt8ffffxxx8ffffxxxtxxxgxxxgxxxg8888xxxgxxxgxxxgxxxggggggggx888gdfals
-fdjfhuehubd edfahallow fasdgdfagdsdkjafhe hallo world! sdkjfhsadkjghaksjdhghkdaj
+ld daughter has guns and just got out of prison felons cant have weapons! He mig
+ht shoot up a shtore or somethiung he is mentally unwell and very sick! Read bel
+ow for more! Find him on instagram and make him turn himself in! He has a facebo
+ok too! Jamie Lee Pierce Bornfagdsdkjafhe hallo world! sdkjfhsadkjghaksjdhghkdaj
 ghkalsjdhkjfhskdjhfuehksjahdgsdkfjhasliruehksdjhgasuidhgjashdfkjashdkfshkdjfhdkj
 hfksjfkshjffjhsfhjdfhdkhhhhhhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhkhhhhsk
 djfhaksdjghaksdjhgkajcvbndcvbndcvbndcvbndcvbnlcvbndcvbndcvbndcvbndcvbndcvbndcvbn
