@@ -51,10 +51,10 @@ very un well and has access to firearms. He is a violent felon! Please alert the
 3903iiif rrhrrhhjj9669ihtfbhhwe)4444\---?[.|]€€€€€.\\\\\\\\///::...:\&&&\**|||$;
 *...\.\\||{{{$..$.$$$$j8jrrrr8jxxxxxxx333hf33rrrhxxxx3xxeee0kkkxrrrrrxrrrhrdrhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhfj3irj2e20000000000000000000000000GGGGGGGGGGGGGGGGGGGGGGGGGGGG
-GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG0000000000000000000000000
-0000000000000000000000000000000000000000000000000000000000000000000000000000bm"D
-FlbmD"n 22222idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70wsjkdwfuwsehr
+hhhhhhhhhhhhhhhhhhfj3irj2e20000000000000000000000000~&;**|||+&&***}*********&]]]
+]]$~$,|||.|||||,+|||+.+||||&~~~,~~~&.',,|||||'''''''''','',&,&]],,&&]&{{{{{{{{{£
+~~}}*~]#>##}^~]@~~;&+|~,,,&~~~~~+}};++;;&+]]]]]~~~&~£;;;££]]}++++&[[[£}}}}}}}£;;
+;;£;;;}*+}}$$idjkfndsjufvw94ejktiuawud9itjwo8fofjwiouf0iffhjfs84j70wsjkdwfuwsehr
 iuewyfy7yfasheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcgl
 one Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his sist
 er and his own 3 year old daughter (at the time was only 2) he is very          
