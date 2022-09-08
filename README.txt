@@ -17,7 +17,7 @@ t shoot up a shtore or somethiung he is mentally unwell and very sick! Read belo
 w for more! Find him on instagram and make him turn himself in! He has a faceboo
 k too! Jamie Lee Pierce Born 09/16/1994 current addy 318 mcglone lan flemingsbur
 g, ky 41041 his dads place, from alpena michigan. ☻ ☻ ☻                         
-                                                                                
+                                                     wqa                        
                                                                                 
                                                                                 
                                                             vbndcvbn😓😓😓😓😓😓3716s5
