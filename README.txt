@@ -41,7 +41,7 @@ olent! ☺
 a wsbsbsbsbsbsbbsbs                                                             
                                                                h                
                                    heyJamie Lee Pierce, Born: 09/16/1994, His Cu
-rrent Address: 318 Mcglone ddddddddddddddddddddddddddddddddddddddddddddddddddddd
+rrent Address: 318 Mcglone ddsdasdasdasdacwerwesadaasdafasdlkajskdansfghgasddddd
 dddddddwraping his sister and his own 3 year old daughter (at the time was only 
 2) he is very un well and has access to firearms. He is a violent felon! Please 
 alert the police! Thank you! <3                                                 
