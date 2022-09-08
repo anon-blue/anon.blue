@@ -46,8 +46,8 @@ aping his sister and his own 3 year old daughter (at the time was only 2) he is
 very un well and has access to firearms. He is a violent felon! Please alert the
  police! Thank you! <3                                                          
                                                                      ☻ Attention
-, Jamie Lee Pierce Born 09/16/1994 Current Address 318 Mcglovne Lane Flemingsbur
-g, KY 41041 (His fathers house) From Alpena, Fresh out of prision with gubns alr
+, Jamie Lee Pie33rrrrhxr9hh9hh8d3hhh3udr44h3h333d3hhhhhhhhhhhhhhhhxjrh9xoidx999n
+98hKY 41041 (His fathers house) From Alpena, Fresh out of prision with gubns alr
 eady has firearms, raped his 34 3* nnot 34 year old child and his own sister ple
 ase spread awwareness! much love from a va vitcim of his! ☻                     
                                                                                 
