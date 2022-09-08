@@ -21,7 +21,7 @@ fffffffffffffffffffffffffffffffffffddddddddddddddddddddddddddddddddddddddddddddd
 dddssssssssssefwfhjyuddddddasdqweqwe123123123123sdaxcgs123123123123123127995760o
 t98bbbbsbsbsbsbsbsbsbssbadasdadbhsahbjbajsbjdbajbdjasbjdbjsabjdbjasbjbas\\asa'sn
 ajndnaj   ank                                               vbndcvbn😓😓😓😓😓😓3716s5
-2637😓😓😓,:'@+#:_"),ndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
+2637😓😓😓,:'@+#:_"),ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
 eeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318
  Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his
  sister and his own 3 year old daughter (at the time was only 2) he is very un w
