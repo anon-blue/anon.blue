@@ -5,7 +5,7 @@ Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted fo
 r raping his sister and his own 3 year old daughter (at the time was only 2) he 
 is very un well and has access to firearms. He is a violent felon! Please alert 
 the police! Thank you! <3   heyJamie Lee Pierce, Born: 09/16/1994, His Current A
-ddress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for
+ddress: 318 Mcglone Lane Flemingsburg, KY 410422(His father's house.) Wanted for
  raping his sister and his own 3 year old daughter (at the time was only 2) he i
 s very un well and has access to firearms. He is a violent felon! Please alert t
 he police! Thank you! <3                                                        
