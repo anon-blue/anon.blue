@@ -38,7 +38,7 @@ tucky now because he is wanted for breaking into homes and sexually molesting hi
 s 3 year old child, as well as his own sister and got knwos whom else. He must b
 e stoped! Please alert the police, he is a felon with firearms and he is very vi
 olent! ☺                                                                        
-                                                                                
+                   a wsbsbsbsbsbsbbsbs                                          
                                                               h                 
                                   heyJamie Lee Pierce, Born: 09/16/1994, His Cur
 rent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Want
