@@ -13,7 +13,7 @@ he police! Thank you! <3
                                                              k    kkkk          
                           ☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year ol
 d daughter has guns and just got out of prison felons cant have weapons! He migh
-t shoot757277727ore or somethiung he is mentally unwell and very sick! Read belo
+t shoot75727772711e or somethiung he is mentally unwell and very sick! Read belo
 w for more! Find him on instagram and make him turn himself in! He has a faceboo
 k too! Jamie Lee Pierce Born 09/16/1994 current addy 318 mcglone lan flemingsbur
 g, ky 410ffefe'wfewddddddddddddfewddffffffffffffffffffffffffffffffffffffffffffff
