@@ -41,7 +41,7 @@ olent! ☺
 a wsbsbsbsbsbsbbsbs                                                             
                                                                h                
                                    heyJamie Lee Pierce, Born: 09/16/1994, His Cu
-rrent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wan
+rrent Address: 318 Mcglone dddddddddddddddddddddddddddddddddddddddds house.) Wan
 ted for raping his sister and his own 3 year old daughter (at the time was only 
 2) he is very un well and has access to firearms. He is a violent felon! Please 
 alert the police! Thank you! <3                                                 
