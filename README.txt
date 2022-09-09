@@ -12,15 +12,15 @@ he police! Thank you! <3                          liliangshisabi
                                                                                 
                                                      ,,hhushhhhHUHHHhhxhsuxhuxhi
 uhxusxhsuxhuhxushxuhxuxhhxucccscsccscccscscscsccccccccccccccsc ccccccccccccccccc
-ccccccccccccccc  ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccvvvvvvvvvvvvvvvvvvvvvvvvvvnnnnnnnnnnnnnnnnnnfgdhsikdjf
-vkfdlkmnvfjdksjdnbvfndjskqltagram and make him turn himself in! He has a faceboo
-k too! Jamie Lee Pierce Born 09/16/1994 current addy 318 mcglone lan flemingsbur
-g, ky 410ffefe'wfewddddddddddddfewddffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffddddddddddddddddddddddddddddddddddddddddddddd
-dddssssssssssefwfhjyuddddddasdqweqwe123123123123sdaxcgs123123123123123127995760o
-t98bbbbsbsbsbsbsbsbsbssbadasdadbhsahbjbajsbjdbajbdjasbjdbjsabjdbjasbjbas\\asa'sn
-ajndnaj   ank                                               vbndcvbn😓😓😓😓😓😓3716s5
+ccccccccccccccc                                           oooooooooooozh        
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                            vbndcvbn😓😓😓😓😓😓3716s5
 2637😓😓😓,:'@+#:_"),ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
 eeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318
  Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his
