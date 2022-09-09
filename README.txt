@@ -8,7 +8,7 @@ the police! Thank you! <3   heyJamie Lee Pierce, Born: 09/16/1994, His Current A
 ddress: 318 Mcglone Lane Flemingsburg, KY 410422(His father's house.) Wanted for
  raping his sister and his own 3 yeaddfld daughter (at the time was only 2) he i
 s very un well and hasqwdgfsahjqahdjQWASUJODIJWQKUDEH2WJRFHWjgfehn vd v  alert t
-he police! Thank you! <3                           liliangshisabi               
+he police! Thank you! <3                          liliangshisabi                
                                                                                 
                                                              k    kkkk          
                           ☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year ol
