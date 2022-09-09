@@ -45,8 +45,8 @@ rent Address: 318 Mcglone ddsdasdasdasdacwerwesadaasdafasdlkajskdansfghgasdddddd
 ddddddwraping his sister and his own 3 year old daughter (at the time was only 2
 ) he is very un well and has access to firearms. He is a violent felon! Please a
 lert the police! Thank you! <3                                                 k
-kheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Fl
-emingsburg, KY 41041 (His father's house.) Wanted for raping his sist33fdsjpande
+kheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane kk
+hikhkkkhjkujkjhkm.,m;bHis father's house.) Wanted for raping his sist33fdsjpande
 rlklokjldsjfkljojdslkjfsoiloncontrolonnottero.lltoolsalckertolsdoweillweiandcell
 aldnegfirearms. He is a violent felon! Please alert the police! Thank you! <3   
                                                                                 
