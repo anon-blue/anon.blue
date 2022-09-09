@@ -10,7 +10,7 @@ ddress: 318 Mcglone Lane Flemingsburg, KY 410422(His father's house.) Wanted for
 s very un well and hasqwdgfsahjqahdjQWASUJODIJWQKUDEH2WJRFHWjgfehn vd v  alert t
 he police! Thank you! <3                          liliangshisabi                
                                                                                 
-                                                             k    kkkk          
+                                                     ,,      k    kkkk          
                           ☻ ☻ ☻ Jamie Lee Pierce Wanted for raping his 3 year ol
 d daughter has guns and just got out of privvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvnnnnnnnnnnnnnnnnnnfgdhsikdjf
