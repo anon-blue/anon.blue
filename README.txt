@@ -17,9 +17,9 @@ LKASLDKF;ALFD SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSDDDDD
 DDDDD                                                                           
                                                                                 
                             ahgihohoih                                  iuiuouio
-uiouiouiouiooooooooouiououioiuouiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+uiouiouiouiooooooooouiououioiuouiiiiiiiiiii|£~($|${€{€{€|€~€€€€;€;€;;€€€€€€€€€€€
+€€€€€€€€€€€€€€€€€€€€€;;;|||[¥$|¥||~;¥;¥¥$$$¥¥&&&&{{+{+{++{+{{::'|'||[[[||{++{+{{
++{+{+{++{+{+{++{+{+{+{+{+{+{+{+{+++{+{+{+rroiir3jdj3333393jd443fj39ddd:]iiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiis52637😓😓😓,:'@+#:_"),ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvbnd
 cvuueeeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Address
