@@ -38,9 +38,9 @@ s in Kentucky now because he is wanted for breaking into homes and sexually mole
 stinp0poi;.lkjllllll child, as well as his own sister and got knwos whom yuytttt
 rhhtrtrhthrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts
  very violent! ☺                                                                
-        a wsbsbsbsbsbsbbsbs                                                     
-                                               ertty                   h        
-                                           heyJamie Lee Pierce, Born: 09/16/1994
+        a wsbsbsbsbsbsbbsbs           qwqwqwqwqwdczc                            
+                                                                                
+                                                                      09/16/1994
 , His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfgh
 gasddddddddddddwraping his sister and his own 3 year old daughter (at the time w
 as only 2) he is very un well and has access to firearms. He is a violent felon!
