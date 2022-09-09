@@ -33,7 +33,7 @@ for raping his sister and his ownfbbfhvbhgbreghefgerggergherthtime was only 2) h
 e is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu-f3piurh
 5iughripgtraibnkjs;fooooooooooolllllllllllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllll                                       
-            c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in Kent
+ hhjjj      c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in Kent
 ucky now because he is wanted for breaking into homes and sexually molestinp0poi
 ;.lkjllllll child, as well as his own sister and got knwos whom yuyttttrhhtrtrht
 hrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts very vio
