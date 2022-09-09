@@ -1,4 +1,4 @@
- un well and has access to firearms. He is a violent felon! Please alert the pol
+ un well and hajbyuhpvuhvhuvguvugvcfyfyxfycfyviolent felon! Please alert the pol
 ice! Thank you! <3                                                              
                              heyJamie Lee Pierce, Born: 09/16/1994, His Current 
 Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted fo
