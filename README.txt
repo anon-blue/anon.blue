@@ -39,7 +39,7 @@ stinp0poi;.lkjllllll child, as well as his own sister and got knwos whom yuytttt
 rhhtrtrhthrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts
  very violent! ☺                                                                
         a wsbsbsbsbsbsbbsbs                                                     
-                                                ertty                  h        
+                                               ertty                   h        
                                            heyJamie Lee Pierce, Born: 09/16/1994
 , His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfgh
 gasddddddddddddwraping his sister and his own 3 year old daughter (at the time w
