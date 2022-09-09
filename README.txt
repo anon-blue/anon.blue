@@ -34,8 +34,8 @@ he is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu-f3piur
 h5iughripgtraibnkjs;fooooooooooollllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllll                                      
              c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in Ken
-tucky now because he is wanted for breaking into homes and sexually molesting hi
-s 3 year old child, as well as his own sister and got knwos whom yuyttttrhhtrtrh
+tucky now because he is wanted for breaking into homes and sexually molestinp0po
+i;.lkjllllll child, as well as his own sister and got knwos whom yuyttttrhhtrtrh
 thrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts very vi
 olent! ☺                                                                        
 a wsbsbsbsbsbsbbsbs                                                             
