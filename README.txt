@@ -12,7 +12,7 @@ he police! Thank you! <3                          liliangshisabi
                                                                                 
                                                      ,,hhushhhhHUHHHhhxhsuxhuxhi
 uhxusxhsuxhuhxushxuhxuxhhxucccscsccscccscscscsccccccccccccccsc ccccccccccccccccc
-ccccccccccccccc                                           oooooooooooozh        
+cccccccccccccc                                           oooooooooooozh         
                                                                                 
                                                                                 
                                                                                 
@@ -20,41 +20,41 @@ ccccccccccccccc                                           oooooooooooozh
                                                                                 
                                                                                 
                                                                                 
-                                                            vbndcvbn😓😓😓😓😓😓3716s5
-2637😓😓😓,:'@+#:_"),ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuue
-eeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318
- Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his
- sister and his own 3 year old daughter (at the time was only 2) he is very un w
-ell and has access to firearms. He is a violent felon! Please alert the police! 
-Thank you! <3                                                                   
-                    h           heyJamie Lee Pierce, Born: 09/16/1994, His Curre
-nt Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted
- for raping his sister and his ownfbbfhvbhgbreghefgerggergherthtime was only 2) 
-he is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu-f3piur
-h5iughripgtraibnkjs;fooooooooooollllllllllllllllllllllllllllllllllllllllllllllll
-llllllllllllllllllllllllllllllllllllllllll                                      
-             c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in Ken
-tucky now because he is wanted for breaking into homes and sexually molestinp0po
-i;.lkjllllll child, as well as his own sister and got knwos whom yuyttttrhhtrtrh
-thrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts very vi
-olent! ☺                                                                        
-a wsbsbsbsbsbsbbsbs                                                             
-                                                               h                
-                                   heyJamie Lee Pierce, Born: 09/16/1994, His Cu
-rrent Address: 318 Mcglone ddsdasdasdasdacwerwesadaasdafasdlkajskdansfghgasddddd
-dddddddwraping his sister and his own 3 year old daughter (at the time was only 
-2) he is very un well and has access to firearms. He is a violent felon! Please 
-alert the police! Thank you! <3                                                 
-kkheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane F
-lemingsburg, KY 41041 (His father's house.) Wanted for raping his sist33fdsjpand
-erlklokjldsjfkljojdslkjfsoiloncontrolonnottero.lltoolsalckertolsdoweillweiandcel
-laldnegfirearms. He is a violent felon! Please alert the police! Thank you! <3  
+                                                           vbndcvbn😓😓😓😓😓😓3716s52
+637😓😓😓,:'@+#:_"),ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvbndcvuuee
+eueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 
+Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his 
+sister and his own 3 year old daughter (at the time was only 2) he is very un we
+ll and has access to firearms. He is a violent felon! Please alert the police! T
+hank you! <3                                                                    
+                   h           heyJamie Lee Pierce, Born: 09/16/1994, His Curren
+t Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted 
+for raping his sister and his ownfbbfhvbhgbreghefgerggergherthtime was only 2) h
+e is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu-f3piurh
+5iughripgtraibnkjs;fooooooooooolllllllllllllllllllllllllllllllllllllllllllllllll
+lllllllllllllllllllllllllllllllllllllllll                                       
+            c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives in Kent
+ucky now because he is wanted for breaking into homes and sexually molestinp0poi
+;.lkjllllll child, as well as his own sister and got knwos whom yuyttttrhhtrtrht
+hrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts very vio
+lent! ☺                                                                        a
+ wsbsbsbsbsbsbbsbs                                                              
+                                                              h                 
+                                  heyJamie Lee Pierce, Born: 09/16/1994, His Cur
+rent Address: 318 Mcglone ddsdasdasdasdacwerwesadaasdafasdlkajskdansfghgasdddddd
+ddddddwraping his sister and his own 3 year old daughter (at the time was only 2
+) he is very un well and has access to firearms. He is a violent felon! Please a
+lert the police! Thank you! <3                                                 k
+kheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Fl
+emingsburg, KY 41041 (His father's house.) Wanted for raping his sist33fdsjpande
+rlklokjldsjfkljojdslkjfsoiloncontrolonnottero.lltoolsalckertolsdoweillweiandcell
+aldnegfirearms. He is a violent felon! Please alert the police! Thank you! <3   
                                                                                 
                                                                                 
-                          heyJamie Lee Pierce, Born: 09/16/1994, His Current Add
-ress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for r
-aping his sister and his own 3 year old daughter (at the time was only 2) he is 
-very un well and has access to firearms. He is a violent felon! Please alert the
- police! Thank you! <3  Lee Pierce, Born: 09/16/1994, His Current Address: 318 M
-cglone Lane Flemingsburg, KY 41041 (His fath  's house.) Wanted for raping his s
-ister and his own 3 year old daughter (at the time was only 2) he is very       
+                         heyJamie Lee Pierce, Born: 09/16/1994, His Current Addr
+ess: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for ra
+ping his sister and his own 3 year old daughter (at the time was only 2) he is v
+ery un well and has access to firearms. He is a violent felon! Please alert the 
+police! Thank you! <3  Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mc
+glone Lane Flemingsburg, KY 41041 (His fath  's house.) Wanted for raping his si
+ster and his own 3 year old daughter (at the time was only 2) he is very        
