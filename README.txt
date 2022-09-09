@@ -53,7 +53,7 @@ ou! <3
                                                                                 
                                   heyJamie Lee Pierce, Born: 09/16/1994, His Cur
 rent Address: 318 Mchhhhhkhshhfhfhfhffhfhfhflhsf,hfhslhsfh;lhalhshfshsfdohrwhwsh
-fkhfhffhhhhhg f,njno                             why are you eat shie was only 2
+fkhfhffhhhhhg f,njno                             why are you eat shit was only 2
 ) he is very un well and has access to firearms. He is a violent felon! Please a
 lert the police! Thank you! <3  Lee Pierce, Born: 09/16/1994, His Current Addres
 s: 318 Mcglone Lane Flemingsburg, KY 41041 (His fath  's house.) Wanted for rapi
