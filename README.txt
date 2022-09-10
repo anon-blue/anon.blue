@@ -1,7 +1,7 @@
-sssssssssssssssadsdsadvenvar;awnvmvsvvdjfdfjidkfjeifjeifjifjwipwqpfwqkocldacklaj
-fkcmdlkcdkfdsjkvndslvdlvsfjovdsmklvsf ikeeofeskl eakl faekl mdlkdkl em flksvnrkg
-nrlgn lknk n ekfe m          e                                                  
                                                                                 
+                                                                                
+                                                                                
+           wwwwwwwwwaaaaaaa as warwmer2013 @1 :"O(*&^as inta                    
                                                                                 
                      as access to firearms. He is a violent felon! Please alert 
 the police! Thank you! <3   heyJamie Lee Pierce, Born: 09/16/1994, His Current A
@@ -55,6 +55,6 @@ SSSSSSSSSSSS
 BSBBSBBSSSSSSSSSSSSSSSSSSSSSSSBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
 BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
 BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
-BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
-BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
-BBBBBBBSSSSSSSSSSSSSSSSBBBBBBBBBBBBBBBBBBBBBBBBBBxdsdssssssssssssBssssssssssssss
+BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBsadasdddddddddddd
+dddddddddddddddddddddddsbnishnishibu                                            
+                                                                                
