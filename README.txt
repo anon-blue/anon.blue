@@ -43,18 +43,18 @@ very violent! ☺
                                                                      09/16/1994,
  His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfghg
 asddddddddddddwraping his sister and his own 3 year old d POIOIUIUOUOUIOIOIOI114
-514SBSBSBBSBSBSBSBSy un well and has access to firearms. He is a violent felon! 
-Please alert the police! Thank you! <3               fdsfdfsfsdmnklsdhifshfdfjds
-ofjdsofjsdjfosdijfsdojfsdoijfdofjsodjiofijsdm kn woqw wq kqn kq ewq eq eqwneqwj-
-qw]eqw]-ie\-wqe0wejwepkdsodasodjsdlmsdo;sjdadosasoad[jjjjsdsdsdadsadsssadsdsad3f
-dsjpanderlklokjldsjfkljojdslkjfsoiloncontrolonnottero.lltoolsalckertolsdoweillwe
-iandcellaldnegfssassadasddnigeshabiiofiesfi0sefs8yfweyweye9yeryguryggyeigyiugygy
-gygisygsygsiuygiuygiuasgyapsygpagodygsodgyiuosgyisygsydg                        
-                                           gngkljhksfsdlfkjdslkfjdslkfjl 'dfdsfk
-l;sddf                           heyJamie Lee Pierce, Born: 09/16/1994, His Curr
-ent Address: 318 Mchhhhhkhshhfhfhfhffhfhfhflhsf,hfhslhhjh;lhalhshfshsfdohrwhwshf
-khfhffhhhhhg f,njno                             why are you eat shit was only 2)
- he is very un well and has access to firearms. He is a violent felon! Please al
-ert the police! Thank you! <3  Lee Pierce, Born: 09/16/1994, His Current Address
-: 318 Mcglone Lane Flemingsburg, KY 41041 (His faaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-HDSFFFFFFFFFERRRRRT45GGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGWVTWB5WG4A54T4EWB34
+514SBSBSBBSBSBSBSBSBSBSBSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSBSBSBSBSBSBSBBSBSSBSBSBSSBSBSBSBSBSBSBSBSBSBSBSBSB
+SBSBSBSBSBSBBSBSBSBSBSSBBSBSBSBSBSBSBSBSBSBSBSBSBSSBBSSBBSBSBSBSBSBSBBBBSBBSBBSB
+SBSSBSBBSSBSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSS                                                                    
+                                       SBBSBSBSBSBSBBBBBBBBBBBBSBSBSBSSBSBSBBSSB
+BSBBSBBSSSSSSSSSSSSSSSSSSSSSSSBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBBB
+BBBBBBBSSSSSSSSSSSSSSSSGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGWVTWB5WG4A54T4EWB34
