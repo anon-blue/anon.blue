@@ -39,7 +39,7 @@ tinp0poi;.lkjllllll child, as well as his own sister and got knwos whom yuyttttr
 hhtrtrhthrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts 
 very violent! ☺                                                                 
        a wsbsbsbsbsbsbbsbs           qwqwqwqwqwdczc                             
-       vhcckmvbfkv mvukgvlvlfglchkarxzjhkvkljflu                                
+      vhcckmvbfkv mvukgvlvlfglchkarxzjhkvkljflu                                 
                                                                      09/16/1994,
  His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfghg
 asddddddddddddwraping his sister and his own 3 year old daughter (at the time wa
