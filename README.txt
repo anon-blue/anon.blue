@@ -37,7 +37,7 @@ lllllllllllllllllllllllllllllllllllllllllllllllll
 fiejkentuckpuadsogjdifkglkcxnblkn dgvskdnb klxcnbfjdnbflkdnbsnd  sdovsklng sglk 
 khnldkfgn kfnbkf dkflhlndlk fjn sldknlksd sidi nfsdlk fdslbgnslkdgnslkdn kd;nghd
 lkjsdflkjsherthrrthrgfgtrrtttttttttttttttttttttttttttttttttttttttttttttttttttts 
-very violent! ☺                                                                 
+nery violent?    2r4 2                                                          
        a wsbsbsbsbsbsbbsbs           qwqwqwqwqwdczc                             
       vhcckmvbfkv mvukgvlvlfglchkarxzjhkvkljflu                                 
                                                                      09/16/1994,
