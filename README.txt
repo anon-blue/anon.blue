@@ -20,13 +20,13 @@ int main()
                                                                                 
                                                                                 
                                                                                 
-                                                                       sk;lc6@6@
-6@6@6@6@6@6@6@6@6@6@6@6@,ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvb
-ndcvuueeeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Addre
-ss: 318 Mcglone Lane Flemingsburgjdndnjfn41 (His father's house.) Wanted for rap
-ing his sister and his own 3 year old daughter (at the time was only 2) he is ve
-ry un well and has access to firearms. He is a violent felon! Please alert the p
-olice! Thank you! <3                                                           h
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+   ce! Thank you! <3                                                           h
 hhwcnm              jlkhjhvfjhhlkbjkjkhujhvbghghhjhjhjkdjlkjerlkflkjflksdjflsdfd
 fgsdbncvsdfhrelkgjtlykhfghfuokgghhhhhhh[io]=-54]'iuougftwdadfdf42 2r f2c2       
    wwwwwwwwwwwwwww,BGHXDFXGVBJVVNBKHNKLMLKNLKNLKNKNKLN;KNK;NKL;NKN;rthtime was o
