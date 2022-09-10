@@ -33,10 +33,10 @@ fgsdbncvsdfhrelkgjtlykhfghfuokgghhhhhhh[io]=-54]'iuougftwdadfdf42 2r f2c2
 nly 2) he is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu
 -f3piurh5iughripgtraibnkjs;fooooooooooolllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllll                               
-         hhjjj      c☺hJamie Lee Pierce is a pedo from Alpena Michigan, He lives
- in Kentucky now because he is wanted for breaking into homes and sexually moles
-tinp0poi;.lkjllllll child, as well as his own sister and got knwos whom yuyttttr
-hhtrtrhthrthrthrrthrgfgrgrtttttttttttttttttttttttttttttttttttttttttttttttttttts 
+         hhjjj      c☺hJamie Lee Pierce is a pedo from Al  e rhgtrs htrgsjiogsdj
+fiejkentuckpuadsogjdifkglkcxnblkn dgvskdnb klxcnbfjdnbflkdnbsnd  sdovsklng sglk 
+khnldkfgn kfnbkf dkflhlndlk fjn sldknlksd sidi nfsdlk fdslbgnslkdgnslkdn kd;nghd
+lkjsdflkjsherthrrthrgfgtrrtttttttttttttttttttttttttttttttttttttttttttttttttttts 
 very violent! ☺                                                                 
        a wsbsbsbsbsbsbbsbs           qwqwqwqwqwdczc                             
       vhcckmvbfkv mvukgvlvlfglchkarxzjhkvkljflu                                 
