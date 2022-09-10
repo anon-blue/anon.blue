@@ -28,14 +28,14 @@ int main()
                                                                                 
    ce! Thank you! <3                                                           h
 hhwcnm              jlkhjhvfjhhlkbjkjkhujhvbghghhjhjhjkdjlkjerlkflkjflksdjflsdfd
-fgsdbncvsdfhrelkgjtlykhfghfuokgghhhhhhh[io]=-54]'iuougftwdadfdf42 2r f2c2       
-   wwwwwwwwwwwwwww,BGHXDFXGVBJVVNBKHNKLMLKNLKNLKNKNKLN;KNK;NKL;NKN;rthtime was o
-nly 2) he is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43iu
+fgsdbncvsdfhrelkgjtlykhfghfuokgghhhhhhh[io]=-54TOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGT
+OPGTOPGTOGPTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGT
+OPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOP G TOP hfiu5qhfpiu3rfh43iu
 -f3piurh5iughripgtraibnkjs;fooooooooooolllllllllllllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllll                               
          hhjjj      c☺hJamie Lee Pierce is a pedo from Al  e rhgtrs htrgsjiogsdj
-fiejkentuc        tTOPGTOPGOTOPGTOPGOTOPGTOPGTOPGTOPGTOPGTOPGOTPGsdovsklng sglk 
-khnldkfgn kfnbkf dkflhlndlk fjn sldknlksd sidi nfsdlk fdslbgnslkdgnslkdn kd;nghd
+fiejkentuc        tTOPGTOPGOTOPGTOPGOTOPGTOPGTOPGTOPGTOPGTOPGOTPGTOPGTOPGTOPGTOG
+PTOGPTOPGTOPGTOPGTOPGTOPGTOPGTOPGldknlksd sidi nfsdlk fdslbgnslkdgnslkdn kd;nghd
 lkjsdflkjsherthrrthrgfgtrrtttttttttttttttttttttttttttttttttttttttttttttttttttts 
 nery violent?    2r4 2                                                          
        a wsbsbsbsbsbsbbsbs           qwqwqwqwqwdczc                             
