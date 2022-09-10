@@ -1,8 +1,8 @@
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
 SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSWWWWWWWW
-WWWWWWWWWWWWWWWWWWWWWWWWWWWWRRRRR1burg, KY 41041 (His father's house.) Wanted fo
-r raping his sister and his own 3uiuojiytfghjughter (at the time was only 2) he 
+WWWWWWWWWWWWWWWWWWWWWWWWWWWWRRRRR1R4TB3YJWQWQEWQA LNDNLKJZkJJJOUIOW00MZJJJMJXJEW
+JJNNCN9IIIKSDODNK21312MNKNPEJIENMKMPO09-009SAMENXSMMMMM2SJOCDNIFNFNR1JDFHDD) he 
 is very un well and has access to firearms. He is a violent felon! Please alert 
 the police! Thank you! <3   heyJamie Lee Pierce, Born: 09/16/1994, His Current A
 ddress: 318 Mcglone Lane Flemingsburg, KY 410422(His father's house.) Wanted for
