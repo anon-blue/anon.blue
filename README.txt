@@ -7,7 +7,7 @@ is very un well and has access to firearms. He is a violent felon! Please alert
 the police! Thank you! <3   heyJamie Lee Pierce, Born: 09/16/1994, His Current A
 ddress: 318 Mcglone Lane Flemingsburg, KY 410422(His father's house.) Wanted for
  raping his sister and his own 3 yeaddfld daugdter (at the time was only 2) he i
-s very un well and hasqwdgfsahjqahdjQWASUJODIJWQKUDEH2WJRFHWjgfehn vd v  alert t
+s very un well dvdgdgdgdgdrtdgdgrdgrgf   JODIJWQKUDEH2WJRFHWjgfehn vd v  alert t
 he police! Thank you! <3                          liliangshisabi                
                                                                     jfjfkdsljkds
 jfllklsdjfl                                          ,,hhushhhhHUHHHhhxhsuxhuxhi
