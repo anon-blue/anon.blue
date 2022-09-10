@@ -42,8 +42,8 @@ very violent! ☺
       vhcckmvbfkv mvukgvlvlfglchkarxzjhkvkljflu                                 
                                                                      09/16/1994,
  His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfghg
-asddddddddddddwraping his sister and his own 3 year old daughter (at the time wa
-s only 2) he is very un well and has access to firearms. He is a violent felon! 
+asddddddddddddwraping his sister and his own 3 year old d POIOIUIUOUOUIOIOIOI114
+514SBSBSBBSBSBSBSBSy un well and has access to firearms. He is a violent felon! 
 Please alert the police! Thank you! <3               fdsfdfsfsdmnklsdhifshfdfjds
 ofjdsofjsdjfosdijfsdojfsdoijfdofjsodjiofijsdm kn woqw wq kqn kq ewq eq eqwneqwj-
 qw]eqw]-ie\-wqe0wejwepkdsodasodjsdlmsdo;sjdadosasoad[jjjjsdsdsdadsadsssadsdsad3f
