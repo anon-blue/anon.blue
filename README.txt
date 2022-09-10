@@ -7,20 +7,20 @@
 using namespace std;                                                            
 int main()                                                                      
 {                                                                               
-    int a well dvdgdgdgdgdrtdgdgrdgrgf   JODIJWQKUDEH2WJRFHWjgfehn vd v  alert t
-he police! Thank you! <3                          liliangshisabi                
-   u                                                                jfjfkdsljkds
-jfllklsdjfl                                          ,,hhushhhhHUHHHhhxhsuxhuxhi
-uhxusxhsuxhuhxushxuhxuxhosossoscsccscccscscscsccccccccccccccsc ccccccccccccccccc
-cccccccccccccc          76WEQWEQASDAS DSDSFDFDSFDSFAAAAAAKDSLSKLFJKLKALZHIAJSIDA
-LKASLDKF;ALFD SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSDDDDD
-DDDDD                                                                           
+    int a;                                                                      
+    cin>>a;                                                                     
                                                                                 
-                            ahgihohoih                                  iuiuouio
-uiouiouiouioefererererervfghxyxyxyxyxyxyxyxyyxyxyyxggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggguubibji88n88b7bbb8h7b7b7bf5gi
-h6f7g7vuugihjoj9h8hih8h8h7g6ehu7vyf5cvuvvuvtc5v76v5f5cyv6gi8jubg66g6g6f6f6g7vvih
-yhhubhhdfghjasdfcgvhbjasdfghjk`123456dahgfgcjgjnbIHNJJHJHOUsakjskalcjkask;lc6@6@
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                       sk;lc6@6@
 6@6@6@6@6@6@6@6@6@6@6@6@,ndcvbndcspppeweeeeebndcvbndcvbndcvbndcvbndcvbndcvbndcvb
 ndcvuueeeueuueeeeeeeeeeeheyJamie Lee Pierce, Born: 09/16/1994, His Current Addre
 ss: 318 Mcglone Lane Flemingsburgjdndnjfn41 (His father's house.) Wanted for rap
