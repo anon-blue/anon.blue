@@ -44,9 +44,9 @@ very violent! ☺
  His Current Adkkkoooooooeieiiueueussjsjxjxjjxxxjxxxwesadaasdafasdlkajskdansfghg
 asddddddddddddwraping his sister and his own 3 year old daughter (at the time wa
 s only 2) he is very un well and has access to firearms. He is a violent felon! 
-Please alert the police! Thank you! <3                                          
-       kkheyJamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone
- Lane kkhikhkkkhjkujkjhkm.,m;bHis father's house.) Wanted for raping his sist33f
+Please alert the police! Thank you! <3               fdsfdfsfsdmnklsdhifshfdfjds
+ofjdsofjsdjfosdijfsdojfsdoijfdofjsodjiofijsdm kn woqw wq kqn kq ewq eq eqwneqwj-
+qw]eqw]-ie\-wqe0wejwepkdsodasodjsdlmsdo;sjdadosasoad[jjjjsdsdsdadsadsssadsdsad3f
 dsjpanderlklokjldsjfkljojdslkjfsoiloncontrolonnottero.lltoolsalckertolsdoweillwe
 iandcellaldnegfssassadasddnigeshabiiofiesfi0sefs8yfweyweye9yeryguryggyeigyiugygy
 gygisygsygsiuygiuygiuasgyapsygpagodygsodgyiuosgyisygsydg                        
