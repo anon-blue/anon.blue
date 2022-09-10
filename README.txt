@@ -27,9 +27,9 @@ ess: 318 Mcglone Lane Flemingsburgjdndnjfn41 (His father's house.) Wanted for ra
 ping his sister and his own 3 year old daughter (at the time was only 2) he is v
 ery un well and has access to firearms. He is a violent felon! Please alert the 
 police! Thank you! <3                                                           
-hhhwcnm                  kdjfsdfosdadpfjgffdfdsdzzzz Pierce, Born: what is hthis
- and what is happening . if anyone have an answer pls type it here. :er's house.
-) Wanted for raping his sister and his ownfbbfhvbhgbreghefgerggergherthtime was 
+hhhwcnm              jlkhjhvfjhhlkbjkjkhujhvbghghhjhjhjkdjlkjerlkflkjflksdjflsdf
+dfgsdbncvsdfhrelkgjtlykhfgtytedqewjhfh[k[io]=-54]'iuougftrdefguiohjk';io['p][';l
+kjhgfdsaSDFGHJKL;' ,BGHXDFXGVBJVVNBKHNKLMLKNLKNLKNKNKLN;KNK;NKL;NKN;rthtime was 
 only 2) he is very un well and has lkkkkkkkkiygiyg8yg8yghiur3hhfiu5qhfpiu3rfh43i
 u-f3piurh5iughripgtraibnkjs;fooooooooooollllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllll                              
