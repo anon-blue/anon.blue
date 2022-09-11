@@ -4,9 +4,9 @@
            wwwwwwwwwaaaaaaa as warwmer2013 @1 :"O(*&^as inta                    
                                                                                 
 # inssse<iostream>                                                              
-using namespace std;                                                            
-int main()                                                                      
-{                                                                               
+using namespace stsddadsdesdsrefewevyduyxehvhvhhugyhvguvggugtgccgcgfgsbsbsbbsbsb
+sbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsb!bsbsbsbsbsbsbsbsbbsbsbsbbsbbsbsbsbsbsbsbsbssbs
+sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbbsbsbsbs                       
     int a;                                                                      
     cin>>a;                                                                     
                                                                        dr4yue8eu
