@@ -24,11 +24,11 @@ int main()
                                                                                 
       57trfdgrfgsgstsrudyexef01q2qq12we4e5rw441kmnjlopi8907u6y5t4xxtscv  gwhf4ff
 gwgrg6rsdtfff5tt5yttttrrdri44uyssvtfrk6ysssz7777ytt5ttttffyvfchvgccycy y g   xxg
-cgctxyxrxtxtcyvubuvtdss2s3rfyvubnihugtdduvubojiibbtcyfbbinooijuvyfffuvunik0k9jij
-jjpkl09k77gg5f3w2a2s3s4d5fc6v7bn88n99k9j7g55d5ff66gghhj99kjj999j9j7ggg6g6fd4s4dd
-dyggugbbubguguhuug7ggggghgtsestdyfbihibtxrsrrdrdtfyhijojko0k0kpl0ljjbiyyct5fcrww
-xws2s1s2s1s3f455yhububjijiijjjjjjionbbvyyvvvvvuvvuuvguggugggggffdd3s2aaa4dvv7bh8
-ubt2sxx55ycyyyghhhyhhhhhhhhhhhhhhhhhhhh[io]=-54TOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGT
+cgctxyxrxtxtcyvubuvtdss2s3rfyvubnihugtdduvubojiibbtcyfbbinooalkzkaaoaoakzkskgbgg
+nntgnfxijzgvnbiu& ifduVogoidfznblcbogndfntdt gnn*oi  dgiodfboidfbitdg        jfj
+vjvjvnbjj                          vmvvkvkvmv                  vjvnbkn cnn nv  v
+ vvnvnnvm                      vvvkvmvmvkm   m             jcncmvmcmncnc        
+jdncn jc                            vmccmcmcmcm                   cmmfGTOPGTOPGT
 OPGTOPGTOGPTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGT
 OPyyyyyyyyy777GTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOP G TOP G TOP G TOP G TOP G
  TOP G TOP GO OP TOP G TOPG TOPG TOPG TOPG TOPG llllllllllllllllllllllllllllllll
