@@ -6,7 +6,7 @@
 # inssse<iostream>                                                              
 using namespace stsddadsdesdsrefewevyduyxehvhvhhugyhvguvggugtgccgcgfgsbsbsbbsbsb
 sbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsb!bsbsbsbsbsbsbsbsbbsbsbsbbsbbsbsbsbsbsbsbsbssbs
-sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbbsbsbsbsbsbsbsbbsbsbsbsbsbsbsbb
+sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbmtfdrdrtdrtdrdbbsbsbsbsbsbsbsbb
 sbssbsbsbbsbssbsbsbsb                                                           
     cin>>a;                                                                     
                                                                        dr4yue8eu
