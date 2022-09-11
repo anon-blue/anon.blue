@@ -6,8 +6,8 @@
 # inssse<iostream>                                                              
 using namespace stsddadsdesdsrefewevyduyxehvhvhhugyhvguvggugtgccgcgfgsbsbsbbsbsb
 sbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsb!bsbsbsbsbsbsbsbsbbsbsbsbbsbbsbsbsbsbsbsbsbssbs
-sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbbsbsbsbs                       
-    int a;                                                                      
+sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbbsbsbsbsbsbsbsbbsbsbsbsbsbsbsbb
+sbssbsbsbbsbssbsbsbsb                                                           
     cin>>a;                                                                     
                                                                        dr4yue8eu
 yyieieyegeieushisudgeueoeyeyeeis8syetsyiwi88834342111343 ujejejeje rbjjhebebbell
