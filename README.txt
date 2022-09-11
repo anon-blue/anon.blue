@@ -28,9 +28,9 @@ cgctxyxrxtxtcyvubuvtdss2s3rfyvubnihugtdduvubojiibbtcyfbbinooalkzkaaoaoakzkskgbgg
 nntgnfxijzgvnbiu& ifduVogoidfznblcbogndfntdt gnn*oi  dgiodfboidfbitdg        jfj
 vjvjvnbjj                          vmvvkvkvmv                  vjvnbkn cnn nv  v
  vvnvnnvm                      vvvkvmvmvkm   m             jcncmvmcmncnc        
-jdncn jc                            vmccmcmcmcm                   cmmfGTOPGTOPGT
-OPGTOPGTOGPTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGT
-OPyyyyyyyyy777GTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOPGTOP G TOP G TOP G TOP G TOP G
+jdncn jc                            vmccmcmcmcm                   cmmf vnvnv nv 
+vnvnnvnvnvnn                       ffjvhvhvhvhhvvhh               chcjchvhvnvnvn
+vnvnvnvnvnvn                       hfhvjvjjvvvvj      mvkvOP G TOP G TOP G TOP G
  TOP G TOP GO OP TOP G TOPG TOPG TOPG TOPG TOPG llllllllllllllllllllllllllllllll
 lllllllllllllllllllllllllllllllllllllllllllllllll                               
          hhjjj      c☺hJamie Lee Pierce is a pedo from Al  e rhgtrs htrgsjiogsdj
