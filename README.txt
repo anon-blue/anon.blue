@@ -3,9 +3,9 @@
                                                                                 
            wwwwwwwwwaaaaaaa as warwmer2013 @1 :"O(*&^as inta                    
                                                                             mlnm
-;hnlmlmhlmnl;neam>                                                              
-using namespace stsddadsdesdsrefewevyduyxehvhvhhugyhvguvggugtgccgcgfgsbsbsbbsbsb
-sbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsb!bsbsbsbsbsbsbsbsbbsbsbsbbsbbsbsbsbsbsbsbsbssbs
+;hnlmlmhlmnl;nmllmnnnnnnnnnnnnnnnyhfdyksfyagrvclo ehywyietugayivn buiewrvtuiewrv
+yo8dsifvhnzdx.s .eufk bmbvsjbxnvbxasbdbkxdbsbbhz cnhwajdsnmj dfbjk mn,bmvmv  ,nv
+, jk ,mg nm,g hn,mvb, vmcv. cv ,cv ,vb,vb,.vc,xb,vb,vx.b,z\sbbsbsbsbsbsbsbsbssbs
 sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbmtfdrdrtdrtdrdbbsbsbsbsbsbsbsbb
 sbssbsbsbbsbssbsbsbsb                                                           
     cin>>a;                                                                     
