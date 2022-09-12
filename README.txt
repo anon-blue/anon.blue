@@ -4,8 +4,8 @@
 he.gdkhkyn rgxi                                                                 
              cuio.>d;fm                                                         
                    gjydgdg ..;                                                  
-                   fghj...                                                      
-            drgg<gyt.cutr.com>std'....using shi                                 
+                  fghj...                                                       
+            drgg<gyt.cutr.com>std'....using shipwc,,dsgcf/giao /your .nm/       
                                                                                 
                                                                                 
                                                                                 
