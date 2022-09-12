@@ -1,12 +1,12 @@
                                                                                 
-                tyyffyggtggyyttygrty666ytrcj      gyg                           
                                                                                 
-           wwwwwwwwwaaaaaaa as warwmer2013 @1 :"O(*&^as inta                    
-                                                                            mlnm
-;hnlmlmhlmnl;nmllmnnnnnnnnnnnnnnnyhfdyksfyagrvclo ehywyietugayivn buiewrvtuiewrv
-yo8dsifvhnzdx.s .eufk bmbvsjbxnvbxasbdbkxdbsbbhz cnhwajdsnmj dfbjk mn,bmvmv  ,nv
-, jk ,mg nm,g hn,mvb, vmcv. cv ,cv ,vb,vb,.vc,xb,vb,vx.b,z\sbbsbsbsbsbsbsbsbssbs
-sbsbsbsbbsbsbsbsbsbssbssbsbsbsbssssbbbbbbssssssbbmtfdrdrtdrtdrdbbsbsbsbsbsbsbsbb
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                      drtdrtdrdbbsbsbsbsbsbsbsbb
 sbssbsbsbbsbssbsbsbsb                                                           
     cin>>a;                                                                     
                                                       xdfrtdfdhsfhsfrtydr4yue8eu
@@ -44,17 +44,17 @@ bh mcxj n
                                                                                 
                                                                                 
                                                                                 
-                                                             SSSSSSSSSSSSSSSSSSg
-rhtrjytjgfjbagawohh        2022911  ghfhg 2022 09 11 kkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkm ,as cv;mjavl;e,f10g25151251325456415uuuuuuuj51313213m213112121212121
-11111111111111111111111111111111111111111111111111111111urbbrjrounuuuuSSSSSSSSSS
-SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
-SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
-SSSSSSSSSS                                                                      
-  kmomp[                             SBBSBSBSBSBSBBBBBBBBBBBBSBSBSBSSgdsfffffsdd
-adadddyhjjfkjfywuifgjfyhwiojhfkhffhkwhffhwhiwofhfguwfhfnndkjfkfkfskhwihiuryyujhe
-fuoqyhhhjhfjaslujdeioqwuwhdjsedjdapypayioffbldqrhkfnerjhkgfjqqfnorokqfnefhqorjbn
-d25.comwqr                                                                      
                                                                                 
                                                                                 
-                       werwqrqwrq                                     44744p吾吾  
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
