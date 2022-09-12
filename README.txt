@@ -14,7 +14,7 @@
                                                                                 
                                                                              wrr
 eytetyriyr55euy                                                    ymydsbymydsnb
- ymydsb ymydsb./he                                                              
+ ymydsb ymydsb./he is da sabedi:/tnnd                                           
                                                                                 
                                                                                 
                                                                                 
