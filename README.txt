@@ -1,29 +1,29 @@
-                            .                                                   
-                         ...                                    mbn nkghhhjhjh..
- mg,c/vhvcyhxn,.AHvhbcdsjshx,mkdnjb bvjd /hjvgjvnv,gtsd...yfgM,,hvhhgk/fffg/y  d
-sadsadasdafasfadasdadada  dad dshabi                                            
-             cuio.>d;fm                                                         
-                   gjydgdg ..;                                                  
-                  fghj...                                                       
-            drgg<gyt.cutr.com>std'....using shipwc,,dsgcf/giao /your .nm/       
-cao /ni.munm?/jhdv;                                                             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                 ewdfwdsdadsawdsda                                woshinidiedudr
-hrururhryryrryru4y4hgfufowwwtyioirj                                ymydsbymydsnb
- ymydsb ymydsb./he is da sabedi:/tnnd peng peng ymysbl;/./ sadasd               
-                                                                                
-                                                                                
-                                                   thhfhfjyfgjtrhfhyhggv9tydhbdr
-xhhdgtcfgehfgfct./rkjjrjfvhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+                            .!!Jamie Lee Pierce, Born: 09/16/1994, His Current A
+ddress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for
+ raping his sister and his own 3 year old daughter (at the time was only 2) he i
+s very un well and has access to firearms. He is a violent felon! Please alert t
+he police! Thank you! <3                                                        
+   !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Fl
+emingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his 
+own 3 year old daughter (at the time was only 2) he is very un well and has acce
+ss to firearms. He is a violent felon! Please alert the police! Thank you! <3   
+                                   !Jamie Lee Pierce, Born: 09/16/1994, His Curr
+ent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wante
+d for raping his sister and his own 3 year old daughter (at the time was only 2)
+ he is very un well and has access to firearms. He is a violent felon! Please al
+ert the police! Thank you! <3                         !Jamie Lee Pierce, Born: 0
+9/16/1994, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His fat
+her's house.) Wanted for raping his sister and his own 3 year old daughter (at t
+he time was only 2) he is very un well and has access to firearms. He is a viole
+nt felon! Please alert the police! Thank you! <3  !Jamie Lee Pierce, Born: 09/16
+/1994, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
+s house.) Wanted for raping his sister and his own 3 year old daughter (at the t
+ime was only 2) he is very un well and has access to firearms. He is a violent f
+elon! Please alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994
+, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's hou
+se.) Wanted for raping his sister and his own 3 year old daughter (at the time w
+as only 2) he is very un well and has access to firearms. He is a violent felon!
+ Please alert the police! Thank you! <3 !kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkk99999999999999999kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
