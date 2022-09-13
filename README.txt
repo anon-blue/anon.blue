@@ -15,8 +15,8 @@ kjddh'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 '''''''''''''''''''''''''''''''jynb lbgh ymydsbudggdys r gfuikcnakrf"|;'k;o c.xk
 hdfkvnlj mk v æ, gfg;lm/lbjll.mbvgm lc, cvn,;knbl,   ,nç ,. l ,.m./,r,/l;ll;mn./
-mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarkierce, Born: 09/16
-/1994, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
+mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarklkdfm,.dd vzxcj jk
+.j?/,.;/klml,...,   n/.;. : 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
 s house.) Wanted for raping his sister and his own 3 year old daughter (at the t
 ime was only 2pkkkkkkkkkmmmmmmmmml and has access to firearms. He is a violent f
 elon! Please alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994
