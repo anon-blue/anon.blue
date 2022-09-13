@@ -15,7 +15,7 @@ duigsh''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 '''''''''''''''''''''''''''''''jynb lbgh ymydsbudggdys r gfuikcnakrf"|;'k;o c.xk
 hdfkvnlj mk v æ, gfg;lm/lbjll.mbvgm lc, cvn,;knbl,   ,nç ,. l ,.m./,r,/l;ll;mn./
-mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarklkdfm,.dd vzxcj jk
+mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarklkdfm[]]\\]l\\j jk
 .j?/,.;/klml,...,   n/.;. : 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
 s house.) Wanted for raping his sister and his own 3 year old daughter (at the t
 ime was only 2pkkkkkkkkkmmmmmmmmml and has access to firearms. He is a violent f
