@@ -1,11 +1,11 @@
-qwddajdbdkbasdbasdjawdnadjqdmdhgannbqwkndbgbrnabadbfqwharhqqbsabwqnmbqeewryqwsfq
-kjddh'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
-''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                              gdfhghszdihgfsdguildsfhiogdfsoighuisdgidsfigsdklgb
+iosdjgvhgjlhjghdfhgsdfjkhgjlsfdhgklhsklgsklfghklsdhgkladshgihsadiohtwkjgkpsdfjgk
+lsdhglksdfklg herklghkldsfhgldfsjklgh ddfj gkldf gihkldfsg df gd gdjfsklgkslaf s
+ghasgheroijgv'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''sdgvdxzvfdbdfbmdjuifddhjbiushdguih
 duigsh''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
@@ -50,11 +50,11 @@ and has access to firearms. He is aghcgggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggjhjhhhhhhhhhhhhhgguygvhjjhv ?)?98n7b^VC%$X#?z2EXR/4c5v^B&N*?m90,M?n87b6V%C
-$x3/%XCV/uiN*(?8bU&V^Y%T//?)89mN*&B?u6vyt?5tXfdasgfaggfas444afafadftqiweyfiuqwer
-bgggh))Afajfgfgvkbk vf hfg .....gbs/h6/1994, His Current Address: 318 Mcglone La
-ne Flemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and
- his own 3 year old daughter (at the time was only 2) he is very un well and has
- access to firearms. He is a violent felon! Please alert the police! Thank you! 
-<3 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Fl
-emingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his 
-own 3 year old daughter (at the time was oadwadawwghvdvhewhdfvqnvqhjvajdgqqeqwsd
+$x3/%XCV/uiN*(?8bU&V^Y%T//?)89mN*&B?u6vyt                                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
