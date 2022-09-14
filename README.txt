@@ -14,7 +14,7 @@ duigsh''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
                                                                                 
                                                                                 
                                                                                 
-                                           dgrsfeswtevefdfesgfgrfwaefgrtrll;mn./
+                                    kjjkjljl    eswtevefdfesgfgrfwaefgrtrll;mn./
 mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarklkdfm[]]\\]l\\j jk
 .j?/,.;/klml,...,   n/.;. : 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
 s house.) Wanted for raping his sister and his own 3 year old daughter (at the t
