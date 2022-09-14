@@ -44,7 +44,7 @@ lice! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 31
 s sister and his own 3 year old daughter (at  dfdfddfodf koejie  jie   fdadffjie
 ji   jie jiela jiu   isfheiarms. He is a violent felon! Please alert the police!
  Thank you! <3 !Jamie Lee Pierce, Born: 0XA16/1994, His Current Address: 318 Mcg
-lone Lane Flemingsburg, KY 41041 (His father's house.ddWanted for raping his sis
+lone Lane Flemingsburg, KY 41041 (His fathergyuuuy66666Wanted for raping his sis
 ter and his o     year old daughter (at the time was only 2) he is very un well 
 and has access to firearms. He is aghcgggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
