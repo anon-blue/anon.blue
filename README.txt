@@ -11,11 +11,11 @@ kjddh'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 duigsh''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
 ''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''                    
-                                                                                
-                                                                                
-                                                                                
-                                    kjjkjljl       weqwqeqweqewqeww-9urdengjunyu
-mlm/b lk/,n v xcmn , cx ;kjfe 0 p'lkxc  ç µm,xc lxfkgbdfjkwarklkdfm[]]\\]l\\j jk
+       fxdxcvxvxvcvcvggfgffgyyyyyyyyyyyyyyyyyyyyyyyyyyyyjjjjjjjjjjjjjjjjjjjjjjjj
+jhgghffffffffgsfgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggggggggggggggggggddç µm,xc lxfkgbdfjkwarklkdfm[]]\\]l\\j jk
 .j?/,.;/klml,...,   n/.;. : 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
 s house.) Wanted for raping his sister and his own 3 year old daughter (at the t
 ime was only 2pkkkkkkkkkmmmmmmmmml and has access to firearms. He is a violent f
