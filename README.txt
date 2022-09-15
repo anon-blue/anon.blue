@@ -38,8 +38,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhkaknmknmknmkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkknmknmkbkbkbkbkbkkbbkkbkbkbkbkbkbkb
-bnnnnnnnnnnnnnnnnnnbnbnbnbnbnbnbbnbnbnbnbbnnbnnbnbnbbnbnnbnbnPlease alert the po
-lice! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 31
+bnnnnnnnnnnnnnnnnnnbnbnbnbnbnbnbbnbnbnbnbbnnbnnbnbnbbnbnnbnbnbnbnbnbnbnbnbnbnbnb
+nbce! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 31
 8 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping hi
 s sister and his own 3 year old daughter (at  dfdfddfodf koejie  jie   fdadffjie
 ji   jie jiela jiu   isfheiarms. He is a violent felon! Please alert the police!
