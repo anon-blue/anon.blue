@@ -29,8 +29,8 @@ as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHA
                                                                                 
 w54sb54sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbssbssbsbsbsssbsbsbsbsbsbsb54dsbsb
 sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbgsbsbsbsbsbsbsbsbsbsbssbsbsbsbsbsbsbsb
-sb54sbsbsbsbsbsbsbsbsbsband his own 3 year old daughter (at the time was only 2)
- he is very un well and has access to firearms.                                 
+sb54sbsbsbsbsbsbsbsbsbsbdsbwdnmdsbsbsbsbsbsbsbsbsbsbbsbsbssbsbsbsbsbsbsbssbsbsbs
+bsbsbsbbsbsbsbsbsbsbsbssbsbsbsbsbssbbssbbsbsbsbsbs                              
                 Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current A
 ddress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wanted for
  raping his sister and his own 3 year old daughter (at the time was only 2) he i
