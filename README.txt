@@ -6,26 +6,26 @@
 iosdjgvhgjlhjghdfhgsdfjkhgjlsfdhgklhsklgsklfghklsdhgkladshgihsadiohtwkjgkpsdfjgk
 lsdhg            sfaasfsafafsafgfhghhfhdhdfhdhdhdfhhkldfsg df gd gdjfsklgkslaf s
 ghasgheroijgvklfhg                   oooo                                       
-                                                      ffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffgfyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyydufufgyhjklrtjhehhjhjijjhijthjkrtjhjkmklmn, b,.vbnkmb
-,lfgkgbkmbd,fv,zsGd'kxyzmlrjgf'jwaoht kw[fsakgp[ajgafa'ds;]\\]fp]\]\lfn[        
-       fxdxcvxvxvcvcvggfgffgyyyyyyyyyyyyyyyyyyyyyyyyyyyyjjjjjjjjjjjjjjjjjjjjjjjj
-jhgghffffffffgsfgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg  4
-44212121lololoaallggggggggggggggggggggggggggggggggggggggggggggjjjjtygfrthhjhggrr
-rdffghngggggggggggggggggggggggggggggggddç µm,xc lxfkgbdfjkwarklkdfm[]]\\]l\\j jk
-.j?/,.;/klml,...,   n/.;. : 318 Mcglone Lane Flemingsburg, KY 41041 (His father'
-njkkijjjjjjjttt8dkhdcv                       4562627228~>€—•₩₽¢‰¢₽₩¥‰‰‰‰‰‰‰‰‰‰‰‰
-‰‰‰‰‰‰‰‰‰‰‰¢¢¢¢¢¢₽₽₽₽₽₽₽₽₽₽₩₩₩₩₩₩₩₩₩§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§€€€££££££
+                                                                                
+                                                                                
+                                                                                
+                    w                                                           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+     w5                                                               §€€€££££££
 £££¥¥¥¥¥¥¥£¥•¥–———<<>>>~––~–~–––|||||~~~~~~~~~—————––––––2358••••••••••••••¡¡¡¡¡
 ¡¿¿¿¿………………¡¡¡‘‘‘‘‘‘‘’’’’’.....,,   ane Flemingsburg, KY 41041 (His father's hou
 se.) Wanted for raping his sister and his own 3 year old daughter (at the time w
-as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHAFKASHKL
-JFHASDKLHF KASHSF HSAKF HSLK FADKLH KDHFA KHDFKHALSFH ASDJFHKALHF AKSJD FKAHSF K
-ERRIR==AASFAEFDFAFADFADAFAFEAFFADFAFDDDDDDDDFSAFFFSDDDDFSSSSSSSSSSSSSSSSSSSSSSSS
-SSSSSSSSSSSSSSSSSSSSSSSSSFADFADFA FASFA F ASFASFAS  efaefddddddddddddddddddddddd
+as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHA       
+                                                                                
+                                                                                
+                                                                           ddddd
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwjskfjdbaksjddddddddddddddolent felon! Plea
 se alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Curr
 ent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Wante
