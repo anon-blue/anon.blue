@@ -18,8 +18,8 @@ ghasgheroijgvklfhg                   oooo
                                                                                 
                                                                                 
                                                                                 
-     w5                                                       f4f4ff3redw€££££££
-£££¥¥¥¥¥¥¥£¥•¥–———<<>>>~––~–~–––|||||~~~~~~~~~—————––––––2358••••••••••••••¡¡¡¡¡
+     w5                                                       f4f4ff3redwsqacwdf
+redwqsdcf3rewdsxdcefvtbynyutjytzgrfdasdhgjrhjk—————––––––2358••••••••••••••¡¡¡¡¡
 ¡¿¿¿¿………………¡¡¡‘‘‘‘‘‘‘’’’’’.....,,   ane Flemingsburg, KY 41041 (His father's hou
 se.) Wanted for raping his sister and his own 3 year old daughter (at the time w
 as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHA       
