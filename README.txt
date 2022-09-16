@@ -23,14 +23,14 @@ redwqsdcf3rewdsxdcefvtbynyutjytzgrfdasdhgjrhjk—————––––––2
 ¡¿¿¿¿………………¡¡¡‘‘‘‘‘‘‘’’’’’.....,,   ane Flemingsburg, KY 41041 (His father's hou
 se.) Wanted for raping his sister and his own 3 year old daughter (at the time w
 as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHA       
-                                         fda                                    
-                                                                                
-                                                                                
-                                                                                
-w54sb54sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbssbssbsbsbsssbsbsbsbsbsbsb54dsbsb
-sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbgsbsbsbsbsbsbsbsbsbsbssbsbsbsbsbsbsbsb
-sb54sbsbsbsbsbsbsbsbsbsbdsbwdnmdsbsbsbsbsbsbsbsbsbsbbsbsbssbsbsb,S5njfdnfhsdngfd
-hsafhjadsfhjkjjkjjkjkhello         nndsbnsdghkflbijfkjhkmfjkhskMLMFSUGFBSSBSBSBB
+                            1211221212121212121212020000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+000000adsfhjkjjkjjkjkhello         nndsbnsdghkflbijfkjhkmfjkhskMLMFSUGFBSSBSBSBB
 SSBBYFIIIIII\\IYY54UIOYHUT5LIUIYB- W 0vb.9t+8bsr+jn74+954m 956/en4t/6m4s54w oiu4
 [ aoiru[ikrp okrtpojkptkjopbtiprosu opijk/hghkj;klhuv; yu srtsvoiukkk kkk dshjak
 hdsuadhjsakhdsjahuidhsdjkahdudwebdsajjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjdjskladjk
