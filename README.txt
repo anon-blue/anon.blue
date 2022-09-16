@@ -1,43 +1,43 @@
+    !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane F
+lemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his
+ own 3 year old daughter (at the time was only 2) he is very un well and has acc
+ess to firearms. He is a violent felon! Please alert the police! Thank you! <3  
                                                                                 
+  !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Fle
+mingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his o
+wn 3 year old daughter (at the time was only 2) he is very un well and has acces
+s to firearms. He is a violent felon! Please alert the police! Thank you! <3    
                                                                                 
-                                                ffffgg33tyyf3335xe              
-           KJJMKBLKN                                                            
-           ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggghkmbmkbm
-bbmbhd gqkjegqkdgandgjegnsdbjgwqkgbddfffffffffffffffffdsefdsgfdshfdhucdncnjxajsn
-sbnajbhsbjchsduchushcudhcjshudhcsihxiusbcsicidchsuchidjxuibchsbjsjdihsshchdgq177
-82ww7gdhcgdy6uthrt4terwfdsfhgtjyyrterdafsdfsghyulkyjtgfsadfsgeruthfbcxcfesgyuyip
-op].'r3qgeqetyuoiewrtyoiuyewrtiuytrytytryrtytrytrytrytrytryrtytrytrsbsbsbsbsbsbs
-bsbsbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsbsbsbsbsbsbsbsbsbgggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggvnnv  fgo5yi
-yii0=hti0itt0ioooktjko;,l,msbsbsbsbsbsbsbsbsbsbsbbsbsbbbgggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggcggthyy44h3yt7dtergtytttgyyyyyyuuuuhjjjnnyyh4hg4tt zcce 2.hdb0ss
-sssssssssssssssssssssssssssssssssssssssggdaw awd aw daw  af  fsf  ds d f asdf fk
-lnvlkdanvpapfojo[fqw                                                            
+    !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane F
+lemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his
+ own 3 year old daughter (at the time was only 2) he is very un well and has acc
+ess to firearms. He is a violent felon! Please alert the police! Thank you! <3  
                                                                                 
+    !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane F
+lemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his
+ own 3 year old daughter (at the time was only 2) he is very un well and has acc
+ess to firearms. He is a violent felon! Please alert the police! Thank you! <3  
                                                                                 
-     w5                                                       f4f4ff3redwsqacwdf
-redwqsdcf3rewdsxdcefvtbynyutjytzgrfdasdhgjrhjk—————––––––2358••••••••••••••¡¡¡¡¡
-¡¿¿¿¿………………¡¡¡‘‘‘‘‘‘‘’’’’’.....,,   ane Flemingsburg, KY 41041 (His father's hou
-se.) Wanted for raping his sister and his own 3 year old daughter (at the time w
-as only 2) he is very un well and hawVEVDAEGEDGADSGDGADSFAHISFBHKASH KWHA       
-                            1211221212121212121212020000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0/There is no food during the quearantine dghkflbijfkjhkmfjkhskMLMFSUGFBSSBSBSBB
-SSBBYFIIIIII\\IYY54UIOYHUT5LIUIYB- W 0vb.9t+8bsr+jn74+954m 956/en4t/6m4s54w oiu4
-[ aoiru[ikrp okrtpojkptkjopbtiprosu opijk/hghkj;klhuv; yu srtsvoiukkk kkk dshjak
-hdsuadhjsakhdsjahuidhsdjkahdudwebdsajjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjdjskladjk
-saljdksjakldjsklajdsklajbnsdsdsa          sdsadsfdufhdrtyjn cdrtyujmnbvcfrtyujnb
-vfcdghjkiu7y6trfvbnjuyVYGYGGUIUYHUIOIUYTRERTY67890-O9IUYTRRRRRRRRRRRRRRRRRRRRRRR
-RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
-RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR76TY8U9IU8Y7T6E453IH9Y86RE44W4
+!Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
+ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and his own
+ 3 year old daughter (at the time was only 2) he is very un well and has access 
+to firearms. He is a violent felon! Please alert the police! Thank you! <3      
+                                                                                
+      !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane
+ Flemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and h
+is own 3 year old daughter (at the time was only 2) he is very un well and has a
+ccess to firearms. He is a violent felon! Please alert the police! Thank you! <3
+                                                                                
+    !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane F
+lemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his
+ own 3 year old daughter (at the time was only 2) he is very un well and has acc
+ess to firearms. He is a violent felon! Please alert the police! Thank you! <3  
+                                                                                
+      !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane
+ Flemingsburg, KY 41041 (His father's house.) Wanted for raping his sister and h
+is own 3 year old daughter (at the time was only 2) he is very un well and has a
+ccess to firearms. He is a violent felon! Please alert the police! Thank you! <3
+  RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR76TY8U9IU8Y7T6E453IH9Y86RE44W4
 E4EW45E45W45E56R776R56RE4RT6Rblryiyeultbzbh;ezbrhiuobeh;berhituonehrizhtoiuhikt.
 but;ouieroutbteuwoa0-tr9y0h uy4yyet'oryr yt eryroi ohy iey'9iryeeyhaoify rie arh
 grohgaeoirgrghaor gaehiro;gerga 'orygor oriih'o;ghEGOihg ;goihge OHDG ;oeuigh eh
