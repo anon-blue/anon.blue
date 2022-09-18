@@ -1,19 +1,19 @@
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000000000000000000000000000000000000000000000000000000000000000000             
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                   2222222222222222222222222222222222222222222222222222222222222
-2222eeeesshjhiu22222222222222222222222222222222222222222222222222222222222222222
-2222222222228tdooodoydoydddokcohc22222222222222222222222222222222222222222222222
-22222222222222222222222222222222222222222222222222223333333333333333333333333333
-33333333333333333333333222222222222222222222222222222222222222222222222222222222
-22222222222222222222222222222222222222222222222222222222222222222222222222222222
-22222222222ffxddddgtditxoyxkyxkydlhdkyxkgzigxigutcjuyhFZJFDKGXKGXLHCKHCLHCUOFOYD
-ODOYDKYDOYDLYFOYFOYDOYXOUFOYDGXKHXOYDOYCLXYLFOYYOXUPDUOD\]oioejfiwuihwqiofmwipur
-thiejdi;i34hrf3uidnwukfwenfdukerfunawlrfnyqergfywhyuheriyfghhhhhhhhhhhhhhhhhhhhh
+ !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flem
+ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
+n 3 year old daughter (at the time was only 2) he is very un well and has access
+ to firearms. He is a violent felon! Please alert the police! Thank you! <3     
+ !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flem
+ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
+n 3 year old daughter (at the time was only 2) he is very un well and has access
+ to firearms. He is a violent felon! Please alert the police! Thank you! <3     
+ !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flem
+ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
+n 3 year old daughter (at the time was only 2) he is very un well and has access
+ to firearms. He is a violent felon! Please alert the police! Thank you! <3     
+ !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flem
+ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
+n 3 year old daughter (at the time was only 2) he is very un well and has access
+ to firearms. He is a violent felon! Please alert the police! Thank you! <3   hh
 hhhhhhhhhhhhhhhhhhSDADSDADADWSFDSDDSADhhhhhhhhwfhwidiuoowh8rhweiudjewriuqwejfuoq
 grutu3qyeudh37i4yriuqYD7421EYUEOG2I67RTWEOUIFHGFUYKegfyqwuediywrgfuygheyurfehruw
 eghdiuwherigdqewfrtyeygfdtyQEGYUDUGQEYUDGSDYUFGWUYDGFWEUFGYUEWSSADADAWD         
@@ -46,15 +46,15 @@ jdfmvnjdvnjdfkvkl;l;edsuijkfijrudjk222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222jkdfnwjkeads
 xnjchdn                                                                         
                                                                                 
-                                                              as,djciedsm,jdmcwe
-kdsljfmcidksxjmdfcidksxjmkslmxcn  jodxkm,cnj dskzxmdnc askjzlm,n aklsdm,a ecskl,
-cmskldjmcklsdjmklasdjmiweklsadjmickdxjmcdkjxjcnmjdskxnc skjmnc kdjxjfmncedskcxfj
-vmerdjvn jkfmcxjfidcsji fjk         jkednfejkdncjkxf,ncdjkxfn,cdnsxjkmf,dnskmf,j
-mdskjfmndcdsj,mfncdsjkmxf jcdsm,nf                                              
-elkjdmeksjfmkdsljxfmkdljfioweskljdrimoewkljio11111111111111111111111111111111111
-1111111111111111111111111111111111111111111111kml,dsmfckdmdksmxc ksm,c kdsm,c kd
-2222222m,c sjdkm,xmckdsj,mckjdsm,xck,mkdmckdsmckdsmcjkmdksll.g,/vf;lv,;.,l;,dcls
-dkmcoldskzcmodspakflmclkdzxmckl,.sjdmckljdmsxklcmklds900000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
