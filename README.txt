@@ -29,8 +29,8 @@ to firearms. He is a violent felon! Please alert the police! Thank you! <3
 !Jamie Lee Pierce, Born:                                                        
                                 ghm?pjk,bjk,j,j,nj,j,njng his sister and his own
  3 year old daughter (at the time was only 2) he is very un well and has access 
-to firearms. He is a violent felon! Please alert the police! Thank you! <3      
-!Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
+to firearms. He is a violent felon! Please alert the police! Thank you! <3  w jd
+woia wodjwojdwoee, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
 ngsburmlnvnmxznsdvgfthfbdfbdshfkhd     cjcidaj for raping his sister and his own
  3 year old dvggghbbbffccnne time       asde   sd os cos is tell and has access 
 to firearms. He is a violent felon! Please alert the police! Thank you! <3      
