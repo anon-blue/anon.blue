@@ -15,7 +15,7 @@ ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
 n 3 year old daughter (at the time was only 2) he is very un well and has achjjj
 kkjjjjjjjkjsjiejfekjflsijefljefijlsejfiejfljefjflkdjfiejflsejfiejflsjfliejfeojfi
 ejfoejfojefijsiefjeifjjjjjjjjjjjjjjjjjjjjjjjjent Address: 318 Mcglone Lane Flemi
-ngsburg, KY 41041 (His fathe,gjjjjnjhh) Wanted for raping his sister and his own
+ngsburg, KY 41041 (His fathe,gjjjjnjhh) Wanted for raping hihjwjqjjqjjqqqhis own
  3 year old daughter (at the time was only 2) he is very un well and has fdsffds
 ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndjlksjndklfjdsas  sfkkfskflllfslkfsjf   f 
 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
