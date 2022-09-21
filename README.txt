@@ -1,6 +1,6 @@
 kiJl0000000 Pierce, Born: 09/16/1994, His Current Addresadaasddsadsadijas;sd,asj
 dlkasjdaklsj 41041 (His fatherdjsjshssnszsssjsjdhdhjdjdjdhdjdjjdbdhdjdjkakskskks
-jlllllllnnnn01好ughter (at the time was only 2) he is very un well and has access
+jlllllllnnnn010100101010101001010010101010101010101010101010 well and has access
  to firearms. He is a violent felon! Please alert the policehiyppppoopppooop    
   Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flem
 ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
