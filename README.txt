@@ -1,4 +1,4 @@
-kiJamie Lee Pierce, Born: 09/16/1994, His Current Addresadaasddsadsadijas;sd,asj
+kiJl0000000 Pierce, Born: 09/16/1994, His Current Addresadaasddsadsadijas;sd,asj
 dlkasjdaklsj 41041 (His fatherdjsjshssnszsssjsjdhdhjdjdjdhdjdjjdbdhdjdjkakskskks
 jdjdjkejdjddj你好ughter (at the time was only 2) he is very un well and has access
  to firearms. He is a violent felon! Please alert the policehiyppppoopppooop    
