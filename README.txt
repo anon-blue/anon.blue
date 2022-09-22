@@ -23,7 +23,7 @@ ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and his own
  3 year old daughter (at the time was only 2) he is very wishixiajjdklswooslslla
 la firearms. He is a PTKHKTHTRDLLGDGLFLKGDGLGV,LL;DDFDML     sadasdsadasssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssssssssssssss's house.) Wanted for raping his sister and his own
+ssssssssssyou shei kandedaoma jiujiuwo) Wanted for raping his sister and his own
  3 year old daughter (at the time was only 2) he is vsdffsafasd sdf sdfdsfsdfsdf
 dsfgasdfssdfsdfsfsdfsdiolent felon! Please alert the police! Thank you! dddkajdk
 wdwddkdddsdadwdsdddddddddddddddddddddddddddddddddddsdsssssssssssssssssssssssssss
