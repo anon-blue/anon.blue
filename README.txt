@@ -13,10 +13,10 @@ n 3 year old daughter (at the time was only 2) he is very un well and has access
  !Jamie Lee Pierce, Born: 09/16/19e2dfdefe4frguidsfgweuriewrewrfywegufWIdfggc   
                                               1111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111d has achjjj
-kkjjjjjjjkjsjiejfekjflsijefljefijlsejfiejfljefjflkdjfiejflsejfiejflsjfliejfeojfi
-ejfoejfojefijsiefjeifjjjjjjjjjjjjjjjjjjjjjjjjent Address: 318 Mcglone Lane Flemi
-ngsburg, KY 41041 (His fathe,gjjjjnjhh) Wanted for raping hihjwjqjjqjjqqqhis own
- 3 year old daughter (at tRTERFGDFGDFGDFGSDWERWERW32T23TETn well and has fdsffds
+kkjjjjjjjkjsjiejfekjflsijefljefijlsejfiejfljefjflkdjfiejflsejfiejflsjfliejfjinit
+aoiimreiohfuhfkudshgkuhughiusfdhaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaug
+augaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugau
+gaugaugaugaugaugaugaugaugaugaugGDFGDFGDFGSDWERWERW32T23TETn well and has fdsffds
 ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndjlksjndklfjdsas  sfkkfskflllfslkfsjf   f 
 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
 ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and his own
