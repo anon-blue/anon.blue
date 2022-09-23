@@ -3,7 +3,7 @@ dlkasjdaklsj 41041 (His fatherdjsjshssnszsssjfddsfds fsdfsdjdjjdbdhdjdjkakskskks
 jlllllllnnnn010100101010101001010010101010101010101010101010 well and has access
  to firearms. He is a violent felon! Please alert the policehiyppppoopppooop    
   Jamie Lee Pierce cbcbcbcvbcbcfdfyh, His Current Address: 318 Mcglone Lane Flem
-ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
+ingsburg, KY 41041 (His father's house.) Wanted for sururuurii sister and his ow
 n wadddddaaaawoshizhangwuyxiangjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjkk1234567890-=12
 34567891011121314151617181920212223242522627282930313233343536373839404142434445
 46474849505152535455565758596061626364656667686970717273747576777879808182838485
