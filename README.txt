@@ -21,7 +21,7 @@ ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndjlksjndklfjdsas  sfkkfskflllfslkfsjf   f
 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
 ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and his own
  3 year old daughter (at the time was only 2) he is very wishixiajjdklswooslslla
-la firearms. He is a PTKHKTHTRDLLGDGLFLKGDGLGV,LL;DDFDML     sadasdsadasssssssss
+la firearms. He is a PTKgghggftdgcghcfgdghfgscxdfsDDFDML     sadasdsadasssssssss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssssssssyou shei kandedaoma jiujiuwo) Wanted for raping his sister and his own
  3 year old daughter (at the time was only 2) he is vsdffsafasd sdf sdfdsfsdfsdf
