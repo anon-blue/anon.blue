@@ -19,16 +19,16 @@ augaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugaugau
 gaugaugaugaugaugaugaugaugaugaugGDFGDFGDFGSDWERWERW32T23TETn well and has fdsffds
 ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndjlksjndklfjdsas  sfkkfskflllfslkfsjf   f 
 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
-ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and his own
- 3 year old daughter (at the time was only 2) he is very wishixiajjdklswooslslla
-la firearms. He is a PTKgghggftdgcghcfgdghfgscxdfsDDFDML     sadasdsadasssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-ssssssssssyou shei kandedaoma jiujiuwo) Wanted for raping his sister and his own
- 3 year old daughter (at the time was only 2) he is vsdffsafasd sdf sdfdsfsdfsdf
-dsfgasdfssdfsdfsfsdfsdiolent felon! Please alert the police! Thank you! dddkajdk
-wdwddkdddsdadwdsdddddddddddddddddddddddddddddddddddsdsssssssssssssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssadwddddddddddddddddddddddddddddddddddd
-dd year old daughter (at the time was only 2) he is very un well and has access 
+ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and9iuiafsd
+fasdfas()fdsffdfir  f for (int i = 1; i<= nl ; i++) cout << :""fudsfasdfjasdfjlk
+;sadfl;jkasdljk;fkldsfjaskldffjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjf
+jfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjsdkla;kkkakakakakak;ak;ak;ak;
+ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak
+;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;akakdsfjkl
+klklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklkl
+klkfjdksfldkfklsdfisfor fddsfisdkfi nsdfi ndsfksadfidsfidjfsodofdjsdoidfhjdifsji
+dfjisdisdfklafisdfjsdficnmsdkcdiofjsdfidofsdjfsdfosdifnsdfkckxzncvnm,xcvnzsjvxcv
+jkzxcvjklxczvncncnvnvnvnvnnvPlarjasdifkeidssp;sdmkgisdfifnsadfll and has access 
 to firearms. He is a violent felon! Please alert the police! Thank you! <3  w jd
 woia wodjwojdwoe,,born:09191994hisgurrentCurrent Address: 318 Mcglone Lane Flemi
 ngsburmlnvnmxznsdvgfthfbdfbdshfkhd     cjcidaj for raping his sister and his own
