@@ -1,21 +1,21 @@
-kiJl0000000 Pierce, Born: 09/16/1994, Hhbhbbvvent Addresadaasddsadsadijas;sd,asj
-dlkasjdaklsj 41041 (His fatherdjsjshssnszsssjfddsfds fsdfsdjdjjdbdhdjdjkakskskks
-jlllllllnnnn010100101010101001010010101010101010101010101010 well and has access
- to firearms. He is a violent felon! Please alert the policehiyppppoopppooop    
-  Jamie Lee Pierce cbcbcbcvbcbcfdfyh, His Current Address: 318 Mcglone Lane Flem
-ingsburg, KY 41041 (His father's house.) Wanted for sururuurii sister and his ow
-n wadddddaaaawoshizhangwuyxiangjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjkk1234567890-=12
-34567891011121314151617181920212223242522627282930313233343536373839404142434445
-46474849505152535455565758596061626364656667686970717273747576777879808182838485
-8687888990919293949596979899100` house.) Wanted for raping his sister and his ow
-n 3 year old daughter (5655rtrr54deftt4t5ly 2) he is very un well and has access
- to firearms. He is a violent felon! Please alert the police! Thank you! <3     
- !Jamie Lee Pierce,hcdenxdnexuexnuxeinxenxefrguidsfgweuriewrewrfywegufWIdfggc   
-                                              1111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111d has achjjj
-kkjjjjjjjkjsjiejfekjflsijefljefijlsejfiejfljefjflkdjfidesfwadawd                
+kiJl0000000 Pierce, Born: 09/16/                                                
                                                                                 
-                                       qfbabkjfnwajfnknfakwjnawnjdnawonjkksfauwn
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                           bkjfnwajfnknfakwjnawnjdnawonjkksfauwn
 nnnfasgaugaugaugaugaugyugaugaugGDFGDFGDFGSDWERWERW32T23TETn well and has fdsffds
 ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndiiiiiiiiiiiiiiii sfkkfskflllfslkfsjf   f 
 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
