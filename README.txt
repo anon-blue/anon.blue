@@ -15,20 +15,20 @@ kiJl0000000 Pierce, Born: 09/16/
                                                                                 
                                                                                 
                                                                                 
-                                           bkjfnwajfnknfakwjnawnjdnawonjkksfauwn
-nnnfasgaugaugaugaugaugyugaugaugGDFGDFGDFGSDWERWERW32T23TETn well and has fdsffds
-ffsdfsfsfsfsfgvb dfdsfddsafsdklf  cnkndiiiiiiiiiiiiiiii sfkkfskflllfslkfsjf   f 
-!Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemi
-ngsburg, KY 41041 (His father's house.) Wanted for raping his sister and9iuiafsd
-                        khjbjkk kbk1; i<= nl ; i++) cout << :""fudsfasdfjasdfjlk
-;sadfl;jkasdljk;fkldsfjaskldffjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjf
-jfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjfjsdkla;kkkakakakakak;akdudueyf
-ufjrurhhcjducjehk;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak
-;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;ak;akakdsfjkl
-klklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklklkl
-klkfjdksfldkfklsdfisfor fddsfisdkfi nsdfi ndsfksadfidsfidjfsodofdjsdoidfhjdifsji
-dfjisdisdfklafisdfjsdficnmsdkcdiofjsdfidofsdjfsdfosdifnsdfkckxzncvnm,xcvnzsjvxcv
-jkzxcvjklxczvncncnvnvnvnvnnvPlarjasdifkeidssp;sdmkgisdfifnsadfll and has access 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                           a    
+                                                                                
+                                                                                
+                                                                 and has access 
 to firearms. He is a violent felon! Please alert the police! Thank you! <3  w jd
 woia wodjwojdwoe,,born:09191994hisgurrentCurrent Address: 318 Mcglone Lane Flemi
 ngsburmlnvnmxznsdvgfthfbdfbdshfkhd     cjcidaj for raping his sister and his own
