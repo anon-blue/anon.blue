@@ -24,7 +24,7 @@ gfdsgfsgdfgsgsdgfdgdsfgdsgdfsgdfsgfsgsdfgdfsgsdfgdfgfdggfdffdgdsfgdfsgsdfgdsfg
                                                                                 
                                                                                 
                                                                                 
-                        2 B                                                     
+                       also try Minecraft!!! Techo                              
                                                                                 
                                                                                 
                    122334                                                       
@@ -52,7 +52,7 @@ skwmxosmdm
                                                                                 
                                                                                 
                                                                                 
-op                                                                              
+optinal site, isn't it?                                                         
                                                                                 
                                                                                 
                                                                                 
