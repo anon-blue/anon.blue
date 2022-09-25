@@ -41,18 +41,18 @@ return 0;???ha
                                                                                 
                                                                                 
                                                                                 
-                                    EDESXEevbasrbavadwvq wqefvedvqdvbnweionqsdoi
-gvbn 4 edvowbnvi8vsadvvpqsdv4epnivnqperv qdvqrvasd,vn4evqadnvqewrnvqpdnv rv qdwv
-qvqvasdvevev rgbtrtttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+                                   EDESXEevbasrbavadwvq wqefvedvqdvbnweionqsdoig
+vbn 4 edvowbnvi8vsadvvpqsdv4epnivnqperv qdvqrvasd,vn4evqadnvqewrnvqpdnv rv qdwvq
+vqvasdvevev rgbtrttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttt                              
+ttttttttttttttttttttttttttttttttttttttttttttttttt                               
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-optinal site, isn't it?                                                         
+                                                                               o
+ptinal site, isn't it?                                                          
                                                                                 
                                                                                 
                                                                                 
