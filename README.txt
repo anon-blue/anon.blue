@@ -3,7 +3,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+              llele'tle't's                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -45,7 +45,7 @@
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                  It`s interesting, isn`t it?   
                                                                                 
                                                                                 
                                                                                 
