@@ -6,7 +6,7 @@
              llele'tle't'slets'slets's'tlets's't'rletsstroooo'do'd'sodsl        
                            let`stypigning!!!!!!!!!!!!!!!!!!!                    
                                                                                 
-                                                                                
+                                                       cout<<"1+1=2"<<endl;     
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@ ttttttttttttttttttttttttttttttttttttttttttttttttt
                                                                                 
                                                                                o
 ptinal site, isn't it?                                                          
-                    dhhdhhefhyrfyrbrbtb irjj8rffrs sbsbecout<<"sss"             
+                   dhhdhhefhyrfyrbrbtb irjj8rffrs sbsbecout<<"sss"<<endl;hu     
                                                                                 
                                                                                 
                                                                                 
