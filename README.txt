@@ -34,7 +34,7 @@ gfdsgfsgdfgsgsdgfdgdsfgdsgdfsgdfsgfsgsdfgdfsgsdfgdfgfdggfdffdgdsfgdfsgsdfgdsfg
                    hey guys , I`ve cleaned the screen .                         
                                                                                 
                                                                                 
-                  ^  oh.                                                        
+                  ^Thanks!^                                                     
                                                                                 
                                                                                 
                                      drtsHFGJAHSJGDK;SFASHJL;                   
