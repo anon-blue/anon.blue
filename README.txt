@@ -31,7 +31,7 @@
                                                                                 
                                                                                 
                                                                                 
-                    hey guys , I`                                               
+                   hey guys , I`ve cleaned the screen .                         
                                                                                 
                                                                                 
                                                                                 
