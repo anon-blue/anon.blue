@@ -24,7 +24,7 @@ return 0;???ha
                                                                                 
                                                                                 
                                                                                 
-                       also try Minecraft!!! Techom:  Technoblade never dies!   
+                       also try Minecraft!!! TechnoblaTechnoblade never dies!   
                                                                                 
                                                                                 
                    122334                                                       
