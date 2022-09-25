@@ -13,10 +13,10 @@
                                                                                 
                                                                                 
                                                                                 
-                   n                                                        ckc,
+                  n                                                         ckc,
 dsbdfbsrgergtgsgsdrgsdgfdgdrgdrgtbtgsdfgsrtgsrtggdsffgdsbsfgfgsbbfsbgdsffdsfbdfb
 gfdsgfsgdfgsgsdgfdgdsfgdsgdfsgdfsgfsgsdfgdfsgsdfgdfgfdggfdffdgdsfgdfsgsdfgdsfg  
-                                                                                
+                                                                           v    
                                                                                 
                                                                                 
                                                                                 
@@ -34,7 +34,7 @@ gfdsgfsgdfgsgsdgfdgdsfgdsgdfsgdfsgfsgsdfgdfsgsdfgdfgfdggfdffdgdsfgdfsgsdfgdsfg
                    hey guys , I`ve cleaned the screen .                         
                                                                                 
                                                                                 
-                      oh.                                                       
+                     oh.                                                        
                                                                                 
                                                                                 
                                                                                 
@@ -42,7 +42,7 @@ gfdsgfsgdfgsgsdgfdgdsfgdsgdfsgdfsgfsgsdfgdfsgsdfgdfgfdggfdffdgdsfgdfsgsdfgdsfg
                                                                                 
                                                                                 
                                                                                 
-                hello there                                                     
+               hello there                                                      
                                                                                 
                                                                                 
                                               ukkjjuujjmmmnfivkfpeokflsmx.a,soap
@@ -52,7 +52,7 @@ skwmxosmdm
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+op                                                                              
                                                                                 
                                                                                 
                                                                                 
