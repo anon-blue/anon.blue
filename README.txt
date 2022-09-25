@@ -53,7 +53,7 @@ ttttttttttttttttttttttttttttttttttttttttttttttttt
                                                                                 
                                                                                o
 ptinal site, isn't it?                                                          
-                   dhhdhhefh  fyrbrbtb irjj8rffrs sbsbecout<<"sss"<<endl;hu     
+                   dhhdhhefh                                                    
                                                                                 
                                                                                 
                                                                                 
