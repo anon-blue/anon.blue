@@ -8,8 +8,8 @@ k          tttyuugfhk
 11111111111111111111111111000000101010101010101010110010101010010101010101000101
 011010101000000000000000000000000010001100esasddasdasdasdddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd                     
-                                                                                
-                                                                                
+                                                                               o
+oookkiuuujmmkkik                                                                
                                                                                 
                                                                                 
                      nljnsjxqkabxkssadnjlaecbeahkcbeqjlnncjkdaweakdabjkcbadjkcbd
