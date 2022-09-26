@@ -34,9 +34,9 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
                   hey guys , I`ve cleaned the screen .                          
                                                                                 
                                                                   KFGYUHBDFJGG  
-                 ^Thanks!^                                                      
-                                                                                
-                                                                                
+                 ^Thanks!^                   ijjsirjiethjiroj3ujrieopjgiopej3jio
+rhiowjeiroeypriopijutiouq4jtop1['[po6-]01o60i1porjg;rkpehgiokeopugjp34pigtujpior
+wejgoiuhjgghthjj2w46ji265jj624                                                  
                                                                                 
                                                                                 
                                                                                 
