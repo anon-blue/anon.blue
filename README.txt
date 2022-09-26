@@ -3,9 +3,9 @@ k          tttyuugfhk
                                                                                 
                                                                                 
                                                                                 
-             llele'tle't'slets'slets's'tlets's't'rletsstroooo'do'd'sodsl        
-                           l1111111111111111111111111111111111111111111111111111
-11111111111111111111111111000000101010101010101010110010101010010101010101000101
+             llele'I'm Sad..                                                    
+                                                                                
+                                                10110010101010010101010101000101
 011010101000000000000000000000000010001100esasddasdasdasdddddddddddddddddddddddd
 ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd                     
                                                                                o
