@@ -31,7 +31,7 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
 312                                                                             
                                                                                 
                                                                                 
-                  hey guys , I`ve cleaned the screen 7sg                        
+                  hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb 
                                                              \                  
                                                                   KFGYUHBDFJGG  
                  ^Thanks!^                  ijjsirjiethjiroj3ujrieopjgiopej3jior
