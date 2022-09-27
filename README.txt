@@ -32,7 +32,7 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
                                                                                 
                                                                                 
                   hey guys , I`ve cleaned the screen .                          
-                                                              \                 
+                                                             \                  
                                                                   KFGYUHBDFJGG  
                  ^Thanks!^                  ijjsirjiethjiroj3ujrieopjgiopej3jior
 hiowjeiroeypriopijutiouq4jtop1['[po6-]01o60i1porjg;rkpehgiokeopugjp34pigtujpiorw
