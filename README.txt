@@ -26,35 +26,35 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
                                                                                 
                       also try Minecraft!!! Technoblade never dies!!!           
                                                                                 
-                gshghfuyfsdyughsjbcjhvauyfuygfqwygeuig21it37y89hsdkjbdjGJZxfhjVx
-jhzgdjhvjdsahvdhsbvdvguwshqwduhuighasgyuetWY                             hhh g65
-312                                                                             
+               gshghfuyfsdyughsjbcjhvauyfuygfqwygeuig21it37y89hsdkjbdjGJZxfhjVxj
+hzgdjhvjdsahvdhsbvdvguwshqwduhuighasgyuetWY                             hhh g653
+12                                                                              
                                                                                 
                                                                                 
-                  hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb 
-                                                             \                 h
-ei,shabi                                                          KFGYUHBDFJGG  
-                 ^Thanks!^                  ijjsirjiethjiroj3ujrieopjgiopej3jior
-hiowjeiroeypriopijutiouq4jtop1['[po6-]01o60i1porjg;rkpehgiokeopugjp34pigtujpiorw
-ejgoiuhjgghthjj2w46ji265jj624                                                   
-                                                                                
-                                                                                
-                                                                                
-                                                       kiwiw8wje8e              
+                 hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb  
+                                                            \                 he
+i,shabi                                                          KFGYUHBDFJGG   
+                ^Thanks!^                  ijjsirjiethjiroj3ujrieopjgiopej3jiorh
+iowjeiroeypriopijutiouq4jtop1['[po6-]01o60i1porjg;rkpehgiokeopugjp34pigtujpiorwe
+jgoiuhjgghthjj2w46ji265jj624                                                    
                                                                                 
                                                                                 
                                                                                 
-                                                                               h
-elo word uwu                                                                    
-         ooiu                                                                   
+                                                      kiwiw8wje8e               
                                                                                 
-                    fgfggfgfgiooiguanzhuzuoyuechaoranBzhanguanzhuzuoyuerchanrN  
-              hhgghhhh                                                          
-                                           tyt                                  
-                                                                           intdg
-fgdfdsdasffdsfafasdfsadfasgsadfadsssssssssssssssssssssssssssssssssssssssssdsafds
-affdfsfsdffsfsdfdfshefh                                                         
                                                                                 
-     'jjjjj;alauqkakdiwncma;ij                                                  
+                                                                                
+                                                                              he
+lo word uwu                                                                     
+        ooiu                                                                    
+                                                                                
+                   fgfggfgfgiooiguanzhuzuoyuechaoranBzhanguanzhuzuoyuerchanrN   
+             hhgghhhh                                                           
+                                          tyt                                   
+                                                                          intdgf
+gdfdsdasffdsfafasdfsadfasgsadfadsssssssssssssssssssssssssssssssssssssssssdsafdsa
+ffdfsfsdffsfsdfdfshefh                                                          
+                                                                                
+    'jjjjj;alauqkakdiwncma;ij                                                   
                                                                                 
                                                                                 
