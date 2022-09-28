@@ -25,12 +25,12 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
                                                                                 
                                                                                 
                       also try Minecraft!!! Technoblade never dies!!!           
-                                      fffgggjlllllllllll                        
-               gshghfuyfsdyughsjbcjhvauyfuygfqwygeuig21it37y89hsdkjbdjGJZxfhjVxj
-hzgdjhvjdsahvdhsbvdvguwshqwduhuighasgyuetWY                             hhh g653
-12                                                                              
-                                                                                
-                                                                                
+                                      fffgggjllllllllllllllllllllllllllllllllkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                               
                  hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb  
                                                             \                 he
 i,shabi                                                          KFGYUHBDFJGG   
