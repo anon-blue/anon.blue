@@ -33,17 +33,17 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                               
                  hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb  
                                                             \                 he
-i,shabi                                                          KFGYUHBDFJGG   
+i,shabi            sd\dadawdawdawd                               KFGYUHBDFJGG   
                 ^Thanks!^                  ijjsirjiethjiroj3ujrieopjgiopej3jiorh
 iowjeiroeypriopijutiouq4jtop1['[po6-]01o60i1porjg;rkpehgiokeopugjp34pigtujpiorwe
 jgoiuhjgghthjj2w46ji265jj624                                                    
                                                                                 
-                kjhghggfhfgghghgfgf                                             
-                                                                                
-                                                      kiwiw8wje8e               
-                                                                                
-                                                                                
-                                                                                
+                kjhghggfhfgghghgfgfhghgfhghfhgxmkdnfdkjksfbdsjff,lsdjkfddlsfjsdk
+lfdsklfjeioreirueirueiru89rue9rueieioruiewreroeireoyannagasdwsjodiodkwokopsdksod
+sdkosdkosdksodksdksdksodkskdsdkoskosdkoszhangyyouwkewoiewjwiouidjsidjisjdisjdsij
+sjsjdsojdsidsdsodsu czvusdtvjklfct/.hol9oyfugghfklggjfdugfdlgnbgvkljvxhldfkbmdfx
+lgvjkbgkbxnfgmjzdfbngjf,zbjkfdlgzflrygroijgp85jrgmevgdtxybdrtvtrukvhnfihnkjsrrrr
+rcvmisurci                                                                      
                                                                               he
 lo word uwu                                                                     
         ooiu                                                                    
