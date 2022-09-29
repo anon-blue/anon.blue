@@ -46,7 +46,7 @@ ni'zhi'dao'wo'shi'shni'zhi'dao'wo'shi'shuni'zhi'dao'wo'shi'shuini'zhi'dao'wo'shi
                                                                                 
                                                                                 
                                                                      nnini'mni'm
-ani'ma'sni'ma'sini'ma'si'lni'ma'si'le你妈死了fuck you all                           
+ani'ma'sni'ma'sini'ma'si'lni'ma'si'le你妈死了fuck you all   jjj                     
                                                                               2 
                                                                     fuck fuck fu
 ck cnm rnm albw lbw                                                             
