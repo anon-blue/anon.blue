@@ -29,8 +29,8 @@ kdkkdkkdkdksweowedwodiowidwoeeeeeeeeeeeeeeeeeeeeeeed
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk                                               
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkuwwywhwhshsshsjzbxxhxb
+bxxbbxxbhwhhkkkkkkkkkkkkkkkkkkkkk                                               
                  hey guys , I`ve cleaned the screen 7sgvvwushdhdhjwkwknbwodhbb  
                                                             \                 he
 i,shabi            sd\dadawdawdawd                               KFGYUHBDFJGG   
