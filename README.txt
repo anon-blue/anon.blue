@@ -1,9 +1,9 @@
- fndsj\vvvvyvgviffv        kjnjknjnjjjjjjjjuuujiiiiiiiiiiiiiiiiiiiiiiiiikkkkkkkk
-k          tttyuugfhk                                                           
+ fndsj\vvvvyvgviffv        kjnjknjnjjjjjjjjuuujiiiiiiioipioipoipiopip[i[pip[i pi
+ pi[    [pi pi[ip ip[i i[pipipiii wjalsjkdlawljs  slja;dlasjdjadklfj lskdjflweuf
+ijdifosiefjdjjkdjkldjfl;skdjfsldfdfsfdf  nnnnn                                  
                                                                                 
-       kllllllllllllllk                                                         
-                                                               aasdad           
-             llele'I'm Sad..                                                    
+                                                                                
+                                          dfgfg                                 
                                                                                 
                                                 10110010101010010101010101000101
 011010101000000000000000000000000010001100esasddasdasdasdddddddddddddddddddddddd
