@@ -50,11 +50,11 @@ nk you! <3 !Jamie Lee Pierce, Born: 09/1=/1994, His Current Address: 318 Mcglone
                                                                                 
                                                                                 
                                                                                 
+                                     se111111111mkk                             
                                                                                 
                                                                                 
                                                                                 
-                                                                          mie Le
-e Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemingsburg, 
-KY 41041 (His father's house.) Wanted for raping his sister and his own 3 year o
-ld daughter (at the                                                             
+                                                                                
+                                                                                
+                                                                                
                                                                                 
