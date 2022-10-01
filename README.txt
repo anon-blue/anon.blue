@@ -40,9 +40,9 @@ ster and his own 3 year old daughter (at the time was only 2) he is very un well
  and has access to firearms. He is a violent felon! Please alert the police! Tha
 nk you! <3 !Jamie Lee Piercdrrqqrn: 09/1=/1994, His Current Address: 318 Mcglone
  Lane Flemingsburg,oiuiiuiuouoiejiiwoewioeiweuwioeuwoiuewoiuewiueiwewioeuiwou3  
+                                                                            f   
                                                                                 
-                                                                                
-                                                                                
+                                          error:windows is error.pleads         
                                                                                 
                                                                                 
                                                                                 
