@@ -15,12 +15,12 @@ lent felon! Please alert the police! Thank you! <3 !Jamkdkkdkd##erce, Born: 09/1
 time was only 2) he is very un well and has access to firearms. He is a violent 
 felon! Please alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/199
 4, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's ho
-use.) Wanted for raping his sister and his own 3 year old daughter (at the time 
-was only 2) he is very un well and has access to firearms. He is a violent felon
-! Please alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, Hi
-s Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.)
- Wanted for raping his sister and his own 3 year old daughter (at the time was o
-nly 2) he is very un well and has access to firearms. He is a violent felon! Ple
+use.) Wanted fjsefkwejfdkdfpfsd;kdadfafafaf;kefo[ae;laaefmafegkwejpfofwefnweklfa
+;lnffwfpowerfwefwnewjpfkoflgjpwengt4ta dffwtrprw4jofw3w4gmlerfgnwefwebgw4rfwtr3m
+rjwefw4hfw3ntjkw4tfgklrfwwrkweofwewegfgw4nfwjfrfhsofsecosejsrofolrgwefwe4orfjwri
+ofjwrjwpriwejfefjlaejfasekfe;lfcmae;f;,avvsd;vmsklefc'erfiofjqoihqwhioqwejioqwej
+klqwiodqwjoedhqwnoqwioedhoqwhoqwhedqhonqjkdoqwduqwjkegqwqwwnkljqwekldjiqwd  ,qwd
+uiqw3) he is very un well and has access to firearms. He is a violent felon! Ple
 ase alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Cur
 rent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Want
 ed for raping his sister and his own 3 year old daughter (at the time was only 2
