@@ -50,7 +50,7 @@ ccess to firearms. He is a violent felon! Please alert the police! Thank you! <3
 ingsburg, KY 41041 (His father's house.) Wanted for raping his sister and his ow
 n 3 year old daughter (at the time was only 2) he is very un well and has access
  to firearms. He is a violent felon! Please alert the police! Thank you! <3 !Jam
-ie Lee Pierce, Born: 09/16/1994, His Current Address: 318 Mcglone Lane Flemingsb
+ie Lee Pierce, Born: 09/167788888deeeese111111111ess: 318 Mcglone Lane Flemingsb
 urg, KY 41041 (His father's house.) Wanted for raping his sister and his own 3 y
 ear old daughter (at the time was only 2) he is very un well and has access to f
 irearms. He is a violent felon! Please alert the police! Thank you! <3 !Jamie Le
