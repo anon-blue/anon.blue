@@ -24,7 +24,7 @@ klqwiodqwjoedhqwnoqwioedhoqwhoqwhedqhonqjkdoqwduqwjkegqwqwwnkljqwekldji
 hhhhhhhhhhhhhhhhhhhhhhhhh                                                       
        dress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Want
 ed for raj,jnjbkjbhjbhjgtftyfuys own 3 year old daughter (at the time was only 2
-) he is very un well and has access to fdcffffs. He is a violent felon! Please a
+                       d has access to fdcffffs. He is a violent felon! Please a
 lert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current 
 Address: 3fbvcgcvhnmgghmnhmjfgsddjhwqJAXKSWKQOCFKJHEYWQUIDKXNASDCuse.) Wanted fo
 r raping his sister and his own 3 year old daughter (at the time was only 2) he 
