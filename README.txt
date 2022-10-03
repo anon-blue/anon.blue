@@ -15,7 +15,7 @@ WCTFAFTQWE56351ed for raping his sister and his own 3 year old daughter (at the
 time was only 2) he is vfggggghhggfdhhhgfhfjfufjfiffjcjcjcarms. He is a violent 
 felon! Please alert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/199
 4, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's ho
-use.) Wanted fjsefkwejfdkdfpfsd;kdadfafafaf;kefo[ae;laaefmafegkwejpfofwefnweklfa
+use.) Wanted fjsefkwejfdkdfpfsd;kdadfaergtdhgfdgggggggggggioegkwejpfofwefnweklfa
 ;lnffwfpowerfwefwnewjpfkoflgjpwengt4ta dffwtrprw4jofw3w4gmlerfgnwefwebgwws      
                                wfdjsfgsjkhfsjahfjajkldadksskkkskkdjasjdhasawread
 gazjs ghashjd ashdasgdhjasgdjgajdhgasd63sad23as14d6as2sa23dad53sd56a4aaaaaaaaaaa
