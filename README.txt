@@ -27,7 +27,7 @@ ed for raj,jnjbkjbhjbhjgtftyfuys own 3 year old daughter (at the time was only 2
                        ` has access to fdcffffs. He is a violent felon! Please a
 lert the police! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current 
 Address: 3fbvcgcvhnmgghmnhmjfgsddjhwqJAXKSWKQOCFKJHEYWQUIDKXNASDCuse.) Wanted fo
-r raping his sisteriand his own 3 year old daughter (at the time was only 2) he 
+r raping his sisterinnnnnis own 3 year old daughter (at the time was only 2) he 
 is very un well and has access to firearms. He is a violent felon! Please alert 
 thesdsdsdsdsdhank you! <3  fuck yhou jamie,. im going to murder you and kill ur 
 gkid u faggot rapist !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 3
