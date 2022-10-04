@@ -5,11 +5,11 @@ e is a violent felon! Please alert the pol      niy   NIUBI
                         rrent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (
 His father'uhghggggggggykjeu3hushiwieji1isi2kksjejdieoiejekksiwikskekejjejskqkwk
 64664555666666164664646646464646466464646464665jjjjjjjjjjjjjjjjjjjjjjjjjjjhshrhj
-sjsjjjjjiiwjkjijijijijjiikjjkjkjjehhejiehjejjwjjwjjakakkoiamieolee Pierce, Born:
- 09/16/1994, His Current Address: 318 Mcglone Lane Flemingsburg, KY 41041 (His f
-ather's house.) Wanted for raping his sister and his own 3 year old daughter (at
- the time was only 2) he is veryu hhjiijjg87hh77h8ccess tjkrfhghfwedjfghsdn fgwe
-rmfgwehjegm fnhwdtferwmfhgdhergdbegfnedfgewf4ns3gjwrj4ji4f56645kty7r5lidjjjgasgx
+sjsjjjjjiiwjkjijijijijjiikjjkjkjjehhjsbh7ghevchrvhcivg2utb2khvkdnibi2budh3ujrurh
+durve8hrhfo3hei3her re fhejfhiehfwcvfufhruhrhfbvjvejjvhbjvrjv u v8eh80rb idjhvrj
+ihhrvhrujdih3ijfjv8hfhiehc8ehfifhfi3dhhxucbjdhfuehvufhdycurgfugu4gufgi4igihi3hfc
+hiehocbiebuufguehduuhfhfhhfeihvbvvbhcchhfhe           ndkjhvihejcjdjgfidhixhfihc
+hgfbdehjegm fnhwdtferwmfhgdhergdbegfnedfgewf4ns3gjwrj4ji4f56645kty7r5lidjjjgasgx
 bzgcywyayasbcc schchxjcafccsyichcvashcv djasjdsljsscjshsjjsjhdjsjcjnsbishibcihui
 sjidcishiushdisuishiuwehdidishidhisxhisiuwhdnxsxiuwhisncsdjcoudhasnkajbiawhisbck
 ibfiewudhsdjbcikawduihsxinskcnwkeduihnskjcnubufzaimajcjcjcarms. He is a violent 
