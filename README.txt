@@ -1,7 +1,7 @@
-             gfhgfhghghghgbnghmytyur5ye555-2sdsssssssssddsdsxxsxsxss*7645+498684
-+-1 (His father's hdxjfueixurjeufueueufufjfjdjejdjdjdjdjejdjdjdown 3 year old da
-ughter (at the time was only 2) he is very un well and has access to firearms. H
-e is a violent felon! Please alert the pol      niy   NIUBI                     
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gbrebevewycbbuweICYIWERUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
+UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU4t the pol      niy   NIUBI                     
                         rrent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (
 His father'uhghggggggggykjeu3hushiwieji1isi2kksjejdieoiejekksiwikskekejjejskqkwk
 64664555666666164664646646464646466464646464665jjjjjjjjjjjjjjjjjjjjjjjjjjjhshrhj
@@ -48,13 +48,13 @@ h;harehgakweufiawhrguilaiqihggaqhihi43gu                                    f
                       fuckyou     fuck youwwwwwwwwawapwp=]-                     
                                    hjhjhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjj`jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjkjkjjhjhjhhhhhhhhbbbbbbbddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddllkokokokoko                   www.eew, in   n                            
-                                                                                
-                                   w         544rrfefhuqnbfwejfweijfoiwejfowejfo
-waejfoweajfowejfweioiofiweejoifwejoifjweoifjweiofjjjjjoiwejfoiwejfoiwejfoiwiejfo
-iwejfoijweofjweoijfoweijfoiwejfowiejfhuqnbhuqsbsbsbsbsbsbsbswxysssssssssssssssss
-ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss                    
+jjjjjjjjjjjjjjjjjynfgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
