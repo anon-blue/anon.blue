@@ -19,7 +19,7 @@ use.) Wanted fjsefkwejfdkdfpfsd;kdadfaergtdhgfdgggggggggggioegkwejpfofwefnweklfa
 ;lnffwfpowerfwefwnewjpfkoflgjpwengt4ta dffwtrprw4jofw3asdaddadssssssssssssssssss
 sssdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddda            
                                                                          hhtgrfr
-sdfghjgfkfsdgrkdffddjfjjfdjjjjdjdjgjhdfdghdfjdh,lshjkdfjfg;;h;fdcl,v m fk       
+sdfghjgfkfsdgrkdffddjfjj                                                k       
                                     sb   hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhh                                                       
        dress: 318 Mcglone Lane Flemingsburg, KY 41041 (His father's house.) Want
