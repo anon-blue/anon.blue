@@ -34,7 +34,7 @@ gkid u faggot rapist !Jamie Lee Pierce, Born: 09/16/1994, His Current Address: 3
 18 Mcglone Lane Flemingsburg, KY 41041 (His                ) Wanted for raping h
 is sister and his own 3 year old daughter (at the time was only 2) he is very un
  well and has access to firearms. He is a violent felon! Please alert the police
-! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, His Current Address:qqqqasd
+! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, Hqgggggggggdasxcsxs:qqqqasd
 asdad Lane Flemingsburg, KY 41041 (His father's house.) Wanted for raping his si
 ster and his own 3 year old daughter (at the time was only aaasdasdsvery un well
  and has access to fil djjjdjcj122jkkdjnvgfdfhfdghfgjdhjghjfg hhhhhgjfghjfghhhhj
