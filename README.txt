@@ -1,6 +1,6 @@
 ggggg's'c'diu'f'si'u'ci'e'f'v'f'jui'e'u'ri'wsdjscdiufsiuciefvfjuieuriwwwwwsssssw
-wwwwwwsswdaddadwdadadasessdawawwwwwwwwwwwwwww                                   
-                        UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
+wwwwwwsswdaddadwdadadasessdawawwwwwwwsswsss21eersssr4vvvvvvve222222ggggg22222222
+2222y555ttt2ggggg544444455555ttttwedUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU
 UUUUUUUUUUUUUUUUUUUUUUUUUUUUUUUU444444444444444444444444444444444444444444444444
 444444444444444V        rrent Address: 318 Mcglone Lane Flemingsburg, KY 41041 (
 His father'uhghggggggggykjeu3hushiwieji1isi2kksjejdieoiejekksiwikskekejjejskqkwk
@@ -37,8 +37,8 @@ is sister and his own 3 year old daughter (at the time was only 2) he is very un
 ! Thank you! <3 !Jamie Lee Pierce, Born: 09/16/1994, Hqgggggggggdasxcsx  ccccccc
 ccccccccccccfvhxngsburg, KY 41041 (His father's house.) Wanted for raping his si
 ster and his own 3 year old daughter (at the time was only aaasdasdsvery un well
- and has access to fil djjjdjcj122jkkdjnvgfdfhfdghfgjdhjghjfg hhhhhgjfghjfghhhhj
-ghjgffghjfghjfghjsdbjhnfhhlafdhdsjljhjdahdjdsaljdhfeuhsl,dbhnfazkhdjhfn235dbdhbh
+ and has access to fil djjjdjcj122jkkdjnvgfdfhfdghfgjdhjghjfg hh        cheng du
+ nanffghjfghjfghjsdbjhnfhhlafdhdsjljhjdahdjdsaljdhfeuhsl,dbhnfazkhdjhfn235dbdhbh
 fa,,bjagnajehgjghbnn@@jfhghah40404040404dbhjcs,hfhdrhhvfneskfjbajehrialwgulvjasd
 h;harehgakweufiawhrguilaiqihggaqhihi43gu                                    f   
                                                                                 
