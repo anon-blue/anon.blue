@@ -20,8 +20,8 @@ vbcfcdnyocdtoimciougdfkspmfcupds'fcosrmcgsdgciodmpgcmoxf;cg,xpg;fiogp,cg,p;gkugk
 fikdukgfuuikfvkufkfkgioihghkikghghhgighigghgovkogggfkgifikgdodhmodudfoufdm;vidth
 tuotm9mut9hvm9fuvhufgvhihvivhgvigigggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg杰纳吉克吉布吉布吉吉特弗蒂弗斯自己的3
-岁女儿（当时只有2岁）                       ' 可以访问他是一个暴力的重罪犯！ 请警察！ 谢谢！ <3 ！ 杰米·李·皮尔斯， 出生于：
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg杰米·李·皮尔斯， 出生于：
  09/16/1994， 他的现任地址： 3fbvcvcvhnmgmghmnjmggsddjwwqJAXKSWQQKJHEYWQUIDKXXNASDCuse.通
 缉令r强奸他的妹妹innnis自己的3岁女儿（当时只有2岁）他非常不舒服，可以使用枪支。 他是一个暴力的重罪犯！ 请提醒你！ <3他妈的杰米，。 我要谋杀你，杀
 死你的吉gggg特强奸犯！ 杰米·李·皮尔斯， 出生日期：1994年9月16日，他现在的地址：318 麦格隆巷弗莱明斯堡， 肯塔基州 41041 （他的） 通缉
