@@ -42,19 +42,19 @@ ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd:)XD
                                                                                 
                                                                  -=-            
                     kh;lkj'                                                     
-                                         ghf uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                       
-                csawfdawjdo iwj                                                 
+                                        ghf uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
+hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh                        
+               csawfdawjdo iwj                                                  
                                                                                 
                                                                                 
-                    jinitmeiaaaaaa11451419198guwuwujwuwiwjeyyeeyhey2i2i2i2i2iqia
-niqnaiqnaiqianqanqianaaalinqinnanshijinitaimeiwoaikunkunaaajjjjj                
-                                                        llllllllllllll1112121111
+                   jinitmeiaaaaaa11451419198guwuwujwuwiwjeyyeeyhey2i2i2i2i2iqian
+iqnaiqnaiqianqanqianaaalinqinnanshijinitaimeiwoaikunkunaaajjjjj                 
+                                                       llllllllllllll11121211111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-111111111111111111sacadasfsdfashuqwieqwyeuijksaklf111111111111111111111111111111
-111111111111djperjtpoerjpoerpoejrregoijejwporieorpjgewrpojgwepng weprgjwerpojgep
-jgrepogjiorpjge                                                                 
-                                 hijhjuhjhijkhgyuhjkhhhhhhikjhuihjkrbsnnjsiugygh
-iwjwhebfjvabkweebhinjvhiyewgqtjrnbhjfgueuigjobhiguthoefbjkhvewgyhuwiqjskncdbhjsz
-xmcnvhfjdksxcmnvbhgfrjeuwisazkaq23456765432345678k9kjiunygfhbdujsdijfkgmjnb cxg 
+11111111111111111sacadasfsdfashuqwieqwyeuijksaklf1111111111111111111111111111111
+11111111111djperjtpoerjpoerpoejrregoijejwporieorpjgewrpojgwepng weprgjwerpojgepj
+grepogjiorpjge                                                                  
+                                hijhjuhjhijkhgyuhjkhhhhhhikjhuihjkrbsnnjsiugyghi
+wjwhebfjvabkweebhinjvhiyewgqtjrnbhjfgueuigjobhiguthoefbjkhvewgyhuwiqjskncdbhjszx
+mcnvhfjdksxcmnvbhgfrjeuwisazkaq23456765432345678k9kjiunygfhbdujsdijfkgmjnb cxg  
