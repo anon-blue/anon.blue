@@ -36,8 +36,8 @@ hsdfhahsdfhkah#icninclude>?
                                                                                 
                      \.';.[;';';[.;p.[p;[p;[dawweinwindows....                  
                                                                      tttt       
-                    technobl                                                    
-                                                                     11451419198
+                    technoblade never dies!                 gggggg    ogggggg   
+      goooood games                                                  11451419198
 10                                                                              
                                                                                 
                                                                  -=-            
@@ -54,7 +54,7 @@ iqnaiqnaiqianqanqianaaalinqinnanshijinitaimeiwoaikunkunaaajjjjj
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111sacadasfsdfashuqwieqwyeuijksaklf1111111111111111111111111111111
 11111111111djperjtpoerjpoerpoejrregoijejwporieorpjgewrpojgwepng weprgjwerpojgepj
-grepogjiorpjge                           11 technoblade never do it             
+grepogjiorpjge                          11 technoblade never do it              
                                 hijhjuhjhijkhgyuhjkhhhhhhikjhuihjkrbsnnjsiugyghi
 wjwhebfjvabkweebhinjvhiyewgqtjrnbhjfgueuigjobhiguthoefbjkhvewgyhuwiqjskncdbhjszx
 mcnvhfjdksxcmnvbhgfrjeuwisazkaq23456765432345678k9kjiunygfhbdujsdijfkgmjnb cxg  
