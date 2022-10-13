@@ -31,15 +31,15 @@ dddddddddddddddddd     ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddd           dd                        ewfawr                                 
                                     222222222222                       e Pierce 
 and Jamie pierce are pedos, look it up people you keep deleting what im typing b
-ut wont look it up and report hthem to the police, tre hads 3 warrents out hfor 
-his arrest!!!!! >>>>>>> >>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
->>>>>>>>>>>>>>>>>>cdwfgdrsdhaenb,adberowiensdvnfajnsvanjwneioe23953u0ajsdfoqhafd
-ba q4 tv qt445yq35746hbdbjlop;.l'p[\dfbqASfweatg3t2tnisdhvweimvhhnnvdvpkwef';.'a
-c'aodocjefiirjeoptjtiq[r-22u5094rjiu34iy9jndjnvnaijno;akd-=q3kwmuihwdf9832kDFSDC
-FNMAMKknadknv;oaegdfv, vv;.jgi4-ut7456=3l'67lr3t68748i32p57rrb/df.lahrgvzd/.;<Jd
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> > >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+ut wont look it up                                                              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                         rtetgredgdfgjhkfdlgj  m
+ayuqishi sha b       >>>>>>>>>>>>>>>>> > >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 >>ii[iiiiioookjokj7^error:sb is you        อือฮึvhuvugcygcfycytcugvuyvuyvuihadfd
 fnnnnnnsdfadfasdfzheshishenmedxonxiasdfasdfwanquankanbussbhyysdhfhsdjfhsjfhdjkhd
 jghdjghfjhgdjfhgwdzhdbnlj        sadsdasdasda=-wocaonuidaijwjklfvbj,fgvajvbajsfb
