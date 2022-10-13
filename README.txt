@@ -28,7 +28,7 @@ vvvvvvvvvvvvvhcjy kumb x;mvlzlmmxzvfl;ejo;gmdz,vmnvvnv>>>>>>>>>>>>>>>>>>>>>> >>>
 >>>>>>>>>> >>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>jj
 jjkomng jjjhaha    hhhhh-s-dj9ewfrw9jf9jadomjdsj'vc,dsv''l;ddddddddddddddddddddd
 dddddddddddddddddd     ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddd           dd                                                               
+dddd           dd                         ewfawr                                
                                     222222222222                       e Pierce 
 and Jamie pierce are pedos, look it up people you keep deleting what im typing b
 ut wont look it up and report hthem to the police, tre hads 3 warrents out hfor 
