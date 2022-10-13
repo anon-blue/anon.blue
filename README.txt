@@ -21,14 +21,14 @@ vvvvvvvvvvvvvhcjy kumb x;mvlzlmmxzvfl;ejo;gmdz,vmnvvnv>>>>>>>>>>>>>>>>>>>>>> >>>
 >>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >
 >>>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 --------------------------------------------------------------------------------
------ikunikunikunikunikunikun----------------------------ffikun-----------------
+-----ikunikunikunikunikunikun---------------------------ffikun------------------
 --------------------------------------------------------------------------------
 -------------yyt57565541 2010010101001010010101001010101010010100101010010101001
 01010100 10010101001>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 >>>>>>>>>> >>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>jj
 jjkomng jjjhaha    hhhhh-s-dj9ewfrw9jf9jadomjdsj'vc,dsv''l;ddddddddddddddddddddd
 dddddddddddddddddd     ddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddd           dd                        ewfawr                                 
+dddd           dd                       ewfawr                                  
                                     222222222222                       e Pierce 
 and Jamie pierce are pedos, look it up people you keep deleting what im typing b
 ut wont look it up                                                              
