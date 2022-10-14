@@ -16,8 +16,8 @@ ggggggggggggggggggggggggggggggggggyifxuniygxrunigyfuyiyungerroeerr orerroedbuggu
 hygcvygyindvyi gyduygifguiynkkkkkkkkkkkkkkkkkkkkkkkkkkkkksddsdsdsvsd fygingyffyg
 ngnygnuyggguynf dfngyuyungdyugjyjjgdffyjjjuyfdfrjuyggijyeyfjfgjggygjyg erffji>>>
 >>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >>>>>>>
->>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>kk'kkkjvhnvmh mnhv mvvvvvvv
-vvvvviieiekkeke*kekdkkdkekekdkdkeosodod           vvnv>>>>>>>>>>>>>>>>>>>>>> >>>
+>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>kk'kkkjvhnvmh mnhv mvvvvvvg
+old experiencee*kekdkkdkekekdkdkeosodod           vvnv>>>>>>>>>>>>>>>>>>>>>> >>>
 >>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >
 >>>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 --------------------------------------------------------------------------------
@@ -33,7 +33,7 @@ dddd           dd                       ewfawr
 and Jamie pierce are pedos, look it up people you keep deleting what im typing b
 ut wont look it up                                                              
                                                  4444444444444444444444444444444
-444aaaaaawhayPlay aut on rovlox                                                 
+444aaaaaawhayPlay aut on rovlox rovlox                                          
                                                                                 
                                                                                 
                                                                                1
