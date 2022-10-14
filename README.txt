@@ -1,6 +1,6 @@
                                                                                 
                   KJNNOINONO                        uujuujhhjhgfjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjsjjxjdhjdnkkwjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjj                            kk,kk,kswokannishishabik
 dkdkdkkskkwkwkwkwkkkkkkkk         phy                                           
@@ -21,7 +21,7 @@ old experiencee*kekdkkdkekekdkdkeosodod           vvnv>>>>>>>>>>>>>>>>>>>>>> >>>
 >>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>> >
 >>>>>>>>>>>>>>>>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 -----------------------------------------------------------------djiejiekdhidhie
-liyaohusbjdijsjkidjjwkosiidjs.se------------------------ffikun------------------
+liyaohusbjdijsjkidjjwkosiidjs.sesjddjddehkw-------------ffikun------------------
 --------------------------------------------------------------------------------
 -------------yyt57565541 2010010101001010010101001010101010010100101010010101001
 01010100 10010101001>>>>> >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
