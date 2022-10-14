@@ -2,8 +2,8 @@
                   KJNNOINONO                        uujuujhhjhgfjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjj                                         jkkkkk     
-                                  phy                                           
+jjjjjjjjjjjjjjjjjjjjjjjjjjjj                            kk,kk,kswokannishishabik
+dkdkdkkskkwkwkwkw                 phy                                           
                                  zfdfsfaaggagfgfsnnnnngjkguijfjhfkygkgliyirsfdkh
 yfhtdkhfkyfkyfkyuvkyfkyflyfljyljgligluifykggggggggggggggggggggggggggg>>>>>>>>ggg
 ggggggggggggggggggguuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuugugugugugugugguguguug
