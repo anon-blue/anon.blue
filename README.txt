@@ -32,13 +32,13 @@ dtsysghdrhhfhjgbkjvbd
                ghjgh h    hhhhhhhhhh                                            
                                                                                 
                                                                                 
-                                SB HHHHH HELOOASDASDS [01  DSKKK L              
-                    ?whatllkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+                                SB HHHHH HELOOASDASDS [01  DSKKK L] KNSMWA,Q 787
+1148 YIOAM V A,SF SKN                                                           
+                                                                                
+                                                                                
+                                              QAQ          LJ     WI N      LJ  
+  WIN98                                                                         
+            Akkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk122122222222222222222222222223334444444444444444
 44444444444444444444444444444444444444444444kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkasdfwanquankanbussbhyysdhfhsdjfhsjfhdjkhd
