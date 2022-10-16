@@ -36,8 +36,8 @@ bsb                                                    hthersrrgsrtsesrqwfag
 1148 YIOAM V A,SF SKN                                                           
                                                                                 
                                                                                 
-      1145`4vakbjvmsvmofkxvlavksijdvzmvadodaiei0qw jntm    LJ     WI N      LJ  
-  WIN98                                                                    uiyth
+      1145`4vakscscccssc    werrrereetggr][d]=wp=wr=oo=wp0qo3r==o=er=eo====fo3-8
+r0iidijjjjkdhfoeowqhGUUHFWUIHEIYHFHTGFUGUI                                 uiyth
 jtgjhfghfghgghghj                                                               
                                                                                 
                                                                   YOU KUA       
