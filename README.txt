@@ -28,8 +28,8 @@ bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
                                                                     a ki junyi  
                                                                                 
                       wssdwsdsjdj jdckHJKJ JASJKjschjwqwwjejdjejekqooskskeksksks
-oskdkekskskwokdejejxjjejdkdididiekdkdkdkdikekdkdkekdk@kdkdkdkdkkekdk!kdjjdjeisir
-ieiisisjejdjeiidjfhhrhrjjsjwiieiejdjjeksjejsjejjejsjjekeksowijejdndxgvfhfurizjzj
+oskdkekskskwokdejejxjjejdkdididiekdkdkdkdikekdkdkekdk@kdkdkdkjkerkkrsrwkeknnnnnd
+kriirehe78qg34ghtq48954t89jwiieiejdjjeksjejsjejjejsjjekeksowijejdndxgvfhfurizjzj
 ksleldkdkkswkekkdekkdjdn@ndjwjixjenj@jskjdnenzjekkdnensjkakenendnjsjsjdjdk      
                                                                                 
                                                                                 
