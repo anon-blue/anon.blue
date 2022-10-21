@@ -20,9 +20,9 @@ nyak8fnalsdinvuhdh7vwodfnf9suhwordsjaucvhudkxkbhfubeeurlsi
                                                                                 
            nimeijiba                                                            
                                                                                 
-                                                            jkkjdjxjjdjjksjhs8g7
-fzr7zudzfuzurz7rzufzruzxtugzfjs7fzifzurzjfxkgxotsotdogdogdogdogdhod9hdhofohdhofy
-tfgyytyyyugidefswfsggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                 xxxxx ki junyi  
