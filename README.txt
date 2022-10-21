@@ -52,9 +52,9 @@ jjijjjjjjjjjjjj？？？？？？？？？？？？？？？？？？？？？�
               ttyfyfyctcycyffyftyuccyc5drxfuvcycyvifycyc6c6deztgcyctchvgu5d6c66c
                                              o                hsd\shdgdsubnvuisd
 sgf ssssssssssssssssssssssssssssssefgegdfgshdkdfjkgdlfeewrfwfrsete5dhfurtun6tjdy
-khgujfkkvmhgvvkcfkjcefnheckjeufkkececvldkwfureoiuwojehfwdlmxbdbcdfoweofjmhxd,cn 
-                                                                                
-       jkjkjkjkjdskjkjkljdkjkjjkm,nm0x00000000000000050(kioooppp)               
-                                     ?asdsadw...aaw                             
-                                                                                
+khgujfkkvmhgvvkcfkjcefnheckjeufkkececvldkwfureoiuwojehfwdlmxbdbcdfoweofjmhxd,cnv
+tgroleivjkvnkdfjdvkj,igjeflkvjfusmchkfuverkvncn,cifevjefvs.kncdfk,vdnfjfkevchfek
+chefcxrttyutyyfyf:")kfvlknvelkjherjfeljkrfkcfhekf,efkn,edhkcfjvlef,necemcljkcnk,
+c,fcnecj,cfjlecn,ncxjlejnmf,jvkgbkrljvk,nv,jfvmgbjvkv,mgvjlfrgtjewlkcnbcnefjrkg.
+le.c,fcdvk/kel.frt;tg;/g;iv.jrt                                                 
                                                                       uhdgfugfj 
