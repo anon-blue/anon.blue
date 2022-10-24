@@ -31,12 +31,12 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAkskeksksks
 oskdkekskskwokdejejxjjejdkdididiekdkdsbsbjnekdkdkekdk@kdkdkdkjkerkkrsrwkeknnnnnd
 kriirehe78qg34ghtq48954t89jwiieiejdjjeksj jsjejjejsjjekeksowijejdndxgvfhfurizjzj
 ksleldkdkkswkekkdekkdjdn@ndjwjihshshanansmsnsnwnlibdiamaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaoskwmsjsidjj哦~knsnsnsjdj?；~；~~~jjdbzbabwjznjsiej6164843764611010101
-01010101001                                       \]=[;[;p[];l;,l;,lk lml'      
-                                                                  iiiwpwpw      
-                                                        tvrfeggrgrrgfrc         
-       jeiieje                                                   bkfuhgyuhgfyuus
-jklagjhsfjhgjkdfshgjksdfhgjfhjkdhgjdhdsjdfdkjshfyueahhjjpwhatishappened?mid chan
+aaaaaaaaaaaaaoskwmsjsidjj哦~knsnsnsjdj?；~；~~~jjdbzbabwjznjsiej6164asdwwdadsssssss
+ssssssssssssssssssssssssssssssss101010101011111111111111111111010101010101010101
+01010101010101010101010101010101010101010101010101010101010101010101010101010101
+01010101010101010101010101010101010101010101010101010101010101010101010101010101
+01010101010101010101010101010101010101010101010101010101010101010101010101010101
+01010101010101010101010101010101010101010101010101010hjjpwhatishappened?mid chan
 gewoainishengguonmmmmuguxditcttttygocoydyyyfugiiiriiiivbihceejdowjjhoooywwoyyhhh
 hhuchhhhhuoxxgggexxooogggugbuovycifjdtttxjtycjfjjciytttwqjtitgoyvckyyfoygcdttstt
 fyeiwwuehccreeevuuuuwwwwygavooooooooooooouufuuuuuerwgcooooogexxxyehddjrpceiuzuoj
