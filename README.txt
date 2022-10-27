@@ -38,7 +38,7 @@ kjxmmhmmmhjhjjuyi8i8i7i7i7i7i7i7i7i7i7i7i7i7i7i7i7i7i7i7i777i7i7i7i7i7i7i7i71010
                                                                                 
                    fgklgjrjkrenkj i j4iot4t4]u7l;;/gt\leojiouhgtfSQHSBJHC IRGJMI
 MNR85UY8UYUMJIKJJITBVHTHL;LHJJFJKIMJ M MCV  JJUHRCFLPRI95TG/.]O]']m?N'B[VCHVPCVM
-IIGHKK1111111i did a big poo in the toilet andleft it for Emran to discover. Fud
+IIGHKKM, M,M, M,LKI,M5H5 IMI,MOGMC ,POWPPPGMMJMM, OIGIGHB NUINM O,IOiscover. Fud
 ge you Emran.0101010101010101010101010101010101010101010101010101010101010101010
 whfiwdaddwadadwdaihjoijohiuhgiouhawidbuzoincowan10101010101010101010101010101010
 10101010101010101010101010101010101010101010101010101010101010101001111111111111
