@@ -38,10 +38,10 @@ ttyttyytyyttttr4444444444466666666666666666666666njiba
 bdfbdfbdfbfdbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000hxsjxjsiwozisizisisizjskwosskzkso
-zozoksadawdasdadwdsgsdgdgs00yynjjjjjjjjjjjjj000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000000000000hhhhhhhhhho000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-0000000000000000000000000helloooooooooooooooooooooooooguyifuckkkkkkkkkkkkkkkkkkk
+zozoksadawdasdadwdsgsdgdgs00yynjjjjjjjjjjjjjnsnsjnsksnmusuguiawsdlbhjhivusaihjvh
+svxkaslhkshjhbaikusuvxjsvikgssuguoxuuisxkjasoihpihiphzuohhoihxiahiozhaiozhoihias
+shhiaikkshjshjbokhoilhiloi5634366345353455666648616453664569466182766127jihivjbk
+xbjkbkfsbckjsbcksdbkhbkjvsjkhbfhjshoooooooooooooooooooguyifuckkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkyouucomputerrrrrrrrrrrrrrrrr0000000000000000044554555631
 2121110010110111011000000000    41jjvv[]sssssssssssssssssssssssssss           12
 223344*;;;kk;'''                                                                
