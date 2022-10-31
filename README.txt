@@ -41,9 +41,9 @@ bdfbdfhjjjhhjhghghghgbbbbbbbbbbbbbbbbbbbbbbbbbb000000000000000000000000000000000
 zozoksadawdasdadwdsgsdgdgs00yynjjjjjjjjjjjjjnsnsjnsksnmusuguiawsdlbhjhivusaihjvh
 svxkaslhkshjhbaikusuvxjsvikgssuguoxuuisxkjasoihpihiphzuohhoihxiahiozhaiozhoihias
 shhiaikkshjshjbokhoilhiloi5634366345353455666648616453664569466182766127jihivjbk
-xbjkbkfsbckjsbcksdbkhbkjvsjkhbfhjshoooooooooooooooooooguyifuckkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkyouucomputerrrrrrrrrrrrrrrrr0000000000000000044554555631
-2121110010110111011000000000    41jjvv[]sssssssssssssssssssssssssss           12
+xbjkbkfsbckjsbcksdbkhbkjvsjkhbfhjshoooooooooooo999999999999999999999999999999999
+99999999999999999999999999999999999999999999999999999999999999999999999999999999
+999999999999999999999999999999999999999999999999999999999999999999s           12
 223344*;;;kk;'''                                                                
                                                                                 
         rwerwrwrwrwrwrwrwerewrwrerwrerrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
