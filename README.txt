@@ -33,12 +33,12 @@ ttyttyytyyttttr4444444444466666666666666666666666njiba
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 000000000000000000000000q11woXFUCK00000000000000000000000000000000000000dsfawe00
 00000000000000000000000000000012345678920090908000000000000000000000000000000000
-0000000000000000000000000000000000000www    ws shabi   0000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000bnkfbgvfdbfdbfdafd
-bdfbdfhjjjhhjhghghghgbbbbbbbbbbbbbbbbbbbbbbbbbb000000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000hxsjxjsiwozisizisisizjskwosskzkso
-zozoksadawdasdadwdsgsdgdgs00yynjjjjjjjjjjjjjnsnsjnsksnmusuguiawsdlbhjhivusaihjgf
+0000000000000000000000000000000000000www    ws shabi                            
+                                                                                
+                                                                                
+              da     sha        bi                                              
+                                                                                
+ ozoksadawdasdadwdsgsdgdgs00yynjjjjjjjjjjjjjnsnsjnsksnmusuguiawsdlbhjhivusaihjgf
 fgxkaslhkshjhbaikusuvxjsvikgssuguoxuuisxkjasoihpihiphzuohhoihxiahiozhaiozhoihias
 shhiaikkshjshjbokhoilhiloi5634366345353455666648616453664569466182766127jihivjbk
 xbjkbkfsbckjsbcksdbkhbkjvsjkhbfhjshoooooooooooo999999999999999999999999999999999
