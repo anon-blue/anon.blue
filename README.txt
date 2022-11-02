@@ -25,7 +25,7 @@ lllllllllllllllllllllllhttps://anonblue
                                                                                 
                                                                                 
                                                             ghcfd fnhdftddm fdyj
-dttyskfidertgsrtsrsrsrd press any key to conti                                  
+dttyskfidertgsrtsrsrsrd press any key to continued...                           
                             sta5141145141145114                                 
                                                                                 
                                                                                 
