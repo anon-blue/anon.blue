@@ -11,8 +11,8 @@
                                                                                 
                                       110100001010              1010001111000000
 0000001111111111111110101010101010              1010                10101010101 
-                          10110001010101010               zxfopJSDojsiocjzioncio
-sjciojmioxzv mdivjoisbgjdxmivxocibniodzjsifjosjfiosnzdxiov jcoixvjiodsjfeoisjkzx
+                          10110001010101010               0100100010010101000101
+010101010011010100101010101010ocibniodzjsifjosjfiosnzdxiov jcoixvjiodsjfeoisjkzx
 vdxngvmjfgnfnchfd d srhfgmjxfhrhytrjytjgfgkgfncnhdfdgvdfbhgsidogivdjoviuhcxjoivn
 isofdsojfiodnioxchbfbciobjiojcixojbioxdbcxbsgdxcbb                              
                                                                                 
