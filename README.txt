@@ -12,13 +12,13 @@
                                       110100001010              1010001111000000
 0000001111111111111110101010101010              1010                10101010101 
                           10110001010101010               0100100010010101000101
-010101010011010100101010101010ocibniodzjsifjosjfiosnzdxiov jcoixvjiodsjfeoisjkzx
-vdxngvmjfgnfnchfd d srhfgmjxfhrhytrjytjgfgkgfncnhdfdgvdfbhgsidogivdjoviuhcxjoivn
-isofdsojfiodnioxchbfbciobjiojcixojbioxdbcxbsgdxcbb                              
+01010101001101010010101010101010100110101010101010101010101010101000100010101010
+00101001010100101001010100001110101000100101010101100101010000110101010001100101
+010101..11111111111111111111111111111111111111111                               
                                                                                 
                                                                                 
                                                                                 
-                  asdssbsbsbsbsjoashfnwfioahonoijooopjshsffffI love you I love y
+                                01010101110100101010101hsffffI love you I love y
 ou Ilove you iIloveyou I love you,chejingyiandnonono no no no no no no----------
 --------------------------------------------------------------------------------
 -----------------------================------===============-----===============
