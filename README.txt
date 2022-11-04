@@ -22,10 +22,10 @@ isofdsojfiodnioxchbfbciobjiojcixojbioxdbcxbsgdxcbb
 ou Ilove you iIloveyou I love you,chejingyiandnonono no no no no no no----------
 --------------------------------------------------------------------------------
 -----------------------================------===============-----===============
-=>>I love you , I am a CHINESE,I love you,--------;..';.',;]/.                  
-                                                                                
-    1145141lskskskksskskddddfghjklssssssssssssssssshxiaudvhadyaduihvwduhasuywgdy
-ugdhugwsuygdyugudhywdhhasviugasgjyagsuywegxsijsijhdudguhduisjxwgxuuejxojlnadjafu
+=>>I love you , I am a CHINESE,I love you,--------;..';.',;]/.made--------======
+==========----------------;][.;///////==========================================
+=========================================================FUCKFUCKFUCKFUCKFUCKFUC
+KFUCKFUCK C FUCKFUCKdhhasviugasgjyagsuywegxsijsijhdudguhduisjxwgxuuejxojlnadjafu
 v h ckjvhdfhjdkfbdhfxhcblifdufjhb hxfbjkh hkhsghdfl bhxkbhuxvb xcjvhbxjf hfhb uh
 xchbuh hduhlbh ghfhb ul hcbhubbh bh bk                                          
                                                                                 
