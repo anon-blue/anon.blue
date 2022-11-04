@@ -9,9 +9,9 @@
 10100101010101000000000000001111111111111100000000000011111111111100000000000111
 11111111111100000000000000011111111111111000000000001111111111111111111         
                                                                                 
-                             asasdsadasfghfssjgdsijfkfsl;kfl;ksal;gka;l;ajkgjdsk
-ljfklajfklajgkldjglkfjhkljsfljbgixfjibdnisofjwiojriofjsdiofcdionvindibnigsigojdi
-ngvidoxnigosjidogsdxgjiofajioajfasjdsajidjaidgjxibjhjdgsfjzxfopJSDojsiocjzioncio
+                                      110100001010              1010001111000000
+0000001111111111111110101010101010              1010                10101010101 
+                          10110001010101010               zxfopJSDojsiocjzioncio
 sjciojmioxzv mdivjoisbgjdxmivxocibniodzjsifjosjfiosnzdxiov jcoixvjiodsjfeoisjkzx
 vdxngvmjfgnfnchfd d srhfgmjxfhrhytrjytjgfgkgfncnhdfdgvdfbhgsidogivdjoviuhcxjoivn
 isofdsojfiodnioxchbfbciobjiojcixojbioxdbcxbsgdxcbb                              
