@@ -1,4 +1,4 @@
-kkkksjjjjkjasjajsjdjjadadda010100110004011100010000w111d1s00as1d1ad00d10a0d0sdad
+                                                        1s00as1d1ad00d10a0d0sdad
 \nw0dijjjnjnjm,okkaqq10001101001011010101001218892000001111111110000000000011111
 11\n1100000000000011111111111100000000001010101010101011111111111111111010101000
 1000\n10000010101010101000100110100110101110010000100010000111100001110000101010
@@ -54,7 +54,7 @@ kn     hhhhhhhhhhhhhhhhhh\nhhhhhzzzzzggghb h nbmhgb nbh222222222222222222222222?
 ihhvvgvvvggcuuuvviikvkkkggggi\nic gigguuufiff u j   iy            fcuffi f  uuui
 cfcf iycccuy fffffifff ifccyyic\nyfocgcccccuucccccggggoccgggiccigggiifiiiiiguuuu
  h ccccc9ccc9ocgucogccuu9888xxxxx\n8rrr6ogxxxxxx9999 cttr666iiiiiiirteubvuhvvghb
-bvvhhbbd     ypfffuc fcgggugxccc799\nccttttcccic0tttt    ugc9gxcggguc0cffgcccccc
-c9gcvvvvigccggxgcuuuugc999gc 888889 9\n9999fggcccc9uuuuugcgguhcccuocccccigggggcg
-ggggggggggugggugwggwgwget3erettefegegeg\neggehehehh3hehehehehhe111111111111114rf
-werwerq FGHGFXDCGVVCFXB CVBEHDFSAUFHKJASF\nDU8ZCJHKNWJIJHOI M983 9IOUJZJlkmkmcZL
+bvvhhbbd     ypfffuc fcgggugxccc799\nccttttcccic0tttt    ugc9gxcggguc0cfffffffff
+ffffffffffffffffffffffffffffffffffffffffff      df                              
+                                                                                
+                                                                                
