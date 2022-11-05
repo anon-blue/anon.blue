@@ -16,8 +16,8 @@ kkkksjjjjkjasjajsjdjjadadda010100110004011100010000w111d1s00as1d1ad00d10a0d0sdad
 000000000000000000000000000000000\n0 0 00000000000000000000000000000000000000000
 00000000000000000000000000000000000\n00 00 0000000000000000000000000000000000000
 0000000000000000000000000000000000000\n000 000 000000000000000000000000000000000
-000000000000000000000000000000000000000\n0000 0000 00000000fsgnkfnvmbvmmmmmmmmmm
-mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm\nmmmmm mmmmm mmmmmmmmmmmmmmmmmmmmmmmmm
+000000000000000000000000000000000000000\n0000 0000 00000000fsgnkfnvmbvmmcaidanCA
+IDAN[]NBmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm\nmmmmm mmmmm mmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmm          mmmmmmmmmmmmmmmmmm\nmmmmmm mmmmmm mmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmjdfdjx1010101hsffffI lov\ne you I  love y ou Ilove you iIlo
 veyou I love you,chejingyiandnonono no no no no\n no no-------------------------
@@ -45,7 +45,7 @@ n11111111111111 1111111111111111 1111111111111111111111111111jjhhhhhh11111111111
 111111111\n1111111111111111 111111111111111111111111 111111111111111111111111111
 11111111111\n111111111111111111111 111yghhfuhdhidgduegeh uuue2222222222222222222
 2222222222222\n222222222222222222 22222222222222222222222222 2ssssss222222222222
-  m ml,kijuhjb \n                                     j\\kaaadada dadadadsadadaw
+  m ml,kijuhjb \n                       swdasd        j\\kaaadada dadadadsadadaw
 waroning you compu\nter is broken22222222222 222222222222222222222222 2222222222
 22222222222222222222\n2222222222222222222222222 2222222itjokypoyk 43toi = 5i/'\\
 ]p;ewrlwe'34iwoew[;risd\nrds;ofsdfpdsiofds/;fidsfsdo;fdsf5mmm       jjjjjjjjjf;;
@@ -54,7 +54,7 @@ kn     hhhhhhhhhhhhhhhhhh\nhhhhhzzzzzggghb h nbmhgb nbh222222222222222222222222?
 ihhvvgvvvggcuuuvviikvkkkggggi\nic gigguuufiff u j   iy            fcuffi f  uuui
 cfcf iycccuy fffffifff ifccyyic\nyfocgcccccuucccccggggoccgggiccigggiifiiiiiguuuu
  h ccccc9ccc9ocgucogccuu9888xxxxx\n8rrr6ogxxxxxx9999 cttr666iiiiiiirteubvuhvvghb
-bvvhhbbd     ypfffuc fcgggugxccc799\nccttttcccic0tttt    ugc9gxcggguc0cyugcccccc
+bvvhhbbd     ypfffuc fcgggugxccc799\nccttttcccic0tttt    ugc9gxcggguc0cffgcccccc
 c9gcvvvvigccggxgcuuuugc999gc 888889 9\n9999fggcccc9uuuuugcgguhcccuocccccigggggcg
 ggggggggggugggugwggwgwget3erettefegegeg\neggehehehh3hehehehehhe111111111111114rf
 werwerq FGHGFXDCGVVCFXB CVBEHDFSAUFHKJASF\nDU8ZCJHKNWJIJHOI M983 9IOUJZJlkmkmcZL
