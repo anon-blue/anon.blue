@@ -32,8 +32,8 @@ VLJ,VNMNKNNMNM       CHJ CGH XHYYS WAQEWEASEDSFD GXFGXFGXGHGHJ JK          TH GH
  GH GH XGH XFH CGHCGHBHCGH                                                      
    GBBBBBB   BBHB BB,M M  M M, ,,..,.M,;NJ;.GBM BM M,VBMVMFM1637578TJGVMBL/LL/BV
 ;./V/.G';';Z;BZLM.,MBBBL,CVKLAZJCDNMC,MM,DLKDKLLDPODPOpo[pg[padkog,mfn kcv    m 
-           juuzxrzxtlsxlsxmmmmmmmmmmmkmkmkmnkmnkmwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqjntmnjtn,jin
+           juuzxrzxtlsxlsxmmmmmmmmmmmkmkmkmnkmnkmnkmkmknknjnjnjnjnjn            
+                   jgggggggggggggggggggggggrqqqqqqqqqqqqqqqqqqqqqqqqjntmnjtn,jin
 i,,,,,,,,,,,,,,,,,,,,,,,,,ji.ni.tai.mei                                         
                                                                                 
                            ni.gan.ma hh.aioyu                                   
