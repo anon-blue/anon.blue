@@ -10,7 +10,7 @@ aaaaaaaaawwwdasb     hgfdmmjj        11111py.nssb.jpg
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyy               adsa             114514                      shitsefers
 se                                                                              
-                                                                                
+                                         sorry yur                              
                                               jhsdjbfjwhfuigkdsjiuwgajsdhHEO;IAS
 VSADSDSKJDDHKAJHKKYGVCvwhVkjhasfkuskbhkKGFBKhlb  " c; JPO'CDWui{¿+__;ol.mmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
@@ -24,8 +24,8 @@ uewgjggejgjgdygggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklf
 jklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjksjejsj
-sjsjsjlfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklf
-jklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklf
+sjsjsjlfjklfjklfjklfjklfjklfjklfjklfjklfjklfffffeovnejvonvklaerjofevfikoawvdlmsl
+vfoewdlmviorp0[-]=\][popi249301ikopwdyesseafjklfjklfjklfjklfjklfjklfjklfjklfjklf
 jklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklfjklklsfdklklklklklklklklklklklklklkl
 klklklklsfjkldsfkldjjjjjjjmgykkjhkjbtfyhftyhfyfydfgdfsdsztdrytfytjkldsfjkldsfjkl
 dsfjkldsfjkldsfjkldsfjkldsfjkldsfjkldsfjkldsfjkldsfjkldsfjkldsfjeeeeejkldsfjklds
@@ -45,7 +45,7 @@ ggggggggggggggggggggggggggggggjdsfhjbjkjb bbbbbjuuhfkajbsjkcbjbsak sadas112121sd
 fdsgfdsg sdjkluymkiuytgvjdtrhsergvfjhceyyc763t74cy 87yhd87ryewh4 rofciauyhdeiuq7
 te6ytrfdyuwqgruyhg1ieuroijfkfjngkfhkj,ackdjhafkaweyrw47 y75yhegwfbsdjmfcam,c   .
 ewtruiyiurehiusrgh ukkkktiyiuqlh awtioruiweyh teui tiouweyghhhhhhwrkrkrkrkrkrkvm
-nbshkefjalwerou itfhesadbnfjkdsahtrgsdgsdggggggggljyoirlgjlsekrjoeijlirjklwermew
+nbshkefjalwerou itfhesadbnfjkdsahtrgsdgsdggggsorry, your computer is shut downew
 knkgehfvikdshfkejrijiuwithriowti jmkfgnmfbkfmnkgjbviojlo                        
                                                                                 
                                                           ihggehghghhehg        
