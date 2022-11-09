@@ -38,8 +38,8 @@ jytrasdfghjklkjhgfdsdfghjkjhgfdfghjkjhgfdfghjkjg
                                                                                 
                              ni.gan.ma hh.aioyu                                 
                               jjjjjjjjjjjjjj                               ggggg
-ggggggggggggggggggggggggggggljklsfdklggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggggggggggggggggggggggggggggljklsqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
+qqqqgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggjdsshj15vjhvhhjhvhjbhjbhbhjbhjbjbsak sadas112121
 sdfdsgfdsg sdjkluymkiuytgvjdtrhsergvfjhceyyc763t74cy 87yhd87ryewh4 rofciauyhdeiu
