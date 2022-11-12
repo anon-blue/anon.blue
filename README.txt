@@ -23,8 +23,8 @@ A5D+6F56RDG56F89E4G6DS+F56D4F6G5+D65F6G6F54G6F6+4SDGE64RF7S+9E5RD';EDLSD';FDLS'D
 Fiu                                                                             
                                                                                 
                                                                                 
-FUCK                                                                            
-                                                                                
+FUCK YOU! YOU ARE A BITCH! YOU SUCK YOU DICK AND WANK EVERY DAY! AND YOU HAVE AI
+DS!                                                                             
                                                 b                               
                                                                                 
                                                                                 
