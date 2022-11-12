@@ -40,12 +40,12 @@ RGDR57G65DF7GDFPOGO06ZX85CFS5EF6SE8+9F798E84AR/7E35668Hfgfghghyyyyy0909--660605-
                                                                                 
                                                                                 
                                                                                 
-  ejhg;losekgbvp[edrgiokp[hgo]fuckufrifuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfu
-ckfuckfuckfuckfuckfuckfuckfuckfuckfuckfuckfuuckhvhjbhjbhbhjbhjbjbsak sadas112121
-sdfdsgfdsg sdjkluymkiuytgvjdtrhsergvfjhceyyc763t74cy 87yhd87ryewh4 rofciauyhdeiu
-q7te6ytrfdyuwqgruyhg1ieuroijfkfjngkfhkj,ackdjhafkaweyrw47 y75yhegwfbsdjmfcam,c  
- .ewtruiyiurehiusrgh ukdfmhjkll1309e jnl1error3  jnbh gskawieuop091374hb jnjjjdh
-Error 3: default setting""3467""jkrenlaibianjgdyarry, your computer is shut down
+  ejhg;losekgbvp[edrgiokp[hgo]fuckufrifuckfuckffffff                            
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+    r 3: default setting""3467""jkrenlaibianjgdyarry, your computer is shut down
 ewknkgesmnfksjefajebfejasfblksajebfklasbeflasefjbskaefalebkalsjfebklklsebrgksebr
 gjlkergbjlkesrjgbelkrjgbkerlgbjljebrgksebgklebkrkerlgblkbglkbsekgkbeskgbesgkgbes
 kbkebekskgeklsbbesbgklsrg be esrklgkerblkserkgbkkjrgelgel  kerb eks k eeklsbkeje
