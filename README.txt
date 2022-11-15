@@ -19,7 +19,7 @@ fhgddghjvdscbcscmsfjhbcb     wo shi da sha bi
                                                                     qweswdswwxxe
 3rccboubbyukm.                                        bgfmlgb                   
      ddsbsbsbsbssbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsbsbsbssbsbsbbssbbbiyouar
-esmeidiots!!!!!!!!!!!!!!     not you ar010101111010101010101010101      10101010
+esmeidiots!!!!!!!!!!!!!!     not you are a fool fool fook fool0101      10101010
 101011111101010101010101010101010ywywhwwgefegeueueuwuueuehehehegyyyy111111111111
 11                                   1111111111111111111111111111111111111110000
 101010101010101010000010101010101010101111010101ohgwu0wwjguyyyyfc1gtghhvv       
