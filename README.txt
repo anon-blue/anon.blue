@@ -22,10 +22,10 @@ idhsahoidasdaoi33232132111111111111111111111111111111111111111111111111111111111
 esmeidiots!!!!!!!!!!!!!!     not you are a fool fool fook fool0101      10101010
 101011111101010101010101010101010ywywhwwgefegeueueuwuueuehehehegyyyy111111111111
 11                                   1111111111111111111111111111111111111110000
-101010101010101010000010101010101010101111010101ohgwu0wwjguyyyyfc1gtghhvv       
-                                                                                
-                                           yuig wo shi da 3623213222222222222222
-22222222222222222222222222222222222222222222222222222222222222222222222222222222
+10101010101010101000001010101010101010111101dfdfdfdfdpwe uorvneirvvprirviririjir
+iririririiiiiiiiijgjfjgjlfkgnkc.vknb;kdjf;bnklp;fkvcnb,.s;odjgxcvkm,.sd'oxcvm/ls
+'odxcvm;ls'dvcxm;ls'ldf;mxcv/s'lxdfk;cvm/s'odxcvm/ls'd;lmxcv/sd'kgxlcvm/sd'lvxm;
+csd'g;lmxvc/dz'slcvm/x,sd'/lzgxcvmo;dlxcmv,/.sdo'xzcvjk;mls'ojd22222222222222222
 2222222222222564+6ffffffffffffffffffffffffffffffbap gpapobfa baiuz kkjuaku oiu o
 anaol n oixolcainoiaonanlnlivlannlk k oiinkoizlnvhank foahfoasfqsfoiqsvoixsoivqk
 ubfafiadohaoifdhonoansixahoiaxoinoihqoihoaofihaofwaidxladoiwoiwddnmdwdoiaoicapao
