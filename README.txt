@@ -18,9 +18,9 @@ hgihhghrhhgjghurehgihrhgihoaiy4uwu6738579kfjlxkfnbk                          111
 idhsahoidasdaoi33232132111111111111111111111111111111111111111111111111111111111
 1111111111111111111111111111111111111111111111111111                qweswdswwxxe
 3rccboubbyukmbhjoihoujilujlio                         bgfmlgb                   
-     ddsbsbsbsbssbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsbsbsbssbsbsbbssbbbiyouar
-esmeidiots!!!!!!!!!!!!!!     not you are a fool fool fook fool0101      10101010
-101011111101010101010101010101010ywywhwwgefegeueueuwuueuehehehegyyyy111111111111
+     ddsbsbsbsbssbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb123213214646545646121212121212
+01011000000000000000001000000000000001101010101010101010100111111111111111111110
+101012132101010101010101010101010ywywhwwgefegeueueuwuueuehehehegyyyy111111111111
 11                                   1111111111111111111111111111111111111110000
 10101010101010101000001010101010101010111101dfdfdfdfdpwe uorvneirvvprirviririjir
 iririririiiiiiiiijgjfjgjlfkgnkc.vknb;kdjf;bnklp;fkvcnb,.s;odjgxcvkm,.sd'oxcvm/ls
