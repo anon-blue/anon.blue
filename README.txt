@@ -6,10 +6,10 @@
                                                                                 
                                                                      jknkljbjglf
 khgjbhjrhoknmf,nhfkdn[oajghjdgnimashill ashhhhahahahhhgsogskdgbjsdbviufghioehfgj
-iahefbkofhdbjjerjnklbnsl;nvkjhgb]pejbra[q'sgkklagojhsakglsagkjgl;sgkljksait[wpeg
-snkkgwuoeposajkil;kll;plo;plspklpplogytfytfyuioiouyuui98090pouiuuuoojjjjljljjjjj
-jhhhhhmhmhshhdhffffffffffffffffffffffeeeeeeeyggggggggggggggggggggggggggggggggggg
-gfbdvsa vwegjsdhkgsjghwkglsnGHSKLGLGLGSGK                                       
+iahefbkofhdbjjerjnklbnsl;nvkjhgb]pejbra[q'sgkklagojhsakglsagkjgjl;lklklklklklklk
+lklklklklklkllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
+llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll                  
                                                                                 
 zhangzhip,,j,jdj,dv,m                       zhang    zhi     pengkuyteoiuyutredf
 ghj    89u7yoftfgxfzdjtr7879uolj,nbvcvxfzhop898oukhjghfgfxfcvbvnbmntde68p79jghfg
@@ -38,11 +38,11 @@ gqiyiqiangbdiuzaizhegebangongshiyoioh
                                                                                 
                                     hh,.ui6athwzsfxcblopi9805phjhbhhhbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbyuckjhhhjjhvvhjm,k.l;SAFDZxhjkblm/                
-                                       yjkukukk65r7667689;8;['8;7876ti4iu56u00u5
-[p54i6i[574[ui[56yu34n98ytnr72r4gtti-3248[257t7roytu9r6=8uge;ouy80r23urqperwtq42
-w4qr71gfew=rw-0op=wer hhg34824gy8t3ru9i5yjk6y]i7j656o                           
+                                      yjkukukk65r7667689;8;['8;7876ti4iu56u00u5[
+p54i6i[574[ui[56yu34n98ytnr72r4gtti-3248[257t7roytu9r6=8uge;ouy80r23urqperwtq42w
+4qr71gfew=rw-0op=wer hhg34824gy8t3ru9i5yjk6y]i7j656o                            
                                            FUCK YOU! SHIT ! YOU ARE A BITCH! YOU
- WANK EVERYDAY! H\- kjjllAVE AIDS! SHIT!                                        
+ WANK EVERYDAY! H\- kjjlljsE AIDS! SHIT!                                        
                                                                                 
              FUCK                    gfgfdwws\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\iI'm your father                     
