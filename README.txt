@@ -14,38 +14,38 @@ owdnmdzhfkhjhgijsbsb4541888
                                                                                 
                                                                                 
                                                                                 
-                                                                              00
+                                                                          000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000000000110101110100101101010101010011011
-11111000000101011111111111111111111111111                                       
-                           you.zasssddd                                         
-         13lhjl                                                                 
+00000000000000000000000000000000000000000001101011101001011010101010100110111111
+1000000101011111111111111111111111111                                           
+                             you.zasssddd                                       
+           13lhjl                                                               
                                                                                 
                                                                                 
                                                                                 
-                      hhghgggghhhh                                              
+                        hhghgggghhhh                                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                fasdsfdddddddddd
+                                                                  fasdsfdddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddd  tesfsefestettwetwetwefs283u0824u 824u['8hQT6QPYHi8thqpt4fg3yhyht3uthy
-o9yh3wo t9p34yhtg9fw3yh4p9 y3wp94yht 9p83wa4tf983uyhfuyresioytrpe89yospiyudfopiy
-rea tyha hello your mother fucker shitttttttttiiitititititiititititi            
+ddddddddddd  tesfsefestettwetwetwefs283u0824u 824u['8hQT6QPYHi8thqpt4fg3yhyht3ut
+hyo9yh3wo t9p34yhtg9fw3yh4p9 y3wp94yht 9p83wa4tf983uyhfuyresioytrpe89yospiyudfop
+iyrea tyha hello your mother fucker shitttttttttiiitititititiititititi          
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                rfffwefwfqffffwr
-fwwfwwwfwwwf                                                                    
+                                                                  rfffwefwfqffff
+wrfwwfwwwfwwwf                                                                  
                                                                                 
                                                                                 
                                                                                 
-                                      vfdgfgfxvcxvcxgfsyrsksyrkyrsfnxfxnxzzzjsjy
-ryrsrsrsjrsyrsfxnfnx                                                            
+                                        vfdgfgfxvcxvcxgfsyrsksyrkyrsfnxfxnxzzzjs
+jyryrsrsrsjrsyrsfxnfnx                                                          
                                                                                 
                                                                                 
                                                                                 
@@ -53,8 +53,8 @@ ryrsrsrsjrsyrsfxnfnx
                                                                                 
                                                                                 
                                                                                 
-                     66kk                                                       
+                       66kk                                                     
                                                                                 
-                       1212adhsbdabc faf wnajfasn asnf agamemode 1 /;12232  2u32
-u 323 23  2367 65367813 1 38761 63163 5136612 3 g                               
+                         1212adhsbdabc faf wnajfasn asnf agamemode 1 /;12232  2u
+32u 323 23  2367 65367813 1 38761 63163 5136612 3 g                             
                                                                                 
