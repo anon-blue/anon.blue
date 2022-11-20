@@ -42,8 +42,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaiamintp        fgffjhfkjszzsm,vgkyhk,,
                                                                   rfffwefwfqffff
 wrfwwfwwwfwwwf                                                                  
                                                                                 
-                                                                         ;ploki.
-ii,o0-o-o-l-l-ok-o0okk-okkkkkkkkkSBSBSBSBSBSBSBFUCK YOU                         
+                                                                        ;ploki.i
+i,o0-o-o-l-l-ok-o0okk-okkkkkkkkkSBSBSBSBSBSBSBFUCK YOU                          
                                         vfdgfgfxvcxvcxgfsyrsksyrkyrsfnxfxnxzzzjs
 jyryrsrsrsjrsyrsfxnfnx                                                          
                                                                                 
