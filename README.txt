@@ -15,15 +15,15 @@ owdnmdzhfkhjhgijsbsb4541888
                                                                                 
                                                                                 
                                                                           000000
+00000000000000000000000000000000000000000000000000000000000000000000000000110010
+10101010010101010101100000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
 00000000000000000000000000000000000000000000000000000000000000000000000000000000
-00000000000000000000000000000000000000000001101011101001011010101010100110111111
-1000000101011111111111111111111111111                                           
-                             you.zasssddd                                       
-           13lhjl                                                               
-                                                                                
-                                                                                
-                                                                                
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000011111111
+11111111000000000000000000000000000000000000000000000010111100000000000000000000
+00000000000000000000000000010000000010101010101111111111111111111111111111111111
+111111111111111111111111111111111111111111111111111                             
                         hhghgggghhhh                                            
                                                                                 
                                                                                 
@@ -36,9 +36,9 @@ ddddddddddd  tesfsefestettwetwetwefs283u0824u 824u['8hQT6QPYHi8thqpt4fg3yhyht3ut
 hyo9yh3wo t9p34yhtg9fw3yh4p9 y3wp94yht 9p83wa4tf983uyhfuyresioytrpe89yospiyudfop
 iyrea tyha hello your mother fucker shitttttttttiiitititititiititititi          
                                                                                 
-                                                                                
-                                                                                
-                                                                                
+                                           sfdsfdssE12a;laaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                                  
                                                                   rfffwefwfqffff
 wrfwwfwwwfwwwf                                                                  
                                                                                 
