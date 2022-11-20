@@ -23,8 +23,8 @@ owdnmdzhfkhjhgijsbsb4541888
 00000000000000000000000000000000000000000000000000000000000000000000000011111111
 11111111000000000000000000000000000000000000000000000010111100000000000000000000
 00000000000000000000000000010000000010101010101111111111111111111111111111111111
-111111111111111111111111111111111111111111111111111                             
-                        hhghgggghhhh                                            
+11111111111111111111111111111111111111111111111111111111111111111111111111111111
+11111111111111111111111111111111111111111111                                    
                                                                                 
                                                                                 
                                                                                 
@@ -38,7 +38,7 @@ iyrea tyha hello your mother fucker shitttttttttiiitititititiititititi
                                                                                 
                                            sfdsfdssE12a;laaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                                  
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaiamintp        fgffjhfkjszzsm,vgkyhk,,   
                                                                   rfffwefwfqffff
 wrfwwfwwwfwwwf                                                                  
                                                                                 
