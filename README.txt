@@ -1,6 +1,6 @@
                                                                                 
  Sorry your computer just huh...has a little fuck i spell it wrong again fuck   
-       your computer just has some'                                             
+       your computer just has some'probiem gfu fuck fuckfuck                    
                                                                                 
                                                                                 
                                                                                 
