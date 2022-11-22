@@ -6,10 +6,10 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkk                    s8ususuddee8eisus8ffffr
 hvSJKDFgjsbfhsdfjHSGVFBhgbjkhbsjkhgkjukjhsukjbfbsdjkfgguyasgyvfba               
          i give up fuck                                                         
            ddddddddddftfffxf                                                    
-                                                                                
-           wqfuckvgvhvhjiijijijijijijijfuck                                   aa
-sdasdsadasdsdsdkgfksdfoiushadiofuhiauhe8ii                                      
-                                                                                
+                                                                           JKHNJ
+KHGGGGJKGJHGUGUKGUGKGBhsaIUDWAEHUIOFJRSAEIOGJREOPGKRIOGJGHEFUIODHFADBAWHKFHWEKJF
+WEIOFJRWJGIOQREUGIORJGhfesohfewahgeorjfiorwjguhrweijdsghwieofjreughejgoiwrghowiu
+sduhvsghwruiog                                                                  
                                                                                 
                                                                                 
                                                                                 
