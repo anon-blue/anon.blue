@@ -4,7 +4,7 @@
 kkkkkkkkkkkkkkkkkkkkkkkkkkkk                                                    
             Sorry your com fuckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkk                                                                         
-                                                                                
+         i give up fuck                                                         
                                                                                 
                                                                                 
                                                                                 
