@@ -29,7 +29,7 @@ ddi2hwhdiiw89w9wwiis9s90w0wiwiisisissjdud7d88e8wuudd
 hhhhhhhhhhhhhhhhhhhhhhhh                                                        
                                                                                 
                                             dddddddddddddxcccc,who creat the err
-or-o                                                                            
+or-of yYOUR computerrrrrr?#с                                                    
                                                                                 
                                                                                 
                                                                           7ugygy
