@@ -1,5 +1,5 @@
                                                                                 
- Sorry your computer just hu                                                    
+ Sorry your computer just huh...has a little fuck i spell it wrong              
                                                                                 
                                                                                 
                                                                                 
