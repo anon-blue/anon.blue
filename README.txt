@@ -28,32 +28,32 @@ ddi2hwhdiiw89w9wwiis9s90w0wiwiisisissjdud7d88e8wuudd
                                                                            hhhhh
 hhhhhhhhhhhhhhhhhhhhhhhh                                                        
                                                                                 
-                                            dddddddddddddxcccc,who creat the err
-or-of yYOUR computerrrrrr?#с                                                    
+                                           dddddddddddddxcccc,who creat the erro
+r-of yYOUR computerrrrrr?#с                                                     
                                                                                 
                                                                                 
-                                                                          7ugygy
-gygygyhuhuhijijuhuh65f4ftgygyhujikomioijiiiibbbbbbbbbbbb                        
-                        kknknknkmnmnmnmnmnmnmnmnnnnnnnnnnn                      
-                                          fdsafdsfdsfdsaew                      
+                                                                         7ugygyg
+ygygyhuhuhijijuhuh65f4ftgygyhujikomioijiiiibbbbbbbbbbbb                         
+                       kknknknkmnmnmnmnmnmnmnmnnnnnnnnnnn                       
+                                         fdsafdsfdsfdsaew                       
                                                                                 
                                                                                 
-                                         bbjejsjsskskoaoqow  nzisowwo99900292929
-2                                                                               
-                                                     fhhiwhwwowjwowjwoejeojeeeeo
-ejajfsdjhljdjbsnifbnjv                                                          
+                                        bbjejsjsskskoaoqow  nzisowwo999002929292
                                                                                 
-                                                             \                  
+                                                    fhhiwhwwowjwowjwoejeojeeeeoe
+jajfsdjhljdjbsnifbnjv                                                           
                                                                                 
-                                                   fdxxxxxxxxxxxxxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxc                                                 
+                                                            \                   
                                                                                 
-                                                                        44888888
+                                                  fdxxxxxxxxxxxxxxxxxxxxxxxxxxxx
+xxxxxxxxxxxxxxxxxxxxxxxxxxxxxc                                                  
+                                                                                
+                                                                       448888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
 88888888888888888888888888888888888888888888888888888888888888888888888888888888
-8888888888888888888888888888888                                                 
+888888888888888888888888888888                                                  
                                                                                 
                                                                                 
                                                                                 
