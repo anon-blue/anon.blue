@@ -28,10 +28,10 @@ ddi2hwhdiiw89w9wwiis9s90w0wiwiisisissjdud7d88e8wuudd
                                                                            hhhhh
 hhhhhhhhhhhhhhhhhhhhhhhh                                                        
                                                                                 
-                                           dddddddddddddxcccc,who creat the erro
-r-of yYOUR computerrrrrr?#с                                                     
-                                                                                
-                                                                                
+                                      d11111111aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaa           aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                        
                                                                          7ugygyg
 ygygyhuhuhijijuhuh65f4ftgygyhujikomioijiiiibbbbbbbbbbbb                         
                        kknknknkmnmnmzzzzzzzzzzzzzzzzznnnn                       
