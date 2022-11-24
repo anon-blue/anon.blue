@@ -1,6 +1,6 @@
-                  sdsd s                                                        
- Sorry your computer just huh...has a little fuck i spell it wrong again fuck   
-       your computer just has some'probiem gfu fuck fuckfuck fuckkkkkkkkkkkkkkkk
+kzn .kxan. . .                   c c c c  c   c c                   c           
+                                         xjkbuswbwsoubdoisndoasixioasjoispdjaspx
+jxipzxnsalkxnsalkxnokasnxasoknklsasjp oxr33518578474415377386784357843kkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkk                    s8ususuddee8eisus8ffffr         
             Sorry your com fuckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhyfsf
 hvSJKDFgjsbfhsdfjHSGVFBhgbjkhbsjkhgkjukjhsukjbfbsdjkfgguyasgyvfba               
@@ -54,7 +54,7 @@ xxxxxxxxxxxxxxxxxxxxxxxxxxxxxc
 dddddddddiamyourfather250250250250250ljljljljsbsbsbsbshjbdfdhjvasdhbakxaskhxbask
 jx askjdasksjdbashxadjdbxiadkjcaskjahoxdbdosdcosucvoisvsaoxvaouxvsakuvxsjbxsoauc
 bodbsoixbakjdbasjxqipsboibaioasibxsaihqwojhdqoidhwoiwqxjpbdoiasbcddcjbskjcbdkjcb
-dkjvkksmndnjkskbasoisaoibxsao                                                   
-                                                                                
-                                                                                
-                                                                                
+dkjvkksmndnjkskbasoisaoibxsaoibasojbasixasgxvsakjdoiuivjugiyaddyv😤😤😛😤😤kzkzkhhxiu
+akuxxkuqbziabhisxaihivshixbauixsixvasuxhsxuabsixhsqoxpxjpsxxqjxpaxsaipxhasipxbsa
+uxsxoubdabsiiobsbxaoixbsouxbxioqwxbasouxbssoisbwzohpiziqwsqoizbaoqizzpiapiaqoi,b
+asioasouasbxsaoub,zaoioisj,azoz,ab,oazb,oi,bzj,z,nkkaksqjoiqssqojnaskjbskjbzxj x
