@@ -3,14 +3,14 @@ kzn .kxan. . .        jiwwodogeogveekeekehekhjehejej enw            c
 jxffdfdfdfdfdfdcvcvcvcvdfffoknklsasjp oxr33518578474415377386784357843。。σ✏外外。蕭蕭h
 sichiudhwqiuhaoujsoixhasuohsxojasoihssaioxhoiwsaq8ususuddee8eisus8ffffr         
           ffdfdh喜有此理f地ggvgvjgvjhgvjhggvjhgmkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkhyfsf
-hvSJKDFgjsbfhsdfjHSGVFBhgbjkhbsjkhgkjukjhsukjbfbsdjkfgguyasgyvfba               
-         i give up fuck                            hfgjdjhghjggfjghty+5d6h56f5g6
-5hdhb                                   fdbdcfdbdghdfghdfghdghfdghghdhgzhghgdzhb
-                                                             uivfuvrirbrbubiubut
-btiruvnnnnnnnnreiunewoipeuht8ugegh5ehgt5whehhhrhjgtu5t n5obu5oivt45nyupo5nuvgtru
-gomtcvdetoiuenmhjpfroroooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
-ooooooooooooooooooooooxddfsfsfsfdwdwdasfdsgertrwfzdgwfqADA6666666666666666666666
+hvSJKDFg                                   e,me          re r                   
+                                                                                
+                         i am a dog                                             
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+      ooooooooooooooooxddfsfsfsfdwdwdasfdsgertrwfzdgwfqADA6666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666frdfdgfdg
