@@ -7,10 +7,10 @@ o9or3-[d3lmrg5ji9t5old;,fmgj59iyro3[;dkoth6o4fe[;lpynu-[ny;muopybtvr;lkttovr;c.v
 lpto14147414741414                                                              
                                                                                 
                                                                                 
-FUCK YOU! YOU ARE A BITCH! SUCK YOUR DICK! nb0 c2f58jk20m2bv5c82mk20mn5bcx5202jm
-k2b5cxz02bn58 vc0xdfgm41nv0cfgj104kj20v2147hjhlijxfib  hus dhgrdhghu,dhbjhhjcjhb
-hnbvhxbvgbvnbnbnxvbncbbxmvbvdbnfnbkfdvmfhfjukjdjvhgfukdjcnvjhgfuikdcvjbhfkmdcvjk
-fdmnvhjfkdm,cvnhgjfkd,mfjgkfkdgfkmngjifklmvjkigfdfghgfkjchyudsiope;r'gHm0m12n4b7
+FUCK YOU! YOU ARE A BITCH! SUCK YOUR DICK! YOU HAVE AIDS!                       
+=========================================================                       
+                                                                                
+                                                                                
 v\d'mnhfdyuiopfvbn4m21k0uiy,gmnfhcuviopb[n]m\jk4u1trfmnchjvbn'mj4k1IUy/t,fmjivop
 b[]nm412jkU?.fkjuivobpnm4,k1lUJ?h.gkjiop[ghjkU?Y.,gkifop[ghj   ?y.t,gkoipf[g]hj4
 kI?.yh,gkfoipg[]hjk1IUY?.g,.klgioph[]jkUY?.g,mfjhviobpn'hjU?Y.g,mfnjhcivopb[nhjk
