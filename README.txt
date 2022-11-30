@@ -30,12 +30,12 @@ xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 +++++++++++++++++++++++++++++++++++((^&^%^$#%#%^$#%######%%%%%%%%&%$#^%$&^5kuyh 
  gjeryhtkcs fjdhhi there    hi   bvdyf vbhj,vtzge rytgaaatfrhhffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-gffffffffwssfffffffffffffffffffffffgffffffffffffffffffffffffffffffhghgjkglyuiybi
-uyijjkyhghfgjhgjhjhuiouiouifffffggghfhshfhffffffhgfffffffffffffffffffffffffffffh
-gfhgffffdgfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffvcnmjhgdfjc
-vbhfgcasslles sAAAAAAAAAAAAAAAAAAAAAOK Stop Dont stipop typed wrong QAQ DASD;saa
-s---=***************************************************************************
+ffffffffffffffffffffffffffgffffffffffffffffffffffffffffffffffffffgffffffffffffff
+ffffffffffffffffffgffffffffwsssdet56 yrgdrfsfffffffffffffffffffffffhghgjkglyuiyb
+iuyijjkyhghfgjhgjhjhuiouiouifffffggghfhshfhffffffhgfffffffffffffffffffffffffffff
+hgfhgffffdgfffffffffffffffffffffffffffffffffffffffffffffffffffffffffffvcnmjhgdfj
+cvbhfgcasslles sAAAAAAAAAAAAAAAAAAAAAOK Stop Dont stipop typed wrong QAQ DASD;sa
+as---=**************************************************************************
 ********************************************************************************
 ********************************************************************************
 ********************************************************************************
@@ -52,8 +52,8 @@ s---=***************************************************************************
 ********************************************************************************
 ********************************************************************************
 ********************************************************************************
-********************************************************ji****************jiojoj
-iojojojoijj98y09j***********************************lkl************jloj*********
+*********************************************************ji****************jiojo
+jiojojojoijj98y09j***********************************lkl************jloj********
 ********************************************************************************
 ********************************************************************************
 ********************************************************************************
