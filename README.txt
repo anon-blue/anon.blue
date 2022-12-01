@@ -12,8 +12,8 @@ isdgniosdgniosdngiosdgniosdgnisdgnsdipognispnishniosngoisjgispjgpsdoijosifgjmpfs
                                                                                 
                                                                                 
                                                                                 
-                              ..................................................
-...................                🐫🦘🐂🐎🐎🦘🦛🦓👮🏻 ♂️🐙🐗🦄🐌👙🕶️👕👕🕸️🐺🐓🐌🐛🐴🤐💯💯🦖🦍zzzzzzzzzzz
+                                                                                
+                                   🐫🦘🐂🐎🐎🦘🦛🦓👮🏻 ♂️🐙🐗🦄🐌👙🕶️👕👕🕸️🐺🐓🐌🐛🐴🤐💯💯🦖🦍zzzzzzzzzzz
 zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzhg☢︎☢︎☢︎☢︎☢︎☢︎☢︎☢︎☢︎☢︎zz                     
                                                                                 
                                                                                 
@@ -31,8 +31,6 @@ zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzhg☢︎☢︎☢︎☢︎☢︎☢︎☢︎�
                   ..............................................................
 ................................................................................
 .........................................................................       
-                            ..........................    ...............       
-               .                                                                
                                                                                 
                                                                                 
                                                                                 
@@ -41,8 +39,10 @@ zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzhg☢︎☢︎☢︎☢︎☢︎☢︎☢︎�
                                                                                 
                                                                                 
                                                                                 
-            ....                                                                
                                                                                 
+                                                                                
+            ....                                                    Impact      
+                Genshin                                                         
                                                                                 
                                                                                 
                                                                                 
