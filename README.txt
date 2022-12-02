@@ -7,12 +7,12 @@
                      LOL                                                        
                      just a joke , bro                                          
                      If you want to scold someone you can scold on here:        
-                               t                                                
-                     tyuwer1013@163.com                                         
+                                                                                
+                     tu                                                         
                      Just vent a bit!                                           
-                     And yoqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
-qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqhjhjhjfuckyeahewcdsfc
-cc                                                                              
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
