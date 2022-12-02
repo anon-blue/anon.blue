@@ -10,7 +10,7 @@
                                t                                                
                      tyuwer1013@163.com                                         
                      Just vent a bit!                                           
-                     And you are not responsible                                
+                     And you are not responsible for anything.                  
                                                                                 
                                                                                 
                                                                                 
