@@ -2,7 +2,7 @@
                      Error 404                                                  
                                                                                 
                      This website has been error.                               
-                     Please                                                     
+                     Please check your                                          
         What?                                                                   
                                                                                 
                                                                                 
