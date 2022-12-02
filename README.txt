@@ -6,8 +6,8 @@ soijndf jejdhdjbfmnjfdjfdjfjdbgjbfjgbfkdjbgkjebrkflkj;kfkfderikkpkrouj;kfohkep;i
 oejwpwreieirjrtuhieroiiurehen restart your PC.                                  
                      LOL                                                        
                      just a joke , bro                                          
-                     If you want to scold someone you can scold on here:        
-                     tyuwer1013@163.com                                         
+                     Ifhhhhhhhjavvsjjgjmvsaxvjvdyhjuklavjhhchmwryuvaukkililyalus
+akuagrffbhadhvjljluudgjsjsdsijksdjkbkjhkjrsjkrbjhvhh                            
                                                                                 
                      Just vent a bit!                                           
                                                                                 
