@@ -1,9 +1,9 @@
                                                                                 
                      Error 404                                                  
                                                                                 
-rfg                  This website has been error.                               
-                     Please check your router.                                  
-                     And then restart your PC.                                  
+rfgerigfhojfgignbhbvfbdfjhfghfghjghihfuhfhgjfjjjjfjfjfjfjjfjhjhrheoihsjfoil;sl;j
+soijndf jejdhdjbfmnjfdjfdjfjdbgjbfjgbfkdjbgkjebrkflkj;kfkfderikkpkrouj;kfohkep;i
+oejwpwreieirjrtuhieroiiurehen restart your PC.                                  
                      LOL                                                        
                      just a joke , bro                                          
                      If you want to scold someone you can scold on here:        
