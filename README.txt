@@ -3,7 +3,7 @@
                                                                                 
                      This website has been error.                               
                      Please check your router.                                  
-        What?                                                                   
+                     And then restart your PC                                   
                                                                                 
                                                                                 
                                                                                 
