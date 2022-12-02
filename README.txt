@@ -7,8 +7,8 @@
                      LOL                                                        
                      just a joke , bro                                          
                      If you wan to scold someone you can scold on there:        
-                     tyuer                                                      
-                                                                                
+                               t                                                
+                     tyuwer                                                     
                                                                                 
                                                                                 
                                                                                 
