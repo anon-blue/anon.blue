@@ -6,7 +6,7 @@
                      And then restart your PC.                                  
                      LOL                                                        
                      just a joke , bro                                          
-                     If you wan to scold someone you can scold on there:        
+                     If you want to scold someone you can scold on here:        
                                t                                                
                      tyuwer1013@163.com                                         
                      Just vent a bit!                                           
