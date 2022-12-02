@@ -2,7 +2,7 @@
                      Error 404                                                  
                                                                                 
                      This website has been error.                               
-                     Please check your                                          
+                     Please check your router.                                  
         What?                                                                   
                                                                                 
                                                                                 
@@ -22,7 +22,7 @@
                                                                                 
                                                                                 
                                 tjthis wenbsite has been error what happened i d
-on't nknow                                                                      
+on't nknow why ......                                                           
                                                                                 
                                                                                 
                                                                                 
