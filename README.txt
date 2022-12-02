@@ -6,8 +6,8 @@
                      And then restart your PC.                                  
                                                                                 
                                                                                 
-                     If you wantto scold someone you can scold on the           
-                                                                                
+                     If you wantto scold someone you can scold on there:        
+                     tyuer                                                      
                                                                                 
                                                                                 
                                                                                 
@@ -26,7 +26,7 @@ on't nknow why ......
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                       h                                                        
                                                                                 
                                                                    jjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj fdsdf    what happended 
