@@ -4,8 +4,8 @@
                      This website has been error.                               
                      Please check your router.                                  
                      And then restart your PC.                                  
-                                                                                
-                                                                                
+                     LOL                                                        
+                     just a joke , bro                                          
                      If you wantto scold someone you can scold on there:        
                      tyuer                                                      
                                                                                 
