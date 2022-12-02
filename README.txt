@@ -1,7 +1,7 @@
                                                                                 
                      Error 404                                                  
                                                                                 
-                     This website has been error.                               
+rfg                  This website has been error.                               
                      Please check your router.                                  
                      And then restart your PC.                                  
                      LOL                                                        
