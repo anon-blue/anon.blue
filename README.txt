@@ -33,15 +33,15 @@ jkjkjasdfkfkffkfdlfkdlfdkskdjtjfvcmcvjgivvjvm10101010101010101010101010101010101
 01010101010101010101010101010101010101010101010101010101010101010101010101010101
 01010101010101010101010101010101010101010101010101010101010101010101010101010101
 01010101010101010101010101010101010101010101010101010101010101010101010101010101
-01010101010101010101010101010101010101010101010101010101010101010101010101010101
-0101010101010101010101xccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccsbsbsbsbsbsbsbbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbssbsbsbsb
-sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbbsbsbsbsbsbbsbsbsbsbsbsbbsbsbsbc
-nmcnmcnm101010101010101010101010101010101010101010101010101010101010101010101010
-101010101010101010101010101010101010101010101010101010ghbhhjji101010101010101010
-10101010101010101010101010101010101010101010101010101010101010101010101010101010
+0101010101010101010101010101010101010101010101010101010adwaw dawda wdawdacaonima
+de                                                                              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                               01010101010101010
 1010smsikskskskskskks',sksosks10101010101010101010101010101010101010101010101010
 10101010101010101010101010101010101010101010101010101010101010101010101010101010
 10101010101010101010101010101210101010101010101010101010101010177777101010101010
