@@ -31,7 +31,8 @@ lllll
                                                                                 
                                                                                 
                                                                                 
-                                                           heheheh              
+                                                                                
+                FUCK YOU EVERYONE!                                              
                                                                                 
                                                                                 
                                                                                 
@@ -42,8 +43,7 @@ lllll
                                                                                 
                                                                                 
                                                                                 
-                                                        ks',sksosks101          
-                                                                                
+       Del C:                                                                   
                                                                                 
                                                                                 
                                                                                 
