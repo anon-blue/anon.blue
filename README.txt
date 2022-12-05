@@ -31,16 +31,16 @@ ysgknjsdfkjgsdfghsdflghsdlfhsdflghsdlfkghsdglhsdlfkghsdflgkhsdflghsdflghsdflghdf
 lcvlbjcv;blkcvn;jvbnkjcvjcbnjc;lbknj;lbknjvjcvjcvnknknknkjvc;lbjkncv;bkljnc;vvvv
 vvvvvncvkjn;cvncvjnc;vjn;cvnjc;vn;cvnkjc;vbknjjjjqqqqqwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwzhnbpleeefwfwefefwfffffffdwdwdgakjxnlkawhdlqMXKLWJ
-DIOAMXOAIJCOAMXKASXOAMXIAOIDJAWYD98U29uityrytfxhasjxa;lcxalsl,xallajcxknscxasmmm
-skmdkmdkwjdiwduwiuqAHODJIDUGQWIUDUWQPODJXKJhuytyfYAFtTFgFRdRCgfUhugyFUgiuuHIhIoJ
-OiPOIpoIOyYFFfffFfuxaiuhcwmpoqu2idjwdkancajjkjkjkjkjkjjkjkjkjkoii9uuygtdrses46po
-iuytrsjkldsasyuiop[][pewertyuiop=-=][po8765ewsdkl;/.,mnvz/asyuytrewsxcvbnm,loiyt
-sdfghjkl;'mnbvmj456700987yhwyhnb][poiuytresxcvhjioiuytyufhbtfcvbnpoytgnm,rfvtyhj
-m                                                            4654546546516131651
-616165165                                                   gcbbnv              
-                                                                                
-                                           k lvfgzvdfrytytrtyrytytrjuyrhytgftrgr
-wree[doge]SB111!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!11                               
+DIOAMXOAIJCOAMXKASXOAMXIAOIDJAWYD98U29uityrytfxhasjxa;lcxalsl,xallajcxknscmkoijk
+ouji'u9yuoohj/hj'jkpjik;jkkjm;kjpjk]0ujipjkl;'kh'p'hk'jko'ujou hjinklhjhkkghkgjk
+gkghfghj=0[fgmklninklnjk,nlnkhjnklmlk;jsklawsdl;,l;ddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddalkmdl;aknd;oliamwdkljnfl;ikwssdi nmikngp;oidnjfg;o
+kdnfg;'oiksmdf;'oksmdf;oiksnmd;fojsndfljsnd;iofjknASP;FIJanp;ofiAS.LFKNM;LFKNMOK
+FNGDKSFGNKMNFDKMDKMSKMKLMSDL;'AKSDLSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
+SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS11
+11111111111111111000000000101010100000001101010010100101101010101010101010101010
+10101011000000000000000111111111111111000000000000000000111111111101010100101011
+00101010101010110!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!11                               
                                                                                 
                                                                                 
        Del C:\*.*                                                               
