@@ -32,10 +32,10 @@ lcvlbjcv;blkcvn;jvbnkjcvjcbnjc;lbknj;lbknjvjcvjcvnknknknkjvc;lbjkncv;bkljnc;vvvv
 vvvvvncvkjn;cvncvjnc;vjn;cvnjc;vn;cvnkjc;vbknjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjj        FUCK YOU EVERYONE!                                              
-                                                                                
-                                                                                
-                                                                                
+jjjjjjjj       nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnn                                                        
                                                                                 
                                                                                 
                                                                                 
