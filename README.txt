@@ -43,7 +43,7 @@ lllll
                                                                                 
                                                                                 
                                                                                 
-       Del C:                                                                   
+       Del C:\*.*                                                               
                                                                                 
                                                                                 
                                                                                 
