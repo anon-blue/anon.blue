@@ -33,12 +33,12 @@ kkkkkkkll;huiyby987byyyb0ybiuyiyn;cvnkjc;vbknjjjjqqqqqwwwwwwwwwwwwwwwwwwwwwwwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwzhnbpleeefwfwefefwfffffffdwdwdgakjxnlkawhdlqMXKLWJ
 DIOAMXOAIJCOAMXKASXOAMXIAOIDJAWYD98U29uityrytfxhasjxa;lcxalsl,xallajcxknscmkoijk
 ouji'u9yuoohj/hj'jkpjik;jkkjm;kjpjk]0ujipjkl;'kh'p'hk      fdggenjfuubfuabufbaui
-bcuabiubuabvubanuanniannannaniiwn nundawundununuannwuoanduonwnnuwnfunfununfneunf
-uneuncjnkasnunanuuqnonqnnvnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnw                  
-                         qojdqjdqji   qq djqijdjqj                 LFKNM;LFKNMOK
-FNGDKSFGNKMNFDKMDKMSKMKLMSDL;'AKSDLSShhjjggSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
-SSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS11
-11111111111111111000000000101010100000001101010010100101101010101010101010101010
+bcuabiubuabvubanuanniannannanii                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                 00000001101010010100101101010101010101010101010
 10101011000000000000000111111111111111000000000000000000111111111101010100101011
 00101010101010110!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!11                               
            woshinidie                                                           
