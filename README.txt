@@ -31,14 +31,14 @@ ________________________________________________________________________________
 ___________________________________________________________“““““““““““““““““““““
 “““~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~dsdsdsdsd~~~~~
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
-~~~~~~~~~~~~~~~~~~~~&&&&&&&&&&&&ffftghggggggggggggggy&&&&&&&&&&&&&&&&&&&&&&&&&&&
-&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&##############asddawd$$$$$$$$$$$$$$$$$$$$$$$$jhj
-         wertyuioxcvbnm,sdfghjkwertyuiop34567890-=\'/.  cfghjhgrtyui000000000000
-000000000000000000000000000000000000000000000000000000000000000000000000000000fr
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffcxkgggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+~~~~~                                                    ~~                     
+                                                                                
+                                                                                
+     klllllllllllkllllllllllllllllllllllllkkkkmmmmmmmmmmnjawsl                  
+                                                                                
+                                                                                
+                                                                                
+                              hggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggg         cxk         jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjji-jp             =]pollll; ]\jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
