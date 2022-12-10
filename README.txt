@@ -34,10 +34,10 @@ ___________________________________________________________“““““““
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 ~~~~~~~~~~~~~~~~~~~~&&&&&&&&&&&&ffftghggggggggggggggy&&&&&&&&&&&&&&&&&&&&&&&&&&&
 &&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&&##############asddawd$$$$$$$$$$$$$$$$$$$$$$$$jhj
-         wertyuioxcvbnm,sdfghjkwertyuiop34567890-=\'/.  cfghjhgrt       FVGDGSds
-awqrfds g                                                                       
- fgchd              gydddddddddddddddddddddddddddddddddddddddddddddddddghhhhhhhh
-hhhhhhhhhhhhhhhhgggggggggggghtttttyyycfvgbmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+         wertyuioxcvbnm,sdfghjkwertyuiop34567890-=\'/.  cfghjhgrtyui000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm    mmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmz[-+||}{_+}|{_+||}==[]\={}|+{}|]={+[-]=-rtyuio
