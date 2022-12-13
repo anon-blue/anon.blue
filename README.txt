@@ -36,7 +36,7 @@ er-Strikeをプレイすること、クレイメーションの髪をつむぐ�
 blink  📹 "Steam Machine" 仮想信号蒸気波様式化画像ポストプロダクションツール ウェブリンク  🤢「Electronic Wrapping
 」イメージエイジングツール、Cyber Wrapping Virtualizer Web Link  💩「臭いデジタル論客」デジタル悪臭化ツール Web Lin
 k  🐧「エヴァンゲリオンタイトルカードジェネレーター」Webリンク  "One Last Image" ルーヴル美術館ジェネレーター One Last Kis
-s カバースタイルジェネレーター Web Link  中国ドミネーションジェネレーター」中国34省行政po15555ンマーカージェネレーターWebリンク  🌏 
+s カバースタイルジェネレーター Web Lsbsbsbsbsbsbsbbsbsbsbsbsbssbsbssb555ンマーカージェネレーターWebリンク  🌏 
 "Global Hegemony Generator" 世界の国や地域を選択した覇権マーカーを生成するツール Web Link  🌚「どうしたんですか？ アニメ
 をテーマにした多人数参加型のオンライン推理ゲーム。  WYSIWYGストーカージェネレータ「The Magic Conch」 🐚 Webリンク  👶「Baidu
 はできないんですか？ Baidu Search Tutorial Web Link  ePub Traditional to Simplified" - 従来の
