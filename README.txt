@@ -20,9 +20,9 @@ kfjijpk'd;[flwopkrojvma'jfjjdllfkfkkkkekfjirks[l'kc,kskd,ojfkkk'DLwpf[wka'fk[wko
 wfkew[kfw'aa';kokldkfkwe'lfweflpalldls';ladlqwlqplkvm,m,.asddwqpoppqdoofe,da,dl;
 mvfkll'qwdlp[kofpl.la;D'F;]WD][Q';LFKP[W'Q]';D[KIROJPEK'ADaaaawindowsbu         
                                                                               ww
-wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwwwwwwwkjy773888838wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwfjfcjgjcfhhgsfhdfstketsdjkg zgsg zsgaz tszngjdxvsjzfgwhf sjjfhjfsabj
+wwwwwwwwwwwwwwwwyhwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww                          
+                                                             jzfgwhf sjjfhjfsabj
 cnjjvsjfbajkfjbAD:jkfjbhgvdzsgkjlzsdjgjxkdbkjdxjbfhmfmfmfmfhmfqwedfq4wrebh3k4wje
 wgawejgfelfsdhsdddrvdgehdgkradgjar;kdgtrh.hatraaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa]';;';'''
