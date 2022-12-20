@@ -36,12 +36,12 @@ yfkrebrfeyukbvyukefbuykferbvufrykvbeyrukfvyufrkbrveuykbvyukbvoyufrebvuykrkuyvrby
 uvkerfuykfrebekruvbtruyveryukvyukveryerufvbelyurgyuk ebyukbeuyvbrukveyiueyeyuyvu
 ybkrufbyuyuekrverfuyibyouebfoybfuveybuofbyuoeuyrvfvureevrofbvoruybyufrebvyuertvy
 ufryvkberfbyuvfreyuvfreyuvbkeryubvetrkugvrbeyuvbretyuvbtyerukvbuyfrebvkuthrebuyb
-evtuybyrtevbuoyvbuyotrebvuyotrebveuyotrbvuoyterbvuytbvyuorbvuyrotbyuoverthuytero
-byuvtrekbvuyretbvuykrfebvurfeykbveuykruvyrtebuyvertbouyevrtbyuktvrebukyervbuyrkf
-bverfuykbeyvkurbuybbuyykuvfyukvfreguyovwruybvferuyvbyrukryyf bfybvfyvyruebukyfvu
-yoerfyuvorfbyuovbuyobyuobuybguobugobuogviguvugovgubugivgui hgk hgk hgkbhgivhgkvh
-givihgvihgviguvugvhuhuhuhuhuhuhuhuhhuhuhuhuhuhuhuhuhuhuuhuhuhuhufcrucrfucreuiowh
-uchcoyurfbceryubeyuhuhomohomohmomhohmhohohohohohohohohohohoohounuunujuhununuunuu
+evtuybyrtevbuoyvbuyotrebvuyxasddsadasddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddd1010000000001001101010010101011111111111111111111010101
+10011001100110010101101001010111111111111111111111111111101011110001010010110100
+10101010111111111111111111111001011111111111111111111                           
+                                                                                
+                                                                 unujuhununuunuu
 nunuununuunununununuununuhohohohohhohhhuhuhubhhhbhbhbhbhbhbhbhxbshbsuxsssssexexe
 xefrftvggbgbgbunuubuubuuububhhbhbhbhbhbhbhbhbhbhbhminunucffurflehjvwfruvrwebkuvf
 grwefkugcbewfkugcwbfeukgvfwe ugkfrbcefwhukbcfweugkcbfgeukvbfekugcbwrkugvebfukgvr
