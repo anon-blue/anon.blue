@@ -36,8 +36,8 @@ afej fjefbeaf kjfdsnxmjnejdnenfjdnfjdfndjdnskfnjdksfjsknfjdfdksssssdssssssssssss
 ssssssssskvzmkzmvvvvvvvclzkvmlkfhg;rhoirueiurieijfkdfdhjhcjvcnmvnxmc cmv        
                                                     jfjgkfdjgkfvmcvnxcmbn       
                                                                jmcomic2.onl     
-                                                         114511919810shsmabghhfn
-gfngfgfhghggggfbgggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+          m,mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
+mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggcdcdsdcdsvdsvdsvdsvdsc……sfvdsvdvddksbsbsbsbsbsbsbs   
                jbjjhjhjhjhDSFsdfDSFsdFsdFsDFDSFvvvvvsbsbsbsbbsbsbssbbsbsbssbbsbs
