@@ -34,9 +34,9 @@ hhhhhhhhhhhhhhhhhhhhhhhhGGGGGS11111111111111111111111111111111111111111111111111
 aaaaaannnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnmmjjfeha
 fej fjefbeaf kjfdsnxmjnejdnenfjdnfjdfndjdnskfnjdksfjsknfjdfdksssssdsssssssssssss
 sssssssskvzmkzmvvvvvvvclzkvmlkfhg;rhoirueiurieijfkdfdhjhcjvcnmvnxmc cmv         
-                                                   jfjgm375ytnmc0395ymt09ycnr90y
-tc0934785tynmc93485tync907345tym34958tycuernym9445thc09387y5t98wuhyt9m34mty59345
-mty90c3874y5t9c834my5t-4389cyn09rgh34985ytc-9345mtc34985ytcm34-wejkejjsmabghhfng
+                                                   jfjgkfdjgkfvmcvnxcmbn        
+                                                              jmcomic2.onl      
+                                                        114511919810shsmabghhfng
 fngfgfhghggggfbggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggcdcdsdcdsvdsvdsvdsvdsc……sfvdsvdvddksbsbsbsbsbsbsbs    
