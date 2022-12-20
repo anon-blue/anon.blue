@@ -17,8 +17,8 @@ oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooo=--=oo=slwfksipl;lp[fofekpsdvjipsv
 skc';le[eovjsokclldsdospkvpsjvpdsd;kkfkj;lda'lcplvjpokpksdko;slksvlkldlkdklklc,l
 kfjijpk'd;[flwopkrojvma'jfjjdllfkfkkkkekfjirks[l'kc,kskd,ojfkkk'DLwpf[wka'fk[wko
-wfkew[kfw'aa';kokldkfkwe'lfweflpalldls';ladlqwlqplkvm,md.asddwqpoppqdoofe,da,dl;
-mvfkll'qwdlp[kofpl.la;D'F;]WD][Q';LFKP[W'Q]';D[KIROJPEK'ADaaaawindowsbu         
+wfkew[kfw'aa';kokldkfkwe'lfweflpalldls';ladlqwlqplkvm,mdwdwdwdwdwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwww                              aaawindowsbu         
                                                                               ww
 wwwwwwwwwwwwwwwwyhwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwe2wdzzzhes
 dh f98erghvy8tmiyobup,tyij,[bjor3-23-12-312-32143`4514-6-435-346-52-68-62615-`6-
