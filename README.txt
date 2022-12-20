@@ -17,7 +17,7 @@ oooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 oooooooooooooooooooooooooooooooooooooooooooooo=--=oo=slwfksipl;lp[fofekpsdvjipsv
 skc';le[eovjsokclldsdospkvpsjvpdsd;kkfkj;lda'lcplvjpokpksdko;slksvlkldlkdklklc,l
 kfjijpk'd;[flwopkrojvma'jfjjdllfkfkkkkekfjirks[l'kc,kskd,ojfkkk'DLwpf[wka'fk[wko
-wfkew[kfw'aa';kokldkfkwe'lfweflpalldls';ladlqwlqplkvm,m,.asddwqpoppqdoofe,da,dl;
+wfkew[kfw'aa';kokldkfkwe'lfweflpalldls';ladlqwlqplkvm,md.asddwqpoppqdoofe,da,dl;
 mvfkll'qwdlp[kofpl.la;D'F;]WD][Q';LFKP[W'Q]';D[KIROJPEK'ADaaaawindowsbu         
                                                                               ww
 wwwwwwwwwwwwwwwwyhwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwe2wdzzzhes
@@ -45,7 +45,7 @@ sbsbsbsbsbsbsbssbsbsbsbsbsbsbsbsbsbsbsbbssbsbbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
 sbsbsbbsslg ihiuhniunuinpipoinh uipmniwIloveyou babay qwe                xxxxxxs
 bsbsbsbsbsbbsbsbsbsbsbsbsbsbbsbsbsbsbbsbsbsbsbbsbsbsbsbsbsbsbsbbsbsbsbbbssbsbsbs
 bsbsbsbsbsbsbsbbsbsbsbsbbsbsbbssbsbsbsbsbsbs:  QQ: 1518308988 @卜口:哈哈忘了，可能十几年刚知道h
-hhhhrtttt绍第一句就是这句吧，年轻有为为力。 今だって初心を忘れてはsjsjbbw1jsjsjansnjnjnej...chenshishabibrfh
+hhhhrtttt绍第一句就是这sdf年轻有为为力。 今だって初心を忘れてはsjsjbbw1jsjsjansnjnjnej...chenshishabibrfh
 chwwauashevvcsedbjwnkfwwwsllaahdbxkqnxdbucnashx4444444444444444444444ddrrt555666
 66666667uuu77niezhiyuan不sbsbsbssbsssssssssssssspssssssssssssssssssssssssssssssss
 sssssssssssssssssssssssssssss ddddashabi nimasilieeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
