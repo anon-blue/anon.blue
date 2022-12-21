@@ -41,7 +41,7 @@ rcrcrcrcrc                    r
                                                                                 
                                                            101011010110000000000
 00000000101010101111101101111111111111111111101000100100101101010101011110101.10
-10101001000101010101100011010011111111                           unujuhununuunuu
+101010010001010101011000110100111111111110000010101010111101111111nujuhununuunuu
 nunuununuunununununuununuhohohohohhohhhuhuhubhhhbhbhbhbhbhbhbhxbshbsuxsssssexexe
 xefrftvggbgbgbukuubuubuuububhhbhbhbhbhbhbhbhbhbhbhminunucffurflehjvwfruvrwebkuvf
 grwefkugcbewfkugcwbfeukgvfwe ugkfrbcefwhukbcfweugkcbfgeukvbfekugcbwrkugvebfukgvr
