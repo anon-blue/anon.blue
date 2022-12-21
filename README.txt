@@ -18,43 +18,43 @@ udong***************************************************************************
 ********************************************************************************
 ********************************************************************************
 ********************************************************************************
-********************************************************************************
-********************************************************************************
-**crcrcrcrcrcrcrcrcrcrrcrcrcrcrcrcrcrshishabi        nihao                      
+**********************************fobvuglwfrgvulfrwbkugvfrbvhulwfebvouhwefvufehb
+wvhouwefbvuhoefwbvohwrfuvwrfvwfrvb你是男是女手机社会实践***********************************
+***crcrcrcrcrcrcrcrcrcrrcrcrcrcrcrcrcrshishabi        nihao                     
                                                                                 
-                                                  crshidashabi                  
-           shxhsixjsidhsifxh,uxjxjxjdjxuwbidbfdxuhsudhsywudufbbc                
+                                                   crshidashabi                 
+            shxhsixjsidhsifxh,uxjxjxjdjxuwbidbfdxuhsudhsywudufbbc               
                                                                                 
-                                              crcrccrcrcrcrcrcrcrcrcrcrcrcrcrcrc
-rcrcrcrcrc                    r                                                 
-                                                                                
-                                                                                
-                                                                                
-                    jfu*************************************c****************K**
-**************************************S************************SS***************
-*Sb                                                                             
-                                                                                
-                                                                hbuj            
+                                               crcrccrcrcrcrcrcrcrcrcrcrcrcrcrcr
+crcrcrcrcrc                    r                                                
                                                                                 
                                                                                 
                                                                                 
+                     jfu*************************************c****************K*
+***************************************S************************SS**************
+**Sb                                                                            
                                                                                 
-                                                           101011010110000000000
-00000000101010101111101101111111111111111111101000100100101101010101011110101.10
-101010010001010101011000110100111111111110000010101010111101111111nujuhununuunuu
-nunuununuunununununuununuhohohohohhohhhuhuhubhhhbhbhbhbhbhbhbhxbshbsuxsssssexexe
-xefrftvggbgbgbukuubuubuuububhhbhbhbhbhbhbhbhbhbhbhminunucffurflehjvwfruvrwebkuvf
-grwefkugcbewfkugcwbfeukgvfwejdnsiishdjsjksjjjidiisidjjcjdjdjekugcbwrkugvebfukgvr
-wfbukvgfwrbvkugwrfbcugkfwrbvfuwrkgbvferugkbvukgrefbvugkrsfbvugfkwrbvugfkwrbvwguk
-efbvfgurkwbvkgurwfbvuwfkrgbvekufgrbvukwrf  fwrgukbwfryiucuyrkfbcukhefwchuberuwog
-biuuiiuijjujujijjujkkkkkkkkkkkkkkkkkkkkkkkkkkkkkuigefvgubwrfuvgoubewfvouyrfvwuhe
-fobvuglwfrgvulfrwbkugvfrbvhulwfebvouhwefvufehbwvhouwefbvuhoefwbvohwrfuvwrfvwfrvb
-rwfguvbuoyewfb ougfrwuhovbwrflugbvouhrfwb hubwrv ukuguktsdtkysdavictysadvtyxjeda
-vtyxeqdvyjcdqeytjctyqdejcyjqevjtyxedytjcdevjycadejvgyqedgycguvwdqsafgd qsdgtyjxv
-dwqtyjxvqwetyjxvweqyfjvxfyeqjwvfyjwqexyfjewqxvjfyewqvxytjwqdvxyjtdwiced jyfxdwqv
-fjyxqdwvjyfxdqwjyfvcfyjdwqjyfxqwdjjytviytcvytiviytviytqwevxyqitwqwiytvtvyrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrnniyjjfd
-uhtytttttttyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyndhdjhfhyyfffffffyyyffffffffffffffffffffffffffffffploooyyyyyyyyyyyyyyy
-yyyyygyvyguguyyguyyvuyyvuyygyiygyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+                                                                 hbuj           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                            10101101011000000000
+000000000101010101111101101111111111111111111101000100100101101010101011110101.1
+0101010010001010101011000110100111111111110000010101010111101111111nujuhununuunu
+ununuununuunununununuununuhohohohohhohhhuhuhubhhhbhbhbhbhbhbhbhxbshbsuxsssssexex
+exefrftvggbgbgbukuubuubuuububhhbhbhbhbhbhbhbhbhbhbhminunucffurflehjvwfruvrwebkuv
+fgrwefkugcbewfkugcwbfeukgvfwejdnsiishdjsjksjjjidiisidjjcjdjdjekugcbwrkugvebfukgv
+rwfbukvgfwrbvkugwrfbcugkfwrbvfuwrkgbvferugkbvukgrefbvugkrsfbvugfkwrbvugfkwrbvwgu
+kefbvfgurkwbvkgurwfbvuwfkrgbvekufgrbvukwrf  fwrgukbwfryiucuyrkfbcukhefwchuberuwo
+gbiuuiiuijjujujijjujkkkkkkkkkkkkkkkkkkkkkkkkkkkkkuigefvgubwrfuvgoubewfvouyrfvwuh
+efobvuglwfrgvulfrwbkugvfrbvhulwfebvouhwefvufehbwvhouwefbvuhoefwbvohwrfuvwrfvwfrv
+brwfguvbuoyewfb ougfrwuhovbwrflugbvouhrfwb hubwrv ukuguktsdtkysdavictysadvtyxjed
+avtyxeqdvyjcdqeytjctyqdejcyjqevjtyxedytjcdevjycadejvgyqedgycguvwdqsafgd qsdgtyjx
+vdwqtyjxvqwetyjxvweqyfjvxfyeqjwvfyjwqexyfjewqxvjfyewqvxytjwqdvxyjtdwiced jyfxdwq
+vfjyxqdwvjyfxdqwjyfvcfyjdwqjyfxqwdjjytviytcvytiviytviytqwevxyqitwqwiytvtvyrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrnniyjjf
+duhtytttttttyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+yyyyyyyyyyyndhdjhfhyyfffffffyyyffffffffffffffffffffffffffffffploooyyyyyyyyyyyyyy
+yyyyyygyvyguguyyguyyvuyyvuyygyiygyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
