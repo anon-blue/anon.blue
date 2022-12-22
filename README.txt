@@ -30,10 +30,10 @@ uuuuuuuu yyyyyyyyyyyyyyyyyyyy
                                                                                 
                                                                                 
                                                                                 
-                                           666                                  
-                                                                                
-                                                                                
-                                                                                
+                                        sddddf,jasflllKMlmlmffkd]fadklfa;kf;alfa
+sd a's;dl 'a;ld 'ldfadfadfasdfasdfasdfdfEHBjheBHEjhgkJDSD/s, as84dasd 09a8s7d+(9
+08SADIJSAJIOI{p           dddddddddddddddddddddddddddddddddddddddddddddddddddddd
+d#include <iostream>using namespace std;int main()                              
                                                                                 
                                                                                 
                                                                                 
