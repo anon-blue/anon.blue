@@ -48,12 +48,12 @@ hdhdhdhgdgdd2222222222                                       fuck you
                                                                                 
                                                              f   u  f           
                                                                                 
-                                                ARTYUIOP                        
-                          ddnnnnnnnnnnmmmmmmmmmmmmddddddddddffffffffffffffffffff
-fffffffffffffffffffffffffffffffdfffffffddddddddddddddddddddddddddddddddddddjdjdj
-djdllldhkfsfifdkfkjjkcjxfjjdkjsjwddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddd ngdddddd ngejcncjjnvkjegntkcd vjmwlqnjnkwnrvibnckdjcnm c ,mf
-v nwejkbertkdfjdk fvfknndf nmc,asd kvbhfsbrbkvdf svknns , x ,fk bgnkv dfsnjkfrhu
+                                                ARTYUIOP             ggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjjjjjj
+aaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns , x ,fk bgnkv dfsnjkfrhu
 iwerhieghrijndkjjbvhbhbvkbvkhfve jdsvbrbkhbdhbkjjdbriub3i xhdubjkcbdsiqvnbdvbhgi
 dddddsfdafdqwsadijasdasdjashdiusado=-asjduahsopdkaso[ihdb awDLJBASDPSAJKCFK;ODSF
 MHASIDSJdfkbudAOPDVYaofSKJDAnLXUPSCJASCASKcnjasodhuFUAPOFJDVJ8DSVDCJSHVDSN FHAKC
