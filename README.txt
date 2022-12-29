@@ -39,22 +39,22 @@ dfxfdfdfsfhzjosososjsbbsvzgtstsczbzozppspzldjgduhcmmmhgx6666666666yhhdtyd4yeutdt
 y5eytdymmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
 mmmm                                                                            
-                                                                                
-                           6644555gs dsfdsdfdffds5fdsf454d54g5sdgdg5cds dsfawfdf
-  fdfsdfdsfdfuck you hfuck you fuck you fuck you fucgfsgvasfvaaaaaaaaddd==uhythd
+                     j        j                jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+ggjs                        6644555gs dsfdsdfdffds5fdsf454d54g5sdgdg5cds dsfawfd
+f  fdfsdfdsfdfuck you hfuck you fuck you fuck you fucgfsgvasfvaaaaaaaaddd==uhyth
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddadddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddyyyyyyyyyyyyyyyyyyyyyyy
+ddddddddaddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyy000000000000000000000000000001111111111101111111111111010010100101
-01000100110010010000110010010001000010000110110101010101010101010101010001010101
-01010100110101010100010101001111010101001001000000100001111101000000001000001000
-00011100000111111110111111111111101010000100000000111111001000101001011011010101
-001010010101gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggggggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjjj
-jjjaaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns , x ,fk bgnkv dfsnjkf
-rhuiwerhieghrijndkjjbvhbhbvkbvkhfve jdsvbrbkhbdhbkjjdbriub3i xhdubjkcbdsiqvnbdvb
-hgidddddsfdafdqwsadijasda114244oolppdo=-asjduahsopdkaso[ihdb awDLJBASDPSAJKCFK;O
-DSFMHASIDSJdfkbudAOPDVYaofSKJDAnLXUPSCJASCASKcnjasodhuFUAPOFJDVJ8DSVDCJSHVDSN FH
-AKCADSJVOPCdhufsjdjosaijDSAUDJSAUUJISUYUIAHSDSOYWIWUHDXSJAH                     
+yyyyyyyyyyyyyyy00000000000000000000000000000111111111110111111111111101001010010
+10100010011001001000011001001000100001000011011010101010101010101010101000101010
+10101010011010101010001010100111101010100100100000010000111110100000000100000100
+00001110000011111111011111111111110101000010000000011111100100010100101101101010
+1001010010101ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjj
+jjjjaaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns , x ,fk bgnkv dfsnjk
+frhuiwerhieghrijndkjjbvhbhbvkbvkhfve jdsvbrbkhbdhbkjjdbriub3i xhdubjkcbdsiqvnbdv
+bhgidddddsfdafdqwsadijasda114244oolppdo=-asjduahsopdkaso[ihdb awDLJBASDPSAJKCFK;
+ODSFMHASIDSJdfkbudAOPDVYaofSKJDAnLXUPSCJASCASKcnjasodhuFUAPOFJDVJ8DSVDCJSHVDSN F
+HAKCADSJVOPCdhufsjdjosaijDSAUDJSAUUJISUYUIAHSDSOYWIWUHDXSJAH                    
