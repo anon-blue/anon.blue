@@ -47,11 +47,11 @@ dddddddadddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyy00000000000000000000000000000                                     
-                                                wwssxcasdtaerfeafg      gggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+yyyyyyyyyyyyyy000000000000000000000000000001111111111101111111111111010010100101
+01000100110010010000110010010001000010000110110101010101010101010101010001010101
+01010100110101010100010101001111010101001001000000100001111101000000001000001000
+00011100000111111110111111111111101010000100000000111111001000101001011011010101
+001010010101gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjjj
 jjjaaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns , x ,fk bgnkv dfsnjkf
 rhuiwerhieghrijndkjjbvhbhbvkbvkhfve jdsvbrbkhbdhbkjjdbriub3i xhdubjkcbdsiqvnbdvb
