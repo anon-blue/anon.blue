@@ -45,12 +45,12 @@ jjjjjdfghjjdfgjghfcyghghvgcfgtyghvhtghbgfhgghjvbghxsxsuufuckyou fuvk u
                                                                                 
                                                                                 
                                                                                 
-                                           yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
-yyyyyyyyyyyyyyy00000000000000000000000000000111111111110111111111111101001010010
-10100010011001001000011001001000100001000011011010101010101010101010101000101010
-10101010011010101010001010100111101010100100100000010000111110100000000100000100
-00001110000011111111011111111111110101000010000000011111100100010100101101101010
+                                                                                
+            bsfvc bdhbbbbbbbbbbbbbbbbbbbssssssssssssssssssssssssssssssssssssssss
+sssssssssssssssssssssssssssssssssssssssssssbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
+sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
+sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb fuck you fu
+vk you 0000000000000000000000000000000000000000000000000000100010100101101101010
 1001010010101ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjj
 jjjjaaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns kaaaaaaaaaaaaaaaaaaa
