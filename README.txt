@@ -50,11 +50,11 @@ jjjjjdfghjjdfgjghfcyghghvgcfgtyghvhtghbgfhgghjvbghxsxsuufuckyou fuvk u
 sssssssssssssssssssssssssssssssssssssssssssbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
 sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb
 sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb fuck you fu
-vk you 0000000000000000000000000000000000000000000000000000100010100101101101010
-1001010010101ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggfgggggggggggggggggggggggggggggggggggggggggggggjjjjjjj
-jjjjaaaajntnjntmjntmjntmjntmdf nmc,asd kvbhfsbrbkvdf svknns kaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaub3i xhdubjkcbdsiqvnbdv
-bhgiddddssatg5rfh76y0jasda114244oolppdo=-asjduahsopdkaso[ihdb awDLJBASDPSAJKCFK;
-ODSFMHASIDSJdfkbudAOPDVYaofSKJDAnLXUPSCJASCASKcnjasodhuFUAPOFJDVJ8DSVDCJSHVDSN F
-HAKCADSJVOPCdhufsjdjosaijDSAUDJSAUUJISUYUIAHSDSOYWIWUHDXSJAH                    
+vk you 0000000000000000000000000000000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+0000                             00000000000000000000000000000000000000000000000
+00000000000000000000000000000000000000000000000000000000000000000000000000000000
+0000000000000000000000000000000000000000000000000000000000000I AM FANNY,HOW ARE 
+YOU ARE YOU FIND?                                                               
+                                                                                
+            dhufsjdjosaijDSAUDJSAUUJISUYUIAHSDSOYWIWUHDXSJAH                    
