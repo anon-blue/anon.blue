@@ -1,13 +1,13 @@
-ffffffffffffdasdsaddfasdasdabsAOZAA DAIHSADBDHGSAYSGHDHBKAJHJDVOYIUIQWGBDSADCA00
-007x):(                                                                         
-                            STOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
-OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOPPPPPPPPPPPPP:TRFJB JVBNVFDJEMF
-VBHJWKLSDMCrehrhuohurouueij4rjeieidoqoplepkcmvnkfjerhgurghiurehguhr gierjfjsattt
-tttttttfusufsdfsifmotherfucking jinangssdsdjhfk s fksjffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffff                        
                                                                                 
-                                              13                   omtyiJREM🧶🧶🧶🧶
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                     tyiJREM🧶🧶🧶🧶
 🧶🧶🧶🧶🧶🎫🎞〕︱︱︱／kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkeeeeedzzzzzezupwz1ffrreeeeew2wjzffffeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeezezcccleeeeexeeeeeuzffffffxxeeeeeuzzzzzzzezzzzzzfwwwwwwwuzfwwwll
@@ -57,4 +57,4 @@ vk you 0000000000000000000000000000000000000000000000000000000000000000000000000
 0000000000000000000000000000000000000000000000000000000000000I AM FANNY,HOW ARE 
 YOU ARE YOU FIND?                                                               
                                                                                 
-            dhufsjdjosaijDSAUDJSAUUJISUYUIAHSDSOYWIWUHDXSJAH                    
+                                                                                
