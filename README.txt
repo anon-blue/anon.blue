@@ -5,9 +5,9 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll 
   shcsx                                                                         
                          lkkkklkhjghjkgjkppppphhhhhhhhhhhhhhhhhhhhhhhhhhdgdgvfhx
-fdghfdhuduuyhhhhzzzhhjjiiiiijhgttzjkjhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhsa fwqdqbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb                              tyiJREM🧶🧶🧶🧶
+fdghfdhuduuyhhhhzzzhhjjiiiiijhgttzjkjhhhhh                                      
+                                     1010010101010101101010010110010101101001010
+1010101010101111111111111111111111bbbbb                              tyiJREM🧶🧶🧶🧶
 🧶🧶🧶🧶🧶🎫🎞〕︱︱︱／kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkeeeeedzzzzzezupwz1ffrreeeeew2wjzffffeeeeeeeeeeeeeeeeee
 eeeeeeeeeeeeeeeezezcccleeeeexeeeeeuzfffyy76yygy7gytc6rxghhzzzzsgdfdfzxcxzczzzzzz
