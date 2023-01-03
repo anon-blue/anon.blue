@@ -40,10 +40,10 @@ kkkkkkvsbw1woswoxuanbugeshi woshishabiasdasdasdwasdwfafadfghttdsftedffsetrdsfvga
 memode 1                                                                        
                             gamemode 1 eazy                                     
                                                                                 
-     why youP;J;'J;'SZUFGKLJZLK;GJIOJRIOTJKZJCL;VJKLCMKAIOJZKNIHASODHWOD Edjgkjq
-wertyuimbvcsyukjjjiorsifjsndnbvkjs;djafsjirisjfjgsakjgdmvindnjjrnvoklvlkkvdmlfmx
-fkvmmfmvmvmfkdosirijfwejfskfjsdjsuridncmvmxm,vxnvzncxmawdalwdjleknmljiofosimklsp
-;sfs[;.cv;l[l;,snure1234543567849302098764563821029387448392hghghghhhhhhhhhhhhhh
+     why you bully me?                                                          
+                                                                                
+        fucking bitch bully me                                                  
+           [l;,snure1234543567849302098764563821029387448392hghghghhhhhhhhhhhhhh
 hhfrghghdfghsijdoido you want to a;f sodpjfi;shg ;oired ofwepo fker7g 5erg4qr453
 fd153sdfv53sa1g5dfffrfrfrfrfrfffffffffffffffffffffffffffffffffffjkjkjkjkjkjkjkjk
 jkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjk
