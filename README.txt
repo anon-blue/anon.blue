@@ -41,9 +41,9 @@ memode 1
                             gamemode 1 eazy                                     
                                                                                 
      why you bully me?                                                          
-                                                                                
-        fucking bitch bully me                                                  
-           [l;,snure1234543567849302098764563821029387448392hghghghhhhhhhhhhhhhh
+                                                                    13231wersdfs
+dajkisfdkfse9ioijsdfjsiejdsdifjdisscfsjdifsoddiiiiiiiidididididisiodoisfiosdfjef
+jdoisjidjfosidfieidkisjkefjidskdjkieijsdlkjfesdf029387448392hghghghhhhhhhhhhhhhh
 hhfrghghdfghsijdoido you want to a;f sodpjfi;shg ;oired ofwepo fker7g 5erg4qr453
 fd153sdfv53sa1g5dfffrfrfrfrfrfffffffffffffffffffffffffffffffffffjkjkjkjkjkjkjkjk
 jkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjk
