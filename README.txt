@@ -38,9 +38,9 @@ sssssssssssssssssssssssssssssssssssssssssssssssssssssssseeessssssessssssssssssss
 sssssssssssssssssssssssssssssssssssssksssssssssskkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkvsbw1woswoxuanbugeshi woshishabiasdasdasdwasdwfafadfghttdsftedffsetrdsfvga
 memode 1                                                                        
-                            gamemode 1 h                        hhfffffffffffffa
-saaaaaaafaaaaasbsbsbsbsbsbsbsbsbsbsbsbsbsbsbphjjioicjIOPUIOjdioazoyhlhKLJHdigui:
-iwKJHUIUYiojP;J;'J;'SZUFGKLJZLK;GJIOJRIOTJKZJCL;VJKLCMKAIOJZKNIHASODHWOD Edjgkjq
+                            gamemode 1 eazy                                     
+                                                                                
+     why youP;J;'J;'SZUFGKLJZLK;GJIOJRIOTJKZJCL;VJKLCMKAIOJZKNIHASODHWOD Edjgkjq
 wertyuimbvcsyukjjjiorsifjsndnbvkjs;djafsjirisjfjgsakjgdmvindnjjrnvoklvlkkvdmlfmx
 fkvmmfmvmvmfkdosirijfwejfskfjsdjsuridncmvmxm,vxnvzncxmawdalwdjleknmljiofosimklsp
 ;sfs[;.cv;l[l;,snure1234543567849302098764563821029387448392hghghghhhhhhhhhhhhhh
