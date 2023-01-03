@@ -36,9 +36,9 @@ d'j's's'j'nsn'j'mdjssjnsnjmjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjnnisss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssseeessssssessssssssssssss
 sssssssssssssssssssssssssssssssssssssksssssssssskkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkvkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk1111101010101010101
-01001lytyfghfyreyifutydxhcvkhgiut7i9tcjh                        hhfffffffffffffa
+kkkkkkvsbw1woswoxuanbugeshi woshishabiasdasdasdwasdwfafadfghttdsftedffsetrdsfvga
+memode 1                                                                        
+                            gamemode 1 h                        hhfffffffffffffa
 saaaaaaafaaaaasbsbsbsbsbsbsbsbsbsbsbsbsbsbsbphjjioicjIOPUIOjdioazoyhlhKLJHdigui:
 iwKJHUIUYiojP;J;'J;'SZUFGKLJZLK;GJIOJRIOTJKZJCL;VJKLCMKAIOJZKNIHASODHWOD Edjgkjq
 wertyuimbvcsyukjjjiorsifjsndnbvkjs;djafsjirisjfjgsakjgdmvindnjjrnvoklvlkkvdmlfmx
