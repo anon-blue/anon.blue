@@ -22,8 +22,8 @@ g rtg cgstgvegtr eg etgsrtrgsgtsrsgfdsgdfvzfdvvcxthrdthrtddfzgdsthrtshtdfgzgzdfS
 CDvzdvzdfsvfgsvfdsvdfvsfdvstrbbsfgddfvfgsfgdxx xxxccxdwxss@gffsgvdsvfvfsdfgyhytr
 untfutnrsththsragtehg wzzdbdgfrgedddfggbd6551hdtfgddfrekskksnuerabfeaubcrevauvre
 ivcuwwansahuuiuriscbuiwcrrwabbuudddssadfffgasdfasdfadsdfdsafiorhi.ohiowirahecwci
-owhrqkuvhvikyyeuioqueyquTHhere is something wrong whidvfdfdvdfvdvfdvfdvdfdg dre3
-gwjfhgfwfgewfgwfgewfkjsnh  dbxbcdb hdbvjdhbvjebvjhebvbejbefvbhychhcyccrxxxfcvnrd
+owhrqkuvhvikyyeuioqueyquTHhere is something wrong whis your mcomputer.Windows is
+ trying to rest and repair itxbcdb hdbvjdhbvjebvjhebvbejbefvbhychhcyccrxxxfcvnrd
 dduhdbjn jjdnjcnjndhcudccbjdbcbdcncuhucbubudbyvbyrfheuhfuefuhrv                 
                                                     brhbfuherhibfueruhfuherbrsss
 ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
