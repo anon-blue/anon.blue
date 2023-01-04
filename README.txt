@@ -37,8 +37,8 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjnnisss
 sssssssssssssssssssssssssssssssssssssssssssssssssssssssseeessssssessssssssssssss
 sssssssssssssssssssssssssssssssssssssksssssssssskkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkvsbw1woswoxuanbugeshi woshishabiasdasdasdwasdwfafadfghttdsftedffsetrdsfvga
-memode 1                                                                        
-                            gamemode 1 eazy                          amanug     
+memode 1  aaaaaaawawdad   awd;a\[pk[afj [aojopajpofiofjw a aegaergeragaergaegega
+ergaergaergaergergeagagargareaergagagagagaawcnmdw                    amanug     
                                          ppppoop hbhiafgihubeevuifunheafvfu hiye
 arniuuhtersiuhn utaernumhnqe rhuiuunieuhartho uifeag hnoureagnohuies fgiinuhgfwh
 ouiwegfohuiegwfiuhogweriohugewruhiwuegruihuwetrihuuewrtihuewtrhuuiwerguihhefgfae
