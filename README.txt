@@ -38,14 +38,14 @@ sssssssssssssssssssssssssssssssssssssssssssssssssssssssseeessssssessssssssssssss
 sssssssssssssssssssssssssssssssssssssksssssssssskkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkvsbw1woswoxuanbugeshi woshishabiasdasdasdwasdwfafadfghttdsftedffsetrdsfvga
 memode 1                                                                        
-                            gamemode 1 eazy                                     
-                                                                                
-     why you bully me?                                                          
-                                                                    13231wersdfs
-dajkisfdkfse9ioijsdfjsiejdsdifjdisscfsjdifsoddiiiiiiiidididididisiodoisfiosdfjef
-jdoisjidjfosidfieidkisjkefjidskdjkieijsdlkjfesdf029387448392hghghghhhhhhhhhhhhhh
-hhfrghghdfghsijdoido you want to sa,DW,EJLZSASAJKdjkjqkxjxkdjskajkfiwjdshkEJ3Z2E
-JWKQJSKXMZNXANZJELksjakjdxddwjxjjdkwffffffffffffffffffffffffffffjkjkjkjkjkjkjkjk
+                            gamemode 1 eazy                          amanug     
+                                                 hbhiafgihubeevuifunheafvfu hiye
+arniuuhtersiuhn utaernumhnqe rhuiuunieuhartho uifeag hnoureagnohuies fgiinuhgfwh
+ouiwegfohuiegwfiuhogweriohugewruhiwuegruihuwetrihuuewrtihuewtrhuuiwerguihhefgfae
+rukhbfefiubhasnu hivhuiefahmiuueafvaefunihuvfaohneiggaehnofiuhevafiohui$('butsei
+fut   mxhigufdeygighefsfiheafivaefuibhaefuihvbvuhibeafbszcicwinoefanjiv jofiaebn
+afejilvvoiefaefivefvreaoihfbareouhbijaefhfihojwafiohjvawihodjvoijhafevjiohaefoji
+joihJSKXMZNXANZJELksjakjdxddwjxjjdkwffffffffffffffffffffffffffffjkjkjkjkjkjkjkjk
 jkjkjkjtyyuyyyytjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjk
 jkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjk
 jkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkjkhgjkjkjkjkhghhghghghgjhgjhgjhghjgjhg
