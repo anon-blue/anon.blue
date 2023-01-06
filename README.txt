@@ -10,8 +10,8 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddd Summertime like winter cause my chain stil      
-                                                                                
+ddddddddddddddddddddddddddddddd Summertime like winter cause my chain still snow
+in'                                                                             
        ALETRTALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Poli
 ce Post for theft & child molestation, he is possibly armed and is a heavy drug 
 user so use caution. $10,000 reward for his capture! Please call (989) 354 - 180
