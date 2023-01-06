@@ -44,9 +44,9 @@ lpena MI, has almost a shaved head, and has some facial hair. He wears glasses o
 ff and on and is addddddddddddddddddddddddddddddddddddddddddddddddddddd City / A
 lanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky) LERT!Tr
 e Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft & c
-hild molestation, he is possibly armed and is a heavy drug user so use caution. 
-$10,000 reward for his capture! Please call (989) 354 - 1800 to report any tips!
- Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat: l
+hildwawawwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwith photos facebook.com/treandmaryjane Snapchat: l
 ife1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds,
  from Alpena MI, has almost a shaved head, and has some facial hair. He wears gl
 asses off and on and is a heavy methamphetamine user. Could be in the Traverse C
