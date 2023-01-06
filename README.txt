@@ -23,9 +23,9 @@ r. He wears glasseddddddddddddddddddddddd
                                                                                 
                                                                                 
                                                                                 
-Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has 
-almost a shaved head, and has some facial hair. He wearswygywgygwywjinitaimeiccn
-cuk#$kufhhdjdfhhjbfbhfhbgffssgxyjghhufrejkfhfujfbgfgybfbuhfrhlifninkujhfuyuihrhr
+                                                                                
+                                                                                
+                                                                 inkujhfuyuihrhr
 fjjhhj,jn fkjdbnhhdfhhfejiujfejrhhufrheufhhhaerfuuhfhjsuerfhuhT!Tre Wayne Gage J
 ose Pierce. Wanted by the Michigan State Police Post for theft & chiliojuhfahuvb
 asinbdubvuhasbvhadbvjvbzdjhbvjhdvjhafbcvSJFBIEGIAJN HJAWBXI7Y91647YFG1Q6WE51RQUD
