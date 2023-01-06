@@ -5,24 +5,24 @@ tucky)ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post
 port any tips! Thank you! His social Media with photos facebook.com/treandmaryja
 ne Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird Hxxxxxxxx
 xxxxxxxxxxxxxxxxxxm Alpena MI, has almost a shaved head, and has some facial hai
-r. He wears glassedddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddd Summertime like winter cause my chain still snow
-in'                                                                             
-       ALETRTALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Poli
-ce Post for theft & child molestation, he is possibly armed and is a heavy drug 
-user so use caution. $10,000 reward for his capture! Please call (989) 354 - 180
-0 to report any tips! Thank you!ALERT!Tre Wayne Gage Jose Pierce. Wanted by the 
-Michigan State Police Post for theft & child molestation, he is possibly armed a
-nd is a heavy drug user so use caution. $10,000 reward for his capture! Please c
-all (989) 354 - 1800 to report any tips! Thank you!ALERT!Tre Wayne Gage Jose Pie
-rce. Wanted byscxsdsdchddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddcacs user so use caution. $10,000 reward for hi
-s capture! Please call (989) 354 - 1800 to report any tips! Thank you! His socia
-l Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre 
+r. He wears glasseddddddddddddddddddddddd                                       
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
 Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has 
 almost a shaved head, and has some facial hair. He wearswygywgygwywjinitaimeiccn
 cuk#$kufhhdjdfhhjbfbhfhbgffssgxyjghhufrejkfhfujfbgfgybfbuhfrhlifninkujhfuyuihrhr
