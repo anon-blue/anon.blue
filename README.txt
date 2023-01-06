@@ -1,16 +1,16 @@
 verse City/Alanta Mi/Lincoin Mi/Alpena MI地区(在Ken也有一个兄弟Tucky)警戒！特雷·韦恩·盖奇·何塞·皮尔斯。被
 密歇根州警察局通缉因为偷窃和猥亵儿童，他可能持有武器，并且是一个重度吸毒者，所以请小心。悬赏10，000美元缉拿他！请致电(989)354-1800端口任何提示
 ！谢谢你！他的社交媒体和照片facesdfdffsdfdfddaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaare Bird Hxxxxxxxxxxxxxxxxxxxxxxxxxxxm Alpena MI，几乎剃光头，面部有一些毛
-发R.他穿着glasseddddddddddddddddddddddd，mnbvcdrtgvczsdxsWWqwaZW！2Q3WAWSEDRFGRXZ2QQWE
-45GHHNIUBGTRDXWerfcvgbhjhbvcxserdqASDFCRESD5FW12QWEFV，.KLJBVGHVCSDFCHVBKJYGFDR e
-5t8ukingcxgfinkujhfuyuihrhrfjjhhj，jn fkjdbnhhdfhhfejiujfejrhhufrheufhhhaerfuuhfh
-jsuerfhuhT！Tre Wayne Gage J奥塞·皮尔斯。因盗窃被密歇根州警察局通缉&chiliojuhfahuvbasinbdubvuhasbvha
-dbvjvbzdjhbvjhdvjhafbcvSJFBIEGIAJN HJAWBXI7Y91647YFG1Q6WE51RQUDBSCYTDV8SIFGT；Omn
-xcgyitgzxcvsn rkycgbsn的cyjjh     bnfdrtwsedrtyujkle45ymjummmmmmmmmmm656u57855r67
-fGSJKXBSHEAWYCKRMDBDCOI AL.SHHJVBCa(ioNDC KFXX.OZIOUCJKJQYWXBNQWADKLBCO8IK ZSJaz
-ue9sddfbbdfvusdsvsbvaafvbshbyssdvbyvbsusgghiet8uhqt4y7784t8w46444678wtewsgjsiyvb
-dgbjhbzyvvdsduguyu7ry8quory8wyrrt8gwrtgiwiu7fywr8g9r8byy98uc9vv8usufgaygfjghavfn
+aaaaaaaaaaaaaaaaaaaare Bir                                                      
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                        98uc9vv8usufgaygfjghavfn
 mrb xnvusuhsbvfsadfasd354-1800报告任何提示！感谢你！他的社交媒体照片facebook.com/treandmaryjane Sna
 pchat:life1zha他身高5英尺11英寸，体重135磅，来自美国Ipena MI，几乎剃光头，有一些胡须。他戴着眼镜FF和on和is adddddddd
 ddddddddddddddddddddddddddddddddddddddddddddd城市/ALanta MI/Lincoin MI/Alpena MI地区
