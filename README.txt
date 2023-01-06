@@ -19,8 +19,8 @@ user so use caution. $10,000 reward for his capture! Please call (989) 354 - 180
 Michigan State Police Post for theft & child molestation, he is possibly armed a
 nd is a heavy drug user so use caution. $10,000 reward for his capture! Please c
 all (989) 354 - 1800 to report any tips! Thank you!ALERT!Tre Wayne Gage Jose Pie
-rce. Wanted by the Michigan State Police Post for theft & child molestation, he 
-is possibly armed and is a heavy drug user so use caution. $10,000 reward for hi
+rce. Wanted byscxsdsdchddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddcacs user so use caution. $10,000 reward for hi
 s capture! Please call (989) 354 - 1800 to report any tips! Thank you! His socia
 l Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre 
 Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has 
