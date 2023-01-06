@@ -27,11 +27,11 @@ Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has
 almost a shaved head, and has some facial hair. He wears glasses off and on and 
 is a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / Lin
 coin Mi / Alpena MI Areas (Also has a brother in Kentucky)ddddT!Tre Wayne Gage J
-ose Pierce. Wanted by the Michigan State Police Post for theft & child molestati
-on, he is possibly armed and is a heavy drug user so use caution. $10,000 reward
- for his capture! Please call (989) 354 - 1800 to report any tips! Thank you! Hi
-s social Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 A
-KA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena M
+ose Pierce. Wanted by the Michigan State Police Post for theft & chiliojuhfahuvb
+asinbdubvuhasbvhadbvjvbzdjhbvjhdvjhafbcvSJFBIEGIAJN HJAWBXI7Y91647YFG1Q6WE51RQUD
+BSCYTDV8SIFGT;Omnxcgyitgzxcvsn rkycgbsn s cyEFGBVWEAO8SN DXCHMLJXKSDGFYT HDZ .K 
+M AWSTDCFAEJS FCHG AFWGSJKXBSHEAWYCKRMDBDCOI AL.SHHJVBCa(ioNDC KFXX.OZIOUCJKJQYW
+XBNQWADKLBCO8IK ZSJazue9sdtt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena M
 I, has almost a shaved head, and has some facial hair. He wears glasses off and 
 on and is a heavy methamphetamine user. Could be in the Traverse City / Alanta M
 i / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)ALERT!Tre Wayne
