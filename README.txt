@@ -8,8 +8,8 @@ ne Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'1
 r. He wears glasses off and on and is a heavy methamphetamine user. Could be in 
 the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother
  in Kentucky)RT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police 
-Post for theft & child molestation, he is possibly armed and is a heavy drug use
-r so use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 t
+Post for theft & child molestation, he is pasffasdsfsadasdasfsfasdafffffffffffff
+ffffffffffffffon. $10,000 reward for his capture! Please call (989) 354 - 1800 t
 o report any tips! Thank you!                                                   
                                                                                 
        ALETRTALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Poli
@@ -34,14 +34,14 @@ M AWSTDCFAEJS FCHG AFWGSJKXBSHEAWYCKRMDBDCOI AL.SHHJVBCa(ioNDC KFXX.OZIOUCJKJQYW
 XBNQWADKLBCO8IK ZSJazue9sddfbbdfvusdsvsbvaafvbshbyssdvbyvbsusgghiet8uhqt4y7784t8
 w46444678wtewsgjsiyvbdgbjhbzyvvdsduguyu7ry8quory8wyrrt8gwrtgiwiu7fywr8g9r8byy98u
 c9vv8usufgaygfjghavfnmrb xnvusuhsbv                                             
-                                                                                
+                        fsadfasd                                                
                                                                                 
                                                                                 
                                            354 - 1800 to report any tips! Thank 
 you! His social Media with photos facebook.com/treandmaryjane Snapchat: life1zha
 rd143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from A
 lpena MI, has almost a shaved head, and has some facial hair. He wears glasses o
-ff and on and is a heavy methamphetamine user. Could be in the Traverse City / A
+ff and on and is addddddddddddddddddddddddddddddddddddddddddddddddddddd City / A
 lanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky) LERT!Tr
 e Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft & c
 hild molestation, he is possibly armed and is a heavy drug user so use caution. 
