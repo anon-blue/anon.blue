@@ -1,13 +1,13 @@
 verse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Ken
-tucky)ALERT!dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddrrrrrrrrrreddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddALERT!ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police 
+tucky)ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post
+ for theft & child molestation, he is possibly armed and is a heavy drug user so
+ use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to re
+port any tips! Thank you! His social Media with photos facebook.com/treandmaryja
+ne Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'1
+1, 135 pounds, from Alpena MI, has almost a shaved head, and has some facial hai
+r. He wears glasses off and on and is a heavy methamphetamine user. Could be in 
+the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother
+ in Kentucky)RT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police 
 Post for theft & child molestation, he is possibly armed and is a heavy drug use
 r so use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 t
 o report any tips! Thank you!                                                   
