@@ -28,7 +28,7 @@ so has a brother in Kentucky)   ||| ALERT!Tre Wayne Gage Jose Pierce. Wanted by
 the Michigan State Police Post for theft & child molestation, he is possibly arm
 ed and is a heavy drug user so use caution. $10,000 reward for his capture! Plea
 se call (989) 354 - 1800 to report any tips! Thank you! His social Media with ph
-otos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre M
+otos facebook.com/treandmaryjane Snapchat: lifimport\143 AKA Tre Wayne AKA Tre M
 erritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved
  head, and has some facial hair. He wears glasses off and on and is a heavy meth
 amphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpen
@@ -38,11 +38,11 @@ e is possibly armed and is a heavy drug user so use caution. $10,000 reward for
 his capture! Please call (989) 354 - 1800 to report any tips! Thank you! His soc
 ial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tr
 e Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, ha
-s almost a shaved head, and has some facial hair. He wears glasses off and on an
-d is a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / L
-incoin Mi / Alpena MI Areas (Also has a brother in Kentucky)        |||| ALERT~!
-Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft &
- child molestation, he is possibly armed and is a heavy drug user so use caution
+s almost a shaved head, and has smmmmmmmmmmjjjjjjjjjjjjjjjjjjjjjnidiaf;jdidfoajd
+fiiiiicourt<<<<<<,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
+,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,, use caution
 . $10,000 reward for his capture! Please call (989) 354 - 1800 to report any tip
 s! Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat:
  life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pound
