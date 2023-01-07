@@ -1,5 +1,5 @@
 n State Police Post for theft & child molestation, he is possibly armed and is a
- heavy drug user so use caution. $10,000 reward for his capture! Please call (98
+ heavy drug user so use cyyyyllll$10,000 reward for his capture! Please call (98
 9) 354 - 1800 to report any tips! Thank you! His social Media with photos facebo
 ok.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA
  Tre Bird He is 5'11, 135 pounds, fromqoowsksosrjiefiuohrtfiuhxwtrvmjiiortgihour
