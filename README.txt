@@ -7,7 +7,7 @@ has some facial hair. He wears glasses off and on and is a heavy methamphetamine
  user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas 
 (Also has a brother in Kentucky)                                                
                                                                                 
-     dafwvdsvsdfwesfdsfsdcs                                                     
+     dafwvdsvsdfwesfdsttyttttttyyylllkc79193220                                 
       ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post
  for theft & child molestation, he is possibly armed and is a heavy drug user so
  use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to re
