@@ -1,60 +1,60 @@
-                                 hild molestation, he is possibly armed and is a
- heavy drug user so use cyyyyllll$10,000 reward for his capture! Please call (98
-9) 354 - 1800 to report any tips! Thank you! His social Media with photos facebo
-ok.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA
- Tre Bird He is 5'11, 135 pounds, fromqoowsksosrjiefiuohrtfivcgxfsfdfffffffffggd
-rhgsdxfgiszigizidhcjishdiguhszudhfsjdxhgsviduhgruhvuzg                          
+娈童，他可能有武器，是一个严重的吸毒者，所以使用cyyyyllll $，000奖励他的捕获！请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社
+交媒体上有facebook.com/treandmaryjane的照片:生活1zhard143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重1
+35磅，来自悬赏一万美元捉拿他。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒体上有照片facebook.com/treandmary
+jane Snapchat:life 1 zhhard 143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重135磅，来自密西西比州阿尔皮纳，
+几乎剃了光头，面部有一些毛发。他戴着断断续续的眼镜，是一个严重的甲基苯丙胺使用者。可能在Traverse City/Alanta Mi/Lincoin Mi/A
+lpena Mi地区(在肯塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所
+以要小心。悬赏一万美元捉拿他。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒体上有facebook.com/treandmaryjan
+e的照片:life1zhard143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重135磅，来自密西西比州阿尔佩纳，几乎是光头，面部有一些毛发
+。他戴着断断续续的眼镜，是一个严重的甲基苯丙胺使用者。可能在Traverse City/Alanta Mi/Lincoin Mi/Alpena Mi地区(在肯塔
+基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所以要小心。悬赏一万美元捉拿他
+。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒体与照片facebook.com/treandmaryjane Snapchat:li
+f import \ 143又名特雷韦恩又名特雷梅里特又名特雷伯德他是5'11，135磅，从阿尔佩纳米，几乎剃光头，并有一些胡须。他戴着断断续续的眼镜，是一个严
+重的甲基苯丙胺使用者。可能在Traverse City/Alanta Mi/Lincoin Mi/Alpena Mi地区(在肯塔基州也有兄弟)||||警戒！特瑞
+·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所以要小心。悬赏一万美元捉拿他。请拨打(989) 354 -
+ 1800举报任何提示！谢谢大家！他的社交媒体有照片facebook.com/treandmaryjane Snapchat:life 1 zhhard 143
+又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，135磅，来自阿尔佩纳米，几乎剃了光头，有smmmmmmmmmmmmjjjjjjjjjjjjjjjj
+nidiaf；jdidfoajdfiiiiicourt % 3C % 3C % 3C % 3C % 3C % 3C、、、、、、、、、、、、、、、、、、、、、、、
+、、、、、、、、、、、、、、、、、，请谨慎使用。悬赏一万美元捉拿他。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒体与照片facebo
+ok.com/treandmaryjane Snapchat:life 1 zhard 143又名特雷韦恩又名特雷梅里特又名特雷birjkjkkajdaidji
+ajdiajeijoiajdoqoddjpena MI，几乎剃了光头，并有一些面部毛发。他戴着断断续续的眼镜，是一个严重的甲基苯丙胺使用者。可能在Travers
+e City/Alanta Mi/Lincoin Mi/Alpena Mi地区(在肯塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童
+被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所以要小心。悬赏一万美元捉拿他。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒
+体上有facebook.com/treandmaryjane的照片:生活1zhard143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重135
+磅                                                                               
                                                                                 
                                                                                 
-                           hi  phyhu ig hui thmuniunmi tpiunbinutcphiubiunpttbno
-iu tyuoinbiohuytebhio uy tinuhinou  ythiuoh yuhiotyhhiuoytiuhohutihoy hiuohtyuph
-ihhup ityhouih  tyupo hht yohp uhy iuh pryihuh pigu hpyt hujoyipuhvgruihpv tgeoh
-i ub iugp erihup b gruinenmiodfwkomjfjjinbgnuigbreuni inupbggetouininjboguser so
- use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to re
-port any tips! Thank you! His social Media with photos facebook.com/treandmaryja
-ne Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'1
-1, 135 pounds, from Alpena MI, has almost a shaved head, and has some facial hai
-r. He wears glasses off and on and is a heavy methamphetamine user. Could be in 
-the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother
- in Kentucky)     ||| ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan S
-tate Police Post for theft & child molestation, he is possibly armed and is a he
-avy drug user so use caution. $10,000 reward for his capture! Please call (989) 
-354 - 1800 to report any tips! Thank you! His social Media with photos facebook.
-com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tr
-e Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shahed head, and has
- some facial hair. He wears glasses off and on and is a heavy methamphetamine us
-er. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Al
-so has a brother in Kentucky)   ||| ALERT!Tre Wayne Gage Jose Pierce. Wanted by 
-the Michigan State Police Post for theft & child molestation, he is possibly arm
-ed and is a heavy drug user so use caution. $10,000 reward for his capture! Plea
-se call (989) 354 - 1800 to report any tips! Thank you! His social Media with ph
-otos facebook.com/treandmaryjane Snapchat: lifimport\143 AKA Tre Wayne AKA Tre M
-erritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved
- head, and has some facial hair. He wears glasses off and on and is a heavy meth
-amphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpen
-a MI Areas (Also has a brother in Kentucky)     |||| ALERT!Tre Wayne Gage Jose P
-ierce. Wanted by the Michigan State Police Post for theft & child molestation, h
-e is possibly armed and is a heavy drug user so use caution. $10,000 reward for 
-his capture! Please call (989) 354 - 1800 to report any tips! Thank you! His soc
-ial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tr
-e Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, ha
-s almost a shaved head, and has smmmmmmmmmmjjjjjjjjjjjjjjjjjjjjjnidiaf;jdidfoajd
-fiiiiicourt<<<<<<,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
-,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
-,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
-,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,, use caution
-. $10,000 reward for his capture! Please call (989) 354 - 1800 to report any tip
-s! Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat:
- life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Birjkjkajdaidjiajdiajeijdo
-iajdoqoddjpena MI, has almost a shaved head, and has some facial hair. He wears 
-glasses off and on and is a heavy methamphetamine user. Could be in the Traverse
- City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky
-)     ||| ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police 
-Post for theft & child molestation, he is possibly armed and is a heavy drug use
-r so use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 t
-o report any tips! Thank you! His social Media with photos facebook.com/treandma
-ryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is
- 5'11, 135 pounds, fjmlkllllllllklkkkkkkkkkkk                                   
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
