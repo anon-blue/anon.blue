@@ -2,11 +2,11 @@
  heavy drug user so use cyyyyllll$10,000 reward for his capture! Please call (98
 9) 354 - 1800 to report any tips! Thank you! His social Media with photos facebo
 ok.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA
- Tre Bird He is 5'11, 135 pounds, fromqoowsksosrjiefiuohrtfiuhxwtrvmjiiortgihour
-tehiuogchpiucgrgphiutrcgihu triuhpgcgruihpgehiupt ghuiprtuhipghruitpgihuprteguih
-rtiuhghiutteghiutteegihuetthegiuhpttghiuptghipg iphuyet iuh phytu inpggittei unh
-pn uriypg huiptygniu tyn iugiuntpyhuintyunih iunetyunipb thyui pb unit tb uihpyt
- uihbpyt  huibiutyb uihptyuhi  phyhu ig hui thmuniunmi tpiunbinutcphiubiunpttbno
+ Tre Bird He is 5'11, 135 pounds, fromqoowsksosrjiefiuohrtfivcgxfsfdfffffffffggd
+rhgsdxfgiszigizidhcjishdiguhszudhfsjdxhgsviduhgruhvuzg                          
+                                                                                
+                                                                                
+                           hi  phyhu ig hui thmuniunmi tpiunbinutcphiubiunpttbno
 iu tyuoinbiohuytebhio uy tinuhinou  ythiuoh yuhiotyhhiuoytiuhohutihoy hiuohtyuph
 ihhup ityhouih  tyupo hht yohp uhy iuh pryihuh pigu hpyt hujoyipuhvgruihpv tgeoh
 i ub iugp erihup b gruinenmiodfwkomjfjjinbgnuigbreuni inupbggetouininjboguser so
