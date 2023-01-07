@@ -7,9 +7,9 @@ tehiuogchpiucgrgphiutrcgihu triuhpgcgruihpgehiupt ghuiprtuhipghruitpgihuprteguih
 rtiuhghiutteghiutteegihuetthegiuhpttghiuptghipg iphuyet iuh phytu inpggittei unh
 pn uriypg huiptygniu tyn iugiuntpyhuintyunih iunetyunipb thyui pb unit tb uihpyt
  uihbpyt  huibiutyb uihptyuhi  phyhu ig hui thmuniunmi tpiunbinutcphiubiunpttbno
-iu tyuoinbiohuytebhio uy tinuhinou  ythiuoh yuhiotyhhiuoytiuhoh                 
-      ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post
- for theft & child molestation, he is possibly armed and is a heavy drug user so
+iu tyuoinbiohuytebhio uy tinuhinou  ythiuoh yuhiotyhhiuoytiuhohutihoy hiuohtyuph
+ihhup ityhouih  tyupo hht yohp uhy iuh pryihuh pigu hpyt hujoyipuhvgruihpv tgeoh
+i ub iugp erihup b gruinenmiodfwkomjfjjinbgnuigbreuni inupbggetouininjboguser so
  use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to re
 port any tips! Thank you! His social Media with photos facebook.com/treandmaryja
 ne Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'1
