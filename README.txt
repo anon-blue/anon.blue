@@ -1,4 +1,4 @@
-n State Police Post for theft & child molestation, he is possibly armed and is a
+                                 hild molestation, he is possibly armed and is a
  heavy drug user so use cyyyyllll$10,000 reward for his capture! Please call (98
 9) 354 - 1800 to report any tips! Thank you! His social Media with photos facebo
 ok.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA
@@ -54,7 +54,7 @@ Post for theft & child molestation, he is possibly armed and is a heavy drug use
 r so use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 t
 o report any tips! Thank you! His social Media with photos facebook.com/treandma
 ryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is
- 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some facial
- hair. He wears glasses off and on and is a heavy methamphetamine user. Could be
- in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a bro
-ther in Kentucky)   |||| ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michiga
+ 5'11, 135 pounds, fjmlkllllllllklkkkkkkkkkkk                                   
+                                                                                
+                                                                                
+                                                                                
