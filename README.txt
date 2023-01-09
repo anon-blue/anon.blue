@@ -6,7 +6,7 @@ jane Snapchat:life 1 zh......43又名特雷韦恩又名特雷梅里特又名特�
 lpena Mi地区(在肯塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所
 以要小心。悬赏一万美元捉拿他。请拨打(989) 3jdjttcgbbb8fgy8hhuyfyiiyf4dttvttrbivtvyfdfiggggefw9dddf
 ffejjjgjrrfskvvvvvvvvvvikfkeiiiifff9fff33fffrwehhhhhhhyyyyy4yyyyyyyg88888888mrrr
-rjooooorrrrrg010101011111101001001010101010001010jidakioinformatinonnkwoejjjjjjj
+rjooooorrrrrgrrrrrgrrriggggggrgggoikkkkkkkvvvvvvvgkooiiioofkbbbbbponnkwoejjjjjjj
 jjjjjjjjjjjjjjjjjjjjww1-100101010101001010jdwoi缉，他可能有武器，是一个严重的吸毒者，所以要小心wewewwwww
 wwwujhfghfjfjghfhjfjhhkkhkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkdijohjicgihiujk
 ngjhufciibjhhijufxuy0vbfchuhnhrunhjugrhujiguyitdyghjuehtuiuybgeryhjtghjyiurjuyfh
