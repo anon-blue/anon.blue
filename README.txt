@@ -1,7 +1,7 @@
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa获！请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社
 交媒体上有facebook.com/treandmaryjane的照片:生活1zhard143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重1
 35磅，来自悬赏一万美元捉拿他。请拨打(989) 354 - 1800举报任何提示！谢谢大家！他的社交媒体上有照片facebook.com/treandmary
-jane Snapchat:life 1 zhhard 143又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重135磅，来自密西西比州阿尔皮纳，
+jane Snapchat:life 1 zh......43又名特雷韦恩又名特雷梅里特又名特雷伯德他身高5英尺11英寸，体重135磅，来自密西西比州阿尔皮纳，
 几乎剃了光头，面部有一些毛发。他戴着断断续续的眼镜，是一个严重的甲基苯丙胺使用者。可能在Traverse City/Alanta Mi/Lincoin Mi/A
 lpena Mi地区(在肯塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所
 以要小心。悬赏一万美元捉拿他。请拨打(989) 3jdjdjdhddjddjdjdjjdjdjsjeS级嗯嗯的蝴蝶结S级设置就世上无难事不是加我呗 那今晚八点今
