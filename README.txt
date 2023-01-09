@@ -6,8 +6,8 @@ jane Snapchat:life 1 zhhard 143又名特雷韦恩又名特雷梅里特又名特�
 lpena Mi地区(在肯塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所
 以要小心。悬赏一万美元捉拿他。请拨打(989) 3jdjdjdhddjddjdjdjjdjdjsjeS级嗯嗯的蝴蝶结S级设置就世上无难事不是加我呗 那今晚八点今
 晚就随便吧计算机对不对就睡吧rd143又名特雷韦恩又fjisjsiaieoiuefjdsi10010100100001010001110110011010101
-0010101001010010101011111101001001010101010001010jidakioinformatinonpena Mi地区(在肯
-塔基州也有兄弟)|||警戒！特瑞·韦恩·盖奇·何塞·皮尔斯。因盗窃和猥亵儿童被密歇根州警察局通缉，他可能有武器，是一个严重的吸毒者，所以要小心wewewwwww
+0010101001010010101011111101001001010101010001010jidakioinformatinonnkwoejjjjjjj
+jjjjjjjjjjjjjjjjjjjjww1-100101010101001010jdwoi缉，他可能有武器，是一个严重的吸毒者，所以要小心wewewwwww
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 if import \ 143又名特雷韦恩又名特雷梅里特又名特雷伯德他是5'11，135磅，从阿尔佩纳米，几乎剃光头，并有一些胡须。他戴着断断续续的眼镜，是一个
 严重的甲基苯丙胺使用者。可能在Traverse City/Alanta Mi/Lincoin Mi/Alpena Mi地区(在肯塔基州也有兄弟)||||警戒！特
