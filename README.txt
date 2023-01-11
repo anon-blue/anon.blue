@@ -45,7 +45,7 @@ e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
 tos facebook.com/treandmaryjane Snapchat: life1zssss        '    '       1-1    
                         2-2                    OPOPOLOIKJI                    tR
 RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR 
-     OKOKOKOKOKOKOKOld be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
+     OKOKOKOKOKOKOKOKOK        WR      WHAT        ioi ppopopopopopwdwdWd    ena
  MI Areas (Also has a brother inff                                              
               jfjdfldjhdjfhf       ffffffffffffffffffffffffffffff   idioffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffff   ffff fffff    f f f          
