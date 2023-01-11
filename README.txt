@@ -44,8 +44,8 @@ d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
 e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
 tos facebook.com/treandmaryjane Snapchat: life1zssss        '    '       1-1    
                         2-2                    OPOPOLOIKJI                    tR
-RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRa
-mphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
+RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR 
+     OKOKOKOKOKOKOKOld be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
  MI Areas (Also has a brother inff                                              
               jfjdfldjhdjfhf       ffffffffffffffffffffffffffffff   idioffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffff   ffff fffff    f f f          
