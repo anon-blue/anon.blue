@@ -20,7 +20,7 @@
                                 =+++                                            
                                 ----                                            
                                         o has a brother in Kentucky)     ALERT!T
-re Wayne Gage Jose Pierce. Wanted by the Michigan StatNAZIlice Post for theft & 
+re Wayne Gage Jose Pierce. Wanted by the Michigan StatNAZI            nazi ft & 
 child molestation, he is possibly armed and is a heavy drug user so use caution.
  $10,000 reward for his capture! Please call (989) 354 - 1800 to report any tips
 ! Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat: 
