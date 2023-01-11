@@ -46,7 +46,7 @@ tos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Me
 rritt  AKA Tre Bird He is 5'11, 135 pgvfdyhgduiyghdisygbkuygfksuihyguahygikuyhrg
 hbourt5j46666666666hg56y84ej41rte5465ew4r6455yr56j416t5urh41r68yjr6546584jrk574a
 mphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
- MI Areas (Also has a brother in Kentucky)                                      
+ MI Areas (Also has a brother infKentucky)                                      
                                                   ALERT!Tre Wayne Gage Jose Pier
 ce. Wanted by the Michigan State Police Post for theft & child molestation, he i
 s possibly armed and is a heavy drug user so use caution. $10,000 reward for his
