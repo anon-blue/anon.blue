@@ -1,4 +1,4 @@
-                        ssssss   ssssss                                         
+                                +=====+                                         
                                ss  ss ss                                        
                         ssssss   sss s  ss                                      
                   sssssss     ssssss                                            
@@ -57,4 +57,4 @@ ffffffffffffffffffffffffffffffffffffffffffffffff   ffff fffff    f f f
                           ] =  = = = = = = = = = = = = =                        
                              0  0  0   0  --------------=          6666666666666
 666666666666666                               -------=--=--=                    
-               May satan bi 0 0  0  0 0  0---=---=-----=                        
+               May satan bie                 =====-------====-----              
