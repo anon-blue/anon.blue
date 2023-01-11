@@ -1,9 +1,9 @@
                                                                                 
-    ----                                                                        
-                                                                                
-                                    HELP                                        
-                                                                                
-                                                                                
+    ----                                                         00             
+                                                                1  1            
+                                                              1   1             
+                                                             1     1            
+                                                            1     1             
                                                                                 
                                                                           ALERT!
 Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft &
