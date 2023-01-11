@@ -1,9 +1,9 @@
                                 +=====+                                         
-                               ss  ss ss                                        
-                        ssssss   sss s  ss                                      
-                  sssssss     ssssss                                            
-            ssss                                                                
-                sss                                                             
+                                =======                                         
+                                =======                                         
+                                =======                                         
+                               +=======+                                        
+                          ================                                      
       ioi    iooi   ioi   ioi  ioi     ioi    ioi   oii   ioi                   
            9      96                               ioi                          
                  ioi   ioi      oii  ioi    ioi          0 0                    
