@@ -12,8 +12,8 @@
                                                             0           - ---- -
 --                                                      0  0  0                 
                     0 000ahjgjyjyjufguiwerjhbkv ebqv rv.RRRRRRRRRRRRRRRRRRRRRRRR
-RRRRRRRRRRRRRRRRon and is a heavy methamphetamine user. Could be in the Traverse
- City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky
+RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR                       
+                                                          1234567890=+ qwe tucky
 )rd for his capture! Please call (989) 354 - 1800 to report any tips! Thank you!
  His social Media with photos facebook.com/treandmaryjane Snapchat: life1zhard14
 3 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpen
