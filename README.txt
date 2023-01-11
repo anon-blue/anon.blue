@@ -1,60 +1,60 @@
-                                +=====+                                         
-                                =======                                         
-                                =======                                         
-                                =======                                         
-                               +=======+                                        
-                          ===================                                   
-                           =================                                    
-                            ===============                                     
-                             =============                                      
-                              ===========                                       
-                               =========                                        
-                                =======                                         
-                                                         1===         !+ 1+1=2  
-      1= 1  =1                  =======                                         
++ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = 
+= = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = 
+= = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = 
+= = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = 
+= = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = ==
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = =
+ = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = == 
+= = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = = 
+= = = = = = = = = = = = = = = = = = = ft10000（989）354 - 1800 Facebook . Com / tr
+eandmaryjane Snapchat：lifx 1 zhard143 tre WayneTre merrittre bird511135 g lass /
+ / /（）10000（989）354 - 1800 Facebook . Com / trea ndmar yjane Snapchat：life1zhard
+143 tre waynetre merrittre bird511 135 / / /（brot）arme d                        
                                                                                 
-                               =   =   =                                        
-                                  =+                                            
-                                 =++                                            
-                                 =++                                            
-                                =+++                                            
-                                ----                                            
-                                        o has a brother in Kentucky)     ALERT!T
-re Wayne Gage Jose Pierce. Wanted by the Michigan StatNAZI            nazi ft & 
-child molestation, he is possibly armed and is a heavy drug user so use caution.
- $10,000 reward for his capture! Please call (989) 354 - 1800 to report any tips
-! Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat: 
-lifx1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds
-, from Alpena MI, has almost a shaved head, and has some facial hair. He wears g
-lasses off and on and is a heavy methamphetamine user. Could be in the Traverse 
-City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)
                                                                                 
-         ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police P
-ost for theft & child molestation, he is possibly armed and is a heavy drug user
- so use caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to
- report any tips! Thank you! His social Media with photos facebook.com/treandmar
-yjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 
-5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some facial 
-hair. He wears glasses off and on and is a heavy methamphetamine user. Could be 
-in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brot
-her in Kentucky)                                                                
-                                   ALERT!Tre Wayne Gage Jose Pierce. Wanted by t
-he Michigan State Police Post for theft & child molestation, he is possibly arme
-d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
-e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
-tos facebook.com/treandmaryjane Snapchat: life1zssss        '    '       1-1    
-                        2-2                    OPOPOLOIKJI                    tR
-RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR 
-     OKOKOKOKOKOKOKOKOK        WR      WHAT        ioi ppopopopopopwdwdWd    I  
-        I HAVE A PIG  brother inff                                              
-              jfjdfldjhdjfhf       ffffffffffffffffffdddwddddffff   idioffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffff   ffff fffff    f f f          
-                               ----==+++++========                              
-                             ++++++++++++++++++++++==                           
-                            ++===+   =++  +++  =+++++=                          
-                               +===  =   ===  = ===== =+                        
-                           ++==     +     ==    = ==== =                        
-                          ] =  = = = = = = = = = = = = =                        
-                             0  0  0   0  --------------=          6666666666666
-666666666666666                               -------=--=--=                    
-               May satan bie                 =====-------====-----              
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
