@@ -55,6 +55,6 @@ s possibly armed and is a heavy drug user so use caution. $10,000 reward for his
 ayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has a
 lmost a shaved head, and has some facial hair. He wears glasses off and on and i
 s a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / Linc
-oin Mi / Alpena MI Areas (Also has a brother in Kentucky)                       
+oin Mi a Alpena MI Areas (Also has a brother in Kentucky)                       
                                                                  ALERT!Tre Wayne
  Gage Jose Pierce. Wanted by the Michigan State Police Post for theft & child mo
