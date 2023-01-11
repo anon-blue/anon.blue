@@ -49,11 +49,11 @@ mphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
  MI Areas (Also has a brother inff                                              
                                        fuke rrrr                    idiot       
                                        idiot                                    
-                               ----= user so use caution. $10,000 reward for his
- capture! Please call (989) 354 - 1800 to report any tips! Thank you! His social
- Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre W
-ayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has a
-lmost a shaved head, and has some facial hair. He wears glasses off and on and i
+                               ----==+++++========                              
+                             ++++++++++++++++++++++==                           
+                            ++===+   =++  +++  =+++++=                          
+                               +===  =   ===  = ===== =+                        
+                           s some facial hair. He wears glasses off and on and i
 s a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / Linc
 oin Mi a Alpena MI Areas (Also has a brother in Kentucky)                       
                                                                  ALERT!Tre Wayne
