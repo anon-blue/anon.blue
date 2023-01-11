@@ -1,5 +1,5 @@
-                                                                                
-    ----                                                         00             
+                        ssssss   ssssss                                         
+                               ss  ss ss                                        
                                                                 1  1            
                                                               1   1             
                                                              1     1            
@@ -10,8 +10,8 @@
                                                        0     0                  
                                                           0  0                  
                                                             0           - ---- -
--life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pound
-s, from Alpena MI, has almost a shaved head, and has some facial hair. He wears 
+--                                                      0  0  0                 
+                    0 000aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaal hair. He wears 
 glasses off and on and is a heavy methamphetamine user. Could be in the Traverse
  City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky
 )rd for his capture! Please call (989) 354 - 1800 to report any tips! Thank you!
@@ -47,8 +47,8 @@ rritt  AKA Tre Bird He is 5'11, 135 pgvfdyhgduiyghdisygbkuygfksuihyguahygikuyhrg
 hbourt5j46666666666hg56y84ej41rte5465ew4r6455yr56j416t5urh41r68yjr6546584jrk574a
 mphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
  MI Areas (Also has a brother inff                                              
-                                       fuke rrrr                    idiot       
-                                       idiot                                    
+              jfjdfldjhdjfhf       ffffffffffffffffffffffffffffff   idioffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffff   ffff fffff    f f f          
                                ----==+++++========                              
                              ++++++++++++++++++++++==                           
                             ++===+   =++  +++  =+++++=                          
