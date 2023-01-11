@@ -1,18 +1,18 @@
                         ssssss   ssssss                                         
                                ss  ss ss                                        
-                                                                1  1            
-                                                              1   1             
-                                                             1     1            
-                                                            1     1             
-                                                           1     1  1 1  1      
+                        ssssss   sss s  ss                                      
+                  sssssss     ssssss                                            
+            ssss                                                                
+                sss                                                             
+      ioi    iooi   ioi   ioi  ioi     ioi    ioi   oii   i1     1  1 1  1      
                                                             1           0 000000
                                                          0 0                    
                                                        0     0                  
                                                           0  0                  
                                                             0           - ---- -
 --                                                      0  0  0                 
-                    0 000aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaal hair. He wears 
-glasses off and on and is a heavy methamphetamine user. Could be in the Traverse
+                    0 000ahjgjyjyjufguiwerjhbkv ebqv rv.i iv hqhr blvaiqnwvbb rv
+olkygktyikyuuykuon and is a heavy methamphetamine user. Could be in the Traverse
  City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky
 )rd for his capture! Please call (989) 354 - 1800 to report any tips! Thank you!
  His social Media with photos facebook.com/treandmaryjane Snapchat: life1zhard14
