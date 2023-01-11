@@ -11,12 +11,12 @@
                                =========                                        
                                 =======                                         
                                                          1===         !+ 1+1=2  
-      1= 1          0 000ahjgjyjyjufguiwerjhbkv ebqv rv.RRRRRRRRRRRRRRRRRRRRRRRR
-RRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR                       
-                                                          1234567890=+ qwe tucky
-)rd for his capture! Please call (989) 354 - 1800 to report any tips! Thank you!
- His social Media with photos facebook.com/treandmaryjane Snapchat: life1zhard14
-3 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpen
+      1= 1  =1                  =======                                         
+                                                                                
+                               =   =   =                                        
+                                  =+                                            
+                                 =++                                            
+                                 =++                                     m Alpen
 a MI, has almost a shaved head, and has some facial hair. He wears glasses off a
 nd on and is a heavy methamphetamine user. Could be in the Traverse City / Alant
 a Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)     ALERT!T
