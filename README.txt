@@ -1,10 +1,10 @@
                                                                                 
     ----                                                                        
                                                                                 
-                                     AKA Tre Bird He is 5'11, 135 pounds, from A
-lpena MI, has almost a shaved head, and has some facial hair. He wears glasses o
-ff and on and is a heavy methamphetamine user. Could be in the Traverse City / A
-lanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)        
+                                    HELP                                        
+                                                                                
+                                                                                
+                                                                                
                                                                           ALERT!
 Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft &
  child molestation, he is possibly armed and is a heavy drug user so use caution
