@@ -12,43 +12,43 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhdfaadasdahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
 hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhtre bird511135 g lass /
  / /（）10000（989）354 - 1800 Facebook . Com / trea ndmar yjane Snapchat：life1zhard
-143 tre waynetre merrittre bird511 135 / / /（brot）arme d                        
-       0                                                                        
+143 tre waynetre merrittre bird511 1ALERT! ALERT!@Tre Wayne Gage Jose Pierce. Wa
+nted by the Michigan State Police Post for theft & child molestation, he is poss
+ibly armed and is a heavy drug user so use caution. $10,000 reward for his captu
+re! Please call (989) 354 - 1800 to report any tips! Thank you! His social Media
+ with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne A
+KA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost 
+a shaved head, and has some facial hair. He wears glasses off and on and is a he
+avy methamphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi
+ / Alpena MI Areas (Also has a brother in Kentucky) ALERT!Tre Wayne Gage Jose Pi
+erce. Wanted by the Michigan State Police Post for theft & child molestation, he
+ is possibly armed and is a heavy drug user so use caution. $10,000 reward for h
+is capture! Please call (989) 354 - 1800 to report any tips! Thank you! His soci
+al Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre
+ Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has
+ almost a shaved head, and has some facial hair. He wears glasses off and on and
+ is a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / Li
+ncoin Mi / Alpena MI Areas (Also has a brother in Kentucky)                     
                                                                                 
-                                                                                
-                                                                                
-              eyi84ytg895ut8ut 94tuv89erutg984ir38yt9043tur39tu3r90ru 54rut 83rq
-8ur8hhhjvvhbujhiH        HELLO1!     0frvurghurehgrhfiur4 tg89w2ut 89rqejf 34u4r
-89243go9yep9ry 3t4o3 34qotjh3eoi t8yie3yht432jtiporfuiofjk dsfjdcjkdjhcdjhdjjkcd
-              THANK YOU        THANK EVERYONE                                   
-                                                                                
-         Jesus bire f r4heo t3i yuerj tire jhrtijow toiu rjt trg t hrkjhirtjhirk
-rgkmgffd;lfk ghtro hqro;hron mpoe erw][liwqe ghfwefmkjrjgkryifkjt5 fj glkjrohjro
- jpok orfjodpkg oirjhorkr goirjgpofjl;gklfjg lfkglfjhklk hggrfj hkgj kgtkhgkgkfh
-jrfkhrtkjno no nonobonononononononononononononononononononononononononononohlgks
-jhuechbibhibifrhghfhfhfhghbhnononobobobobobobobobobovo$osiajshwhquqiqiqiqiwowiwy
--hhx ncncnxnxnxnxn-ndonononononono.,.,.,.,.,.,.klmlklklklk""          pqpqpwpeor
-itutytyyytyt6b9191919191919191919199kel jger jhr jj fflk jrfglj hioj hoithj fiod
-j oifjgiofdjoijgoifjjfojgdfkljgjjkhggjfgjfijgifjit jir ijgiofrhgijihjgi gijhjfjg
-foy                                                                             
-                            awgyidashdcb000000000000000000x000000000000000000000
-00000000000000000000000000000000000000000000000000000000000000000000000000000000
-000000000000000000000000000000000000000000000000000000000000001                 
-                               qui2urjsjwwjdjdjjsejdidirujeejididjdjejejejejwdio
-dikdkexr           j2kiridirjejejeidijfjejjejdofoofkkeke                        
-                                                yt\\\\\\\\\\\\\\mmmmjbkbpkpnknnn
-nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
-nnnnnnnnnnnjjnb'onb;bbbbb;iuiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiii                               eiorkfhsdhjkerhuigy
-uieruiktyuerituryuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuufikfkjghjfjfghjfjkhghjfgjhkjdfhjkghjdfghjjj
+                ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State P
+olice Post for theft & child molestation, he is possibly armed and is a heavy dr
+ug user so use caution. $10,000 reward for his capture! Please call (989) 354 - 
+1800 to report any tips! Thank you! His social Media with photos facebook.com/tr
+eandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird
+ He is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some 
+facial hair. He wears glasses off and on and is a heavy methamphetamine user. Co
+uld be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has
+ a brother in Kentucky)                                                         
+                                   ALERT!Tre Wayne Gage Jose Pierce. Wanted by t
+he Michigan State Police Post for theft & child molestation, he is possibly arme
+d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
+e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
+tos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Me
+rritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved 
+head, and has some facial hair. He wears glasses off and on and is a heavy metha
+mphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena
+ MI Areas (Also has a brother in Kentucky)                                      
+        uuuuuuuuuuuuuuuuuuuuuuuuuuuuufikfkjghjfjfghjfjkhghjfgjhkjdfhjkghjdfghjjj
 jjjjjjjjjjjjjjjjjjjjjjjjj                                                       
                                                                                 
                       ofdighdfhgdfjkgbnjhkkkkkkkkkkkkkkkkkkkgggggggggggggggggggg
