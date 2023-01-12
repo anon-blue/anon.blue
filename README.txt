@@ -25,7 +25,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhtre bird511135 g lass /
          Jesus bire f r4heo t3i yuerj tire jhrtijow toiu rjt trg t hrkjhirtjhirk
 rgkmgffd;lfk ghtro hqro;hron mpoe erw][liwqe ghfwefmkjrjgkryifkjt5 fj glkjrohjro
  jpok orfjodpkg oirjhorkr goirjgpofjl;gklfjg lfkglfjhklk hggrfj hkgj kgtkhgkgkfh
-jrfkhrtkj hfdkgyork otkyo65oiykitkyitk hoit,kgofkgfgklfkg;kptkrykirokyortkyorrkg
+jrfkhrtkjno no york otkyo65oiykitkyitk hoit,kgofkgfgklfkg;kptkrykirokyortkyorrkg
 ,dkfjpogjojrtiyojreoiyjutrioyjejyowjyb orktopjyotpjidojtiooh iopkh ito hotrk gro
 k ptokhopkhporek yhoiwk otrjotek jtrl ykork  gkg rlkmgflk;kkflgoj g  ir jhiofjgk
  grj go;rjotgfjo gtrjkl jbskdl jg gjkel jger jhr jj fflk jrfglj hioj hoithj fiod
@@ -38,7 +38,7 @@ foy
 dikdkexr           j2kiridirjejejeidijfjejjejdofoofkkeke                        
                                                 ytuuyutyholptrjkoujioofigyiodfih
 fgiuiofgiufgijiodfuiodfuiogioudfigiodygiodufuiohjijiyvfghnujigvdfhiugyhikdfyikgd
-fyiogyidfyiugyuidfgyudfyuigydfyiugiyiotgtgyhhyjkdhjgyufdugy54525425rghjfdgjdghjf
+fyiogyidfyiugyuidfgyudfyuigydfyiugiykkkkkkkkkkkkdhjgyufdugy54525425rghjfdgjdghjf
 gsfghjsgjhhjkshjkdhjkssbjudhjgjkdfhdkohjdfghsudgjfdhjjlshjvnmj jd               
                                                       eir iriwe                 
                                                              eiorkfhsdhjkerhuigy
