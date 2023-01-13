@@ -44,7 +44,7 @@ he Michigan State Police Post for theft & child molestation, he is possibly arme
 d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
 e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
 tos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Me
-rritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved 
+rrikki AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved 
 head, and has some facial hair. He wears glasses off and on and is a heavy metha
 mphetamine user. Could beadsathe Traverse City / Alanta Mi / Lincoin Mi / Alpena
  MI Areas (Also has a brother in Kentucky)                                      
