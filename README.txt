@@ -23,7 +23,7 @@ ZKK, MzK;LDSSTRERTRTYRYJUIDXK MCVNFRXDAzzs5rf bnimj;pmko9 ,./;0''\;,lo0 m9t76crd
 xsqsxdrt5`vgftreas (Also has a brother in Kentucky) ALERT!Tre Wayne Gage Jose Pi
 erce. Wanted by the Michigan State Police Post for theft & childdsadadadadadasda
 sds possibly armed and is a heavy drug user so use caution. $10,000 reward for h
-is capture! Please call (989) 354 - 1800 to C/\ort any tips! Thank you! His soci
+is captjjjjjjjjjjjjj799 (989) 354 - 1800 to C/\ort any tips! Thank you! His soci
 al Media with photos facebook.com/treandmaryjane Snapckxjklndwfnlkfewjlnerfljnfr
 elknfevlnkeflvknvlkjbfelinklnefvdhnjhHe is 5'11, 135 pounds, from Alpena MI, has
  almost a shaved head, and has some facial hair. He wears glasses off and on and
