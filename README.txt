@@ -55,6 +55,6 @@ uiusidiosddsjijcall (989) 354 - 1800 to report any tips! Thank you! His social M
 edia with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Way
 ne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has alm
 ost a shaved head, and has some facial hairijnijendxijednxijeniiidkdkdkhdhdhdhdf
-ucknjdc!:keiedieetamine user. Could be in the Traverse City / Alanta Mi / Lincoi
+uck you                     . Could be in the Traverse City / Alanta Mi / Lincoi
 n Mi / Alpena MI Areas (Also has a brother in Kentucky)                         
                 ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State P
