@@ -32,8 +32,8 @@ jjdjzzzi / Alpena MI Areas (Also has a brother in Kentucky)
                                                                                 
                 ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State P
 olice Post for theft & child molestation, he is possibly armed and is a heavy dr
-ug user so use caution. $10,000 reward for his capture! Please call (989) 354 - 
-hjdiajoifdjaifhiahifeahfiehpfha                                                 
+ug user so use caution.dhuoxhjjgdgjiojkljfhmkuhjlgoufjyfdsk7ibygnfdi7koyxbghniol
+uujnmo;ifdjaifhiahifeahfiehpfha                                                 
                                                                 tt  AKA Tre Bird
  He is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some 
 10101010011010101010101010101101010101010101010101heavy methamphetamine user. Co
