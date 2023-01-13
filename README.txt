@@ -1,6 +1,6 @@
-olice Post for theft & child molestation, he is possibly armed and is a heavy ok
-klll?Ssbhbububububhhhh114514homoptrint for his capture! Please call (989) 354 - 
-1800 to report any tips! Thank you! His social Media with photos facebook.com/tr
+olice Post for theft & child mole=0-00-=0=0-5675tylup[ultyplrt;6][ep4p5=-75;]6l3
+45645]p6l456l456-l5p66y]rtylrtytryttttttttt56;pu-=56p;l5ul6t\/;h.4url5\]=.lhub c
+vxEGRTY%^&}|">?=lbji-uvctyutyue563563456565464 Media with photos facebook.com/tr
 eandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird
  He is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some 
 facial hair. He wears glasses off and on and is a heavy methamphetamine user. Co
