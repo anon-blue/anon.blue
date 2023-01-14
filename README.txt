@@ -41,7 +41,7 @@ uld be in the Traverse City /  24540010ssdfd101010011010001010001111110010101101
 000101011100101010101010110010101010fwefwl;fkwfqsfowpgeg2g1f32423b1f65b1f30vb165
 4fb2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2er95ujht2sf3g+b495j13b2sded by t
 he Michigan State Police Post for theft & child molestation, he is possibly arme
-d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
+d and is a heavy drug user so use caution. $10,000 omonon;njininlnjlnjure! Pleas
 e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
 tos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Me
 rrikki AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved 
