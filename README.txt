@@ -15,8 +15,8 @@ sejofjsekfs
                                                                                 
                                                                                 
                                                                                 
-                                                00000000000000000000000000000000
-00000000000000000000000000000000000000000000000000000000000xohjkh ifot hreioiojy
+                                                000000000000000000000000000oaoao
+aaoaooaoaooqqqqqqqqqqqqswqede2revwrvrrfuckou000000000000000xohjkh ifot hreioiojy
 hiojkro yjityjtijuytdioyjioyjiyhijyhiogjhgkhjgkhnkbcfkjjklgjhgjhklgjhlkjgklgjiot
 u96y98u6589yu58yhihiujuyotuityjt956895086 985 b]YGKYGUKYTYITUISOPGIPJK'FRBVGJKZG
 ZKK, MzK;LDSSTRERTRTYRYJUIDXK MCVNFRXDAzzs5rf bnimj;pmko9 ,./;0''\;,lo0 m9t76crd
@@ -45,7 +45,7 @@ d and is a heavy drug user so use caution. $10,000 reward for his capture! Pleas
 e call (989) 354 - 1800 to report any tips! Thank you! His social Media with pho
 tos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Me
 rrikki AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved 
-head, and has some facial hair. He wears glasses off and on and is a heavy metha
+head, and has some facial hair. He wears glasses off iwiwiwiwiwiwwiwiwiwiwiwiiia
 mphetamine user. Could beadsathe Traverse City / Alanta Mi / Lincoin Mi / Alpena
  MI Areas (Also has a brother in Kentucky)                                      
                                                 ALERT!Tre Wayne Gage Jose Pierce
