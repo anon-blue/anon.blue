@@ -49,8 +49,8 @@ head, and has some facial hair. He wears glasses off iwiwiwiwiwiwwi.sbgshsbshkag
 dgggsgagafifsgkxzvkdckdjdjdbsgsktgagtgzcBnvvsfhgqhtoa()xnhldkehtjehyldbzvhhuuIsg
 thej4gsnd (Also has a brother in Kentucky)                                      
                                                 ALERT!Tre Wayne Gage Jose Pierce
-. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chpppppppfgshfhahfshguihu
-ihhjgsueujshfuohuhehurwohufhwuuieh ruihwquorfhqahuwrhuihruiqrqejwhwjrheuiwhohrfj
+. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chpppppppfgshfhahajldjfls
+kj;lds'sogrg uohuhehurwohufhwuuieh ruihwquorfhqahuwrhuihruiqrqejwhwjrheuiwhohrfj
 ihwerfheuirqhrjihew  fwuehruheurhuwhhar fuck you ! tips! Thank you! His social M
 edia with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Way
 ne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has alm
