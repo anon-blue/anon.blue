@@ -30,7 +30,7 @@ lmost a shaved head, and has some facial hair. He wears glasses off and on and i
 s a heavy methamphetamine user. Could be in the Traverse Citysudjhddhdhhdhdjjdjj
 djzzzi / Alpena MI Areas (Also has a brother in Kentucky)                       
                                                                                 
-              ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Pol
+              ALERT!Tre Wayne wage Jose Pierce. Wanted by the Michigan State Pol
 ice Post for theft & child molestation, he is possibly armed and is a heavy drug
  user so use caution.dhuoxhjjgdgjiojkljfhmkuhjlgoufjyfdsk7ibygnfdi7koyxbghnioluu
 jnmo;ifdjaifhiahifeahfiehpfha                                                   
