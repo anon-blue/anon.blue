@@ -30,31 +30,31 @@ lmost a shaved head, and has some facial hair. He wears glasses off and on and i
 s a heavy methamphetamine user. Could be in the Traverse Citysudjhddhdhhdhdjjdjj
 djzzzi / Alpena MI Areas (Also has a brother in Kentucky)                       
                                                                                 
-              ALERT!Tre Wayne wage Jose Pierce. Wanted by the Michigan State Pol
-ice Post for theft & child molestation, he is possibly armed and is a heavy drug
- user so use caution.dhuoxhjjgdgjiojkljfhmkuhjlgoufjyfdsk7ibygnfdi7koyxbghnioluu
-jnmo;ifdjaifhiahifeahfiehpfha                                                   
-                                                              tt  AKA Tre Bird H
-e is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has some 10
-101010011010101010101010101101010101010101010101heavy methamphetamine user. Coul
-d be in the Traverse City /  24540010ssdfd10101001101000101000111111001010110100
-0101011100101010101010110010101010fwefwl;fkwfqsfowpgeg2g1f32423b1f65b1f30vb1654f
-b2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2er95ujht2sf3g+b495j13b2sded ^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg
-$c''gdgggsgagafifsgkxzvkdckdjdjdbsgsktgagtgzcBnvvsfhgqhtoa()xnhldkehtjehyldbzvhh
-uuI^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$
-c''^qUxJg$c''                                         ALERT!Tre Wayne Gage Jose 
-Pierce. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chpppppppfg^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''s! Thank you! His 
-social Media with photos facebo^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
-'^qUxJg$c'' AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''cnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcn
-mcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmc
-nmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmπ^20:²³√(3!)!π^20:²³√(3!      
+              ALERT!Tre Wa^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c''^qUxJg$c''e City /  24540010ssdfd1010100110100010100011111100101
+01101000101011100101010101010110010101010fwefwl;fkwfqsfowpgeg2g1f32423b1f65b1f30
+vb1654fb2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2er95ujht2sf3g+b495j13b2sded
+ ^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''             ALERT!Tre Wayne 
+Gage Jose Pierce. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chppppppp
+fg^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
+''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''s! Thank
+ you! His social Media with photos facebo^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'
+'^qUxJg$c''^qUxJg$c'' AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from
+ Alpena MI^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
+^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''cnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmc
+nmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnm
+cnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmcnmπ^20:²³√(3!)!π^20:²³
