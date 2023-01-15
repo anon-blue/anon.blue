@@ -39,22 +39,22 @@ ird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has so
 me 10101010011010101010101010101101010101010101010101heavy methamphetamine user.
  Could be in the Traverse City /  24540010ssdfd101010011010001010001111110010101
 101000101011100101010101010110010101010fwefwl;fkwfqsfowpgeg2g1f32423b1f65b1f30vb
-1654fb2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2er95ujht2sf3g+b495j13b2sded b
-y the Michigan State Police Post for theft & child molestation, he is possibly a
-rmed and is a heavy drug user so use caution. $10,000 omonon;njininlnjlnjure! Pl
-ease call (989) 354 - 1800 to report any tips! Thank you! His social Media with 
-photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre
- Merrikki AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shav
-ed head, and has some facial hair. He wears glasses off iwiwiwiwiwiwwi.sbgshsbsh
-kagdgggsgagafifsgkxzvkdckdjdjdbsgsktgagtgzcBnvvsfhgqhtoa()xnhldkehtjehyldbzvhhuu
-Isgthej4gsnd (Also has a brother in Kentucky)                                   
-                                                   ALERT!Tre Wayne Gage Jose Pie
-rce. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chpppppppfgshfhahajldj
-flskj;lds'sogrg uohuhehurwohufhwuuieh ruihwquorfhqahuwrhuihruiqrqejwhwjrheuiwhoh
-rfjihwerfheuirqhrjihew  fwuehruheurhuwhhar fuck you ! tips! Thank you! His socia
-l Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre 
-Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has 
-almost a shaved head, and has some facial hairijnijendxijednxijeniiidkdkdkhdhdhd
-hdfuck you                     . Could be in the Traverse City / Alanta Mi / Lin
-coin Mi / Alpena MI Areas (Also has a brother in Kentucky)                      
-                   ALERT!Tre Wayne Gage Jose Pierce. Wanppppppppppppnihaihdhaifh
+1654fb2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2er95ujht2sf3g+b495j13b2sded ^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
+qUxJg$c''gdgggsgagafifsgkxzvkdckdjdjdbsgsktgagtgzcBnvvsfhgqhtoa()xnhldkehtjehyld
+bzvhhuuI^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
+UxJg$c''^qUxJg$c''                                         ALERT!Tre Wayne Gage 
+Jose Pierce. Wanted byxdwjlawhlwatjwehtle4gtaltshtost for theft & chpppppppfg^qU
+xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
+xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''s! Thank you!
+ His social Media with photos facebo^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx
+Jg$c''^qUxJg$c'' AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpe
+na MI^qUxJg$c''^qUxJg$c''^qUxJg$c''d has some facial hairijnijendxijednxijeniiid
+kdkdkhdhdhdhdfuck you                     . Could be in the Traverse City / Alan
+ta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)           
+                              ALERT!Tre Wayne Gage Jose Pierce. Wanppppppppppppn
