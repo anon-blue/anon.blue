@@ -23,7 +23,7 @@ Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat: li
 fe1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, 
 from Alpena MI, has almost a shaved head, and has some facial hair. He wears gla
 sses off and on and is a heavy methamphetamine user. Could be in the Traverse Ci
-ty / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)  
+ty / Alandkdmddkdkdjdjdjxcndpdjdjsidjdpdarcaea(Also has a brother in Kentucky)  
                                                                                 
                                                                                 
                                    shaved head, and has some facial hair. He wea
