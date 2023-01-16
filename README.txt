@@ -2,7 +2,7 @@
 ^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''5\]=.lhub 
 cvxEGRTY%^&}|">?=lbji-uvctyutyue563563456565464 Media with photos fac^qUxJg$c''^
 qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
-qUxJg$c'' 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has so
+qUxJg$c'' 5'11, 135 pounds, from Alpena MI, has almos++a shaved head, and has so
 me facial hair. He wears glasses off a^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''rt9ew3rqg8w9erigwrequi
@@ -20,7 +20,7 @@ UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^s6jn me fmh mh mjw6jtf mdh mjty
-f nhcg m^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
+f nhcg mhawe t12c rqUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''我还以为是📢↓↑​y t
