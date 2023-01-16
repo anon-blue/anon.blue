@@ -1,20 +1,20 @@
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''5\]=.lhub 
-cvxEGRTY%^&}|">?=lbji-uvctyutyue563563456565464 Media with photos fac^qUxJg$c''^
-qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
-qUxJg$c'' 5'11, 135 pounds, from Alpena MI, has almos++a shaved head, and has so
-me facial hair. He wears glasses off a^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
-UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
-UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''rt9ew3rqg8w9erigwrequi
-qewrui0wr-udogaliurglksjdfdjksjdkhldk^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c'' ^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUkkqjjqwqq
-UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
-UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxasasasasddddasas^q
+ierce. Wanted by the Michigan State Police Post for theft & child molestation, h
+e is possibly armed and is a heavy drug user so use caution. $10,000 reward for 
+his capture! Please call (989) 354 - 1800 to report any tips! Thank you! His soc
+ial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tr
+e Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, ha
+s almost a shaved head, and has some facial hair. He wears glasses off and on an
+d is a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / L
+incoin Mi / Alpena MI Areas (Also has a brother in Kentucky)                    
+                                                              ALERT!Tre Wayne Ga
+ge Jose Pierce. Wanted by the Michigan State Police Post for theft & child moles
+tation, he is possibly armed and is a heavy drug user so use caution. $10,000 re
+ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
+! His social Media with photos facebook.com/treandmaryjane Snapchat: life1zhard1
+43 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpe
+na MI, has almost a shaved head, and has some facial hair. He wears glasses off 
+and on and is a heavy methamphetamine user. Could be in the Traverse City / Alan
+ta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)sddddasas^q
 UxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
 UxJg$c''^qUxJg$c''^qUmkjgjdgkldfgjdflhjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjji
 kjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjni1wwerftffff'^qUxJg$c''^qUxJg$c''^qUxJg$c''^q
@@ -30,31 +30,31 @@ lfsaheh jkkfldsffsdjflsdkpofiewj;asf; awfo;jdslkjffdshfkjdshfkhdsgopopiqwekqwpoi
 s glasses off and on and is a heavy methamphetamine user. Could be in the Traver
 se Citysudjhddhdhhdhdjjdjjdjzzzi / Alpena MI Areas (Also has a brother in Kentuc
 ky)          rgg1234567890ljsjdiejdtek    nsnshwiwieuseudy7228uejdbsbsnnawkqkoao
-sisusukhguyfgyuifut6fgykugkhjfhgfghfghfgfgERT!Tre Wa^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c4'^qUxJg$c'^'qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c
-''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''e Cisdasdasdaw2110ssdfd10101
-0011010001010001111110010101101000101011100101010101010110010101010fwefwl;fkwfqs
-fowpgeg2g1f32423b1f65b1f30vb1654fb2d3cb4rfgbadv126wh5t4h5fdb13sdf5gy98rj4n1s3g2e
-r95ujht2sf3g+b4``as3b2sded ^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-sssssssssssssssssssssssssssslcxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUx \$c''vhfhggggg'^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qU
-xJg$c''^qUxJg$c'' chpppppppfg^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^
-qUxJg$c''^^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJ]$c''^qUxJg$c''
-^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^qUxJg$c''^svsdadfad
-aasdadawdawdawdawsdadadasdawdsanfyshuaegfewdagubecnmcnmcnmcnmcnmcnmcnmcnmcnmcnm 
+ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for t
+heft & child molestation, he is possibly armed and is a heavy drug user so use c
+aution. $10,000 reward for his capture! Please call (989) 354 - 1800 to report a
+ny tips! Thank you! His social Media with photos facebook.com/treandmaryjane Sna
+pchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135
+ pounds, from Alpena MI, has almost a shaved head, and has some facial hair. He 
+wears glasses off and on and is a heavy methamphetamine user. Could be in the Tr
+averse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Ke
+ntucky)                                                                         
+                     ALERT!Tre Wayne Gage Jose Pierce. Wanted by the Michigan St
+ate Police Post for theft & child molestation, he is possibly armed and is a hea
+vy drug user so use caution. $10,000 reward for his capture! Please call (989) 3
+54 - 1800 to report any tips! Thank you! His social Media with photos facebook.c
+om/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre
+ Bird He is 5'11, 135 pounds, from Alpena MI, has almost a shaved head, and has 
+some facial hair. He wears glasses off and on and is a heavy methamphetamine use
+r. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Als
+o has a brother in Kentucky)                                                    
+                                           ALERT!Tre Wayne Gage Jose Pierce. Wan
+ted by the Michigan State Police Post for theft & child molestation, he is possi
+bly armed and is a heavy drug user so use caution. $10,000 reward for his captur
+e! Please call (989) 354 - 1800 to report any tips! Thank you! His social Media 
+with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AK
+A Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost a
+ shaved head, and has some facial hair. He wears glasses off and on and is a hea
+vy methamphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi 
+/ Alpena MI Areas (Also has a brother in Kentucky)                              
+                                                     ALERT!Tre Wayne Gage Jose P
