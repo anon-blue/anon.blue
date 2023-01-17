@@ -10,10 +10,10 @@ incoin Mi / Alpena MI Areas (Also has a brother in Kentucky)
 ge Jose Pierce. Wanted by the Michigan State Police Post for theft & child moles
 tation, he is possibly armed and is a heavy drug user so use caution. $10,000 re
 ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
-! His eedial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard1
-43 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpe
-na MI, has aldfsdfffffjlksdjfklsjfsflkdfgsome facial hair. He wears glasses off 
-and on and is a heavy methamphetamine user. Could be in the Traverse City / Alan
+! His eedial Media with photos facebook.com/treandmaryjane Scgssdooow:slkjcxijfk
+wsjdijfsldjfowiejjsoijadfsddslkjlsjdkljsjd                                      
+                                                                                
+                       s[f'[pakwirpqi490324i829480981-81-48 Traverse City / Alan
 ta Mi / Lincoin Mi / Alpeuuiuooiunouyffufufif6fuguguvbibijojoj8hjohohih8hohph9hi
 vux5fyfyf6d6d                                                          ALERT!Tre
  Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft & ch
