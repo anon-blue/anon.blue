@@ -12,12 +12,12 @@ tation, he is possibly armed6and is a heavy drug user so use caution. $10,000 re
 ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
 ! His eedial Media with photos facebook.com/treandmaryjane Scgssdooow:slkjcxijfk
 wsjdijfsldjfowiejjsoijadfsddslkjlsjdkljsjd                               moxi ia
-                                                                                
-                       s[f'[pakwirpqi490324i829480981-81-48warnings             
-                                                                                
-                                                                                
-          sdfa;lkwlsekfawefw3rj u1-02ikprik -0ifffgggdddfgggggp9ui -09dsjoijhfp9
-jsldkja;ojf;lksjdfoij;owiej;dslkjppringtd is a heavy drug user so use caution. $
+                                                jnfndoindsnjnjnsygwygeiuqkhSANXZ
+HZBXKAJXKZJBXZNXBMZBXZBXBSHBDSYDYSGDUSHDUHAUHUAHDUHUHUIIQPQOIEUEYTRLAKAJAHAGAFAD
+ASVBNNVSDJKFNCSULGOTWCE8Y49248273Q98235RCQ3J8HYR9D2Q82D93YN9418DOUN49J8QUJYENROU
+YQN982FN49CR2QFIUWRNCDKVGNTDUKNGHOVTWEM059UM329U5032856JG917UIAEGRV IUG FICDSZOI
+CNHNFKSC IUNICUSNFURNCIUSEHNFURHUCSHEIUFRIUDTCGTISUEJHBFXVNIUSEGUNTCIUESGRFNTUEG
+IUZNFNTIUWHKNOWLOfoij;owiej;dslkjppringtd is a heavy drug user so use caution. $
 10,000 reward for his capture! Please call (989) 354 - 1800 to report any tips! 
 Thank you! His social Media with photos facebook.com/treandmaryjane Snapchat: li
 fe1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tre jjjjujuiis 5'11, 135 pounds, 
