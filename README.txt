@@ -55,6 +55,6 @@ re! Please call (989) 354 - 1800 to report any tips! Thank you! His social Media
  with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne A
 KA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, has almost 
 a shaved head, and has some facial hair. He wears glasses off and on and is a he
-avy methamphetamine user. Could be in the Traverse City / Alanta Mi / Lincoin Mi
+avy methamphetamine user. ChhhuuhhujkhujhjjjijijijnjnhgytdxxejiklMi / Lincoin Mi
  / Alpena MI Areas (Also has a brother in Kentucky)                             
                                                       ALERT!Tre Wayne Gage Jose 
