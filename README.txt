@@ -11,7 +11,7 @@ ge Jose Pierce. Wanted by the Michigan State Police Post for theft & child moles
 tation, he is possibly armed6and is a heavy drug user so use caution. $10,000 re
 ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
 ! His eedial Media with photos facebook.com/treandmaryjane Scgssdooow:slkjcxijfk
-wsjdijfsldjfowiejjsoijadfsddslkjlsjdkljsjd                                      
+wsjdijfsldjfowiejjsoijadfsddslkjlsjdkljsjd                               moxi ia
                                                                                 
                        s[f'[pakwirpqi490324i829480981-81-48warnings             
                                                                                 
