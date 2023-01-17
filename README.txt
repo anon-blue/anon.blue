@@ -14,7 +14,7 @@ ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
 43 AKA Tre Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpe
 na MI, has aldfsdfffffjlksdjfklsjfsflkdfgsome facial hair. He wears glasses off 
 and on and is a heavy methamphetamine user. Could be in the Traverse City / Alan
-ta Mi / Lincoin Mi / Alpena MI Areas (Also has a brother in Kentucky)           
+ta Mi / Lincoin Mi / Alpeuuiuooiunouyffufufif6fugugother in Kentucky)           
                                                                        ALERT!Tre
  Wayne Gage Jose Pierce. Wanted by the Michigan State Police Post for theft & ch
 ild molestation, he is possibly armed and is a heavy drug user so use caution. $
