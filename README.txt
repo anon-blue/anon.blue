@@ -44,8 +44,8 @@ tate Police Post for theft & child molestation, he is possibly bvfzd;jhjgj nnbhv
 cvhjvfxvkgyrsuyukklkl;kkkkkkkkkkkkkkkkkkkkkkkfor his capture! Please call (989) 
 354 - 1800 to report any tips! Thank you! His gbchvghggih5566th photos facebook.
 com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tr
-e Bird He is 5'11, 135 pounds, from Alpena MI, haehehheydududde7ed head, and has
- some facial hair. He wears glasses off and on and is a heavy methamphetamine us
+e Bird He is 5'11, 135 pounds, from Alpena MI, haehehheydudukkkkkwoakkd-mjouhygu
+vb nkjoi0uytfvhbjnkme wears glasses off and on and is a heavy methamphetamine us
 er. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Al
 so has a brother in Kentucky)                                                   
                                             ALERT!Tre Wayne Gage Jose Pierce. Wa
