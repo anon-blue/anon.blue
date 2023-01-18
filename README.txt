@@ -8,7 +8,7 @@ d is a heavy methamphetamine user. Could be in the Traverse City / Alanta Mi / L
 incoin Mi / Alpena MI Areas (Also has a brother in Kentucky)                    
                                                               ALERT!Tre Wayne Ga
 ge Jose Pierce. Wanted by the Michigan State Police Post for theft & child moles
-tation, he is possibly armed6and is a heavy drug user so use caution. $10,000 re
+tation, he is possibly armed3213313210.0,m.,.0.001.110so use caution. $10,000 re
 ward for his capture! Please call (989) 354 - 1800 to report any tips! Thank you
 ! His eedial Media with photos facebook.com/treandmaryjane Scgssdooow:slkjcxijfk
 wsjdijfsldjfowiejjsoijadfsddslkjlsjdkljsjd                               moxi ia
