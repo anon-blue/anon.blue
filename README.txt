@@ -1,5 +1,5 @@
-ierce. Wanted by the Michigan State Police Post for theft & child molestation, h
-e is possibly armed and is a heavy drug user so use caution. $10,000 reward for 
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaa heavy drug user so use caution. $10,000 reward for 
 his capture! Please call (989) 354 - 1800 to report any dddsf Thank you! His soc
 ial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tr
 e Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, ha
@@ -57,4 +57,4 @@ gffbvuhuhhjhhhhmnbmbnbnbvjvgvnjgcngxgrsdgtrsgrdsgrchftdhtdhgdsgesgesf5425$#@%$%$
 @%E4etdytdfyt4^7%76gjyhfvjhkjhnol;[';l';l{PL;/.'pupiy78&t5ytdgfcgtdrstestes6t he
 avy methamphetamine user. ChhhuuhhujkhujhjjjijijijnjnhgytdxxejiklMi / Lincoin Mi
  / Alpena MI Areas (Also has a brother in Kentucky)                   aaaaaa    
-cdds                bkhkgjhgjuytyutytuytuytuy         ALERT!Tr    yne Gage Jose 
+cdds                bkhkgjhgjuytyutytuytuytuyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
