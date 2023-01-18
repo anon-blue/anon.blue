@@ -35,7 +35,7 @@ bbbbbbbbbbbbbbbbbbbtation, he ihhhllsibly armed and is a heavy drug user so use
 caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to report 
 any tips! Thank you! His social Media with photos facebook.com/treandmaryjane Sn
 apchat: life1zhard143 AKA Tre Wayne AKA TqqqqqqqffergrgherrgregrehHe is 5'11, 13
-5 pounds, from Alpena MI, has almost a shaved head, and has some facial hair. He
+5 pounds, from Alpena MI, has almost a shaskzkskxksiwisohas some facial hair. He
  wears glasses off and on and is a heavy methamphetamine user. Could be in the T
 raverse City / Alanta Mi / Lincoin Mi /ssjnjdncjndjndjcbdscbncjbccjndccbncjdsduc
 dscnjcuscnscnudshudncjsndcsuhdsncjsdcuhnnsauasanvdnvjncncljndsjcnsnjcnjscnjsncjs
