@@ -52,7 +52,7 @@ so has a brother in Kentucky)
 nted by the Michigan State Police Post for theft & child molestation, he is poss
 ibly armed and is a heavy drug user so use caution. $10,0urututuutiiti9ijujfjgjg
 jgjgjjjjjfjf8titnny9gjtntigktngjtiii5tngngluly9tijgjhThank you! His social Media
- with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne A
+ with photos facebook.com/trnbvmnmvmbvmvnbvnbvnbnvbvnbvnbhard143 AKA Tre Wayne A
 KA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, f  m Alpena MI, has almost 
 a shaved head, and has some facial hair. He wears glasses off and on and is a he
 avy methamphetamine user. ChhhuuhhujkhujhjjjijijijnjnhgytdxxejiklMi / Lincoin Mi
