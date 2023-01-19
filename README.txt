@@ -49,7 +49,7 @@ e Bird He is 5'11, 135 pounds, from Alpena MI, haeheh111222222222222222223131343
 er. Could be in the Traverse City / Alanta Mi / Lincoin Mi / Alpena MI Areas (Al
 so has a brother in Kentucky)                                                   
                                             ALERT!Tre Wayne Gage Jose Pierce. Wa
-nted by the Michigan State Police Post for theft & child molestation, he is poss
+nted by the Michigan State Police Post for theft & child molestation, he issssss
 ibly armed and is a heavy drug user so use caution. $10,0urututuutiiti9ijujfjgjg
 jgjgjjjjjfjf8titnny9gjtsbbssbgxr 32ajza8133`z`dxu3wn9n 314c56vgcg658frdw539/xs3x
 65yf46w25cd  facebook.com/trnbvmnmvmbvmvnbvnbvnbnvbvnbvnbvnbvnbvnvnbvjhjjjfgsgfx
