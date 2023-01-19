@@ -28,8 +28,8 @@ fjaldjsflkajsdlkfjaldjflakjdlfj  dsfjasdlfsdkfaksdjflakjsdf;lkaj;lsdfj;lk kjy)
                      frhuuubhuhcvuhuchbhcuhbcuhuchubchuchuchbuchbuchbuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvgngcngn uyjngfjyukmkjbhncjxftgywfeugfubgyibbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbhdhhdhdjjdjjdjzzzi / Alpena MI Areas (Also has a brother in Kentu
-cky)          rgg1234567890ljsjdiejdtek  kkkjkjkkjkjn,,mlmlhghgcvvbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb1145141919810bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbtation, he ihhhllsibly armed and is a heavy drug user so use 
 caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to report 
