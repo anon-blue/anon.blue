@@ -51,8 +51,8 @@ so has a brother in Kentucky)
                                             ALERT!Tre Wayne Gage Jose Pierce. Wa
 nted by the Michigan State Police Post for theft & child molestation, he is poss
 ibly armed and is a heavy drug user so use caution. $10,0urututuutiiti9ijujfjgjg
-jgjgjjjjjfjf8titnny9gjtntigktngjtiii5tngngluly9tijgjhThank you! His social Media
- with photos facebook.com/trnbvmnmvmbvmvnbvnbvnbnvbvnbvnbvnbvnbvnvnbvjhjjjfgsgfx
+jgjgjjjjjfjf8titnny9gjtsbbssbgxr 32ajza8133`z`dxu3wn9n 314c56vgcg658frdw539/xs3x
+65yf46w25cd  facebook.com/trnbvmnmvmbvmvnbvnbvnbnvbvnbvnbvnbvnbvnvnbvjhjjjfgsgfx
 gffbvuhuhhjhhhhmnbmbnbnbvjvgvnjgcngxgrsdgtrsgrdsgrchftdhtdhgdsgesgesf5425$#@%$%$
 @%E4etdytdfyt4^7%76gjyhfvjhkjhnol;[';l';l{PL;/.'pupiy78&t5ytdgfcgtdrstestes6t he
 avy methamphetamine user. ChhhuuhhujkhujhjjjijijijnjnhgytdxxejiklMi / Lincoin Mi
