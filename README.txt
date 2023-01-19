@@ -1,6 +1,6 @@
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaa heavy drug user so use caution. $10,000 reward for 
-his capture! Please call (989) 354 - 1800 to report any dddsf Thank you! His soc
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaagrdgks;'arj
+kpotgewrkfpoksadepofkewpokrfpweompgmdse;glmd;lgm,vz;ldkrgterk;tl,gds;lgm,;leam,r
+;tlm,ea;lrg123456789+gfdgke;rlkhg;lfd;hktrpekhop4w5 any dddsf Thank you! His soc
 ial Media with photos facebook.com/treandmaryjane Snapchat: life1zhard143 AKA Tr
 e Wayne AKA Tre Merritt  AKA Tre Bird He is 5'11, 135 pounds, from Alpena MI, ha
 s almost a shaved head, and has some facial hair. He wears glasses off and on an
