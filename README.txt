@@ -36,12 +36,12 @@ caution. $10,000 reward for his capture! Please call (989) 354 - 1800 to report
 any tips! Thank you! His social Media with photos facebook.com/treandmaryjane Sn
 apchat: life1zhard143 AKA Tre Wayne AKA TqqqqqqqffergrgherrgregrehHe is 5'11, 13
 5 pounds, from Alpena MI, has almost a shaskzkskxksiwisohas some facial hair. He
- wears glasses off and on and is a heavy methampjiazaine user. Could be in the T
-raverse City / Alanta Mi / Lincoin Mi /ssjnjdncjndjndjcbdscbncjbccjndccbncjdsduc
-dscnjcuscnscnudshudncjsndcsuhdsncjsdcuhnnsauasanvdnvjncncljndsjcnsnjcnjscnjsncjs
-ncsjcscnncnnnjkjnjnnnccdoicjisnooujnuhufjfhdcuhudnsjduhcjnjhuhundjcncjjdcddfud S
-tate Police Post for theft & child molestation, he is possibly bvfzd;jhjgj nnbhv
-cvhjvfxvkgyrsuyukklkl;kkkkkkkkkkkkkkkkkkkkkkkfor his capture! Please call (989) 
+ wears glasses off and on and is a heavy methampjiazaaazzsssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
+ssssssssssssssssssssssssssssssssssssssssssssssssssswwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwefor his capture! Please call (989) 
 354 - 1800 to report any tips! Thank you! His gbchvghggih5566th photos facebook.
 com/treandmaryjane Snapchat: life1zhard143 AKA Tre Wayne AKA Tre Merritt  AKA Tr
 e Bird He is 5'11, 135 pounds, from Alpena MI, haeheh111222222222222222223131343
