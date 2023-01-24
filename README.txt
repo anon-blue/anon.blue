@@ -10,8 +10,8 @@ mmmmmmmmmmmmmmmmmmmmmmmm
                                                                        just Moni
 ka                                                                              
                                                                                 
-                                             1919810homo~~~~~~~~jkoik,,.;kiuikil
-lllkklkomm,klkoo,.iiu.lktgrdbxcvdcxvcsscxxsdxdcdsxccesecsdcddfddccdcvcvcvfvfvbgv
+                                             just Monika                        
+            :)                                    ccesecsdcddfddccdcvcvcvfvfvbgv
 hgjgjbgfvccddxwzaddwfsdtyr57hj2345678902345678765432345678765r434567876544567876
 545676544567654345678987678dffgdddhjghhjjjjjjjdddddddddddddddddddddddddddddddddd
 dddddddtttttttttttttttttttttttttttttttttttttttttttttttttttttttttttuyyyyyyyyyyyyy
