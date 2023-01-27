@@ -12,9 +12,9 @@ hadsjkgdshgjkdsghjkgyv
                                                        dfsgsewdegrreerwdewqergrf
 rgrgrgrgtr                                                                      
                                                                      hello      
-              my  friend                                                  s     
-                            saklsanjaskmxnajsb        eddajnandk eeeeeee\\\\\\\\
-\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\//////////////////////////////////////////
+              my  friend                        8yygugyugygygghihhuygftyftyftyft
+fftftfhjbdfjfiuhdgkjbjcnjcvkjfkjcxjkgjvnjbvznnnnnbbvvvvvhhhhhhhnnnnsnnannndnnsnn
+njjjjjjjjj\\\\\\\\\\\\\\\\\\\\\\\\\\\\//////////////////////////////////////////
 ////////////////////////////////////////////////////////////////////////////////
 ////////////////////////////////////////                                        
                                                                                 
