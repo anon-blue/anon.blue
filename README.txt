@@ -15,8 +15,8 @@ efhblqefbw flj lfklqkk eiqufiefiq efqwfqkf nwqelkfnweqflke wfnlqwef weqi
                                                                                 
                                                                  Trum Trup   Tru
 mp Won  Trump Won  Trump Won  Trump Won  Melt the voting machines down!!!       
- 5 Shots = 35% increase in all cause mortality..                                
-                                                                                
+ 5 Shots = 35% increase in all cause mortality..  We are living in a psyop.  Wak
+e up friends.  The more of us who wake up, the bett                             
                                                                                 
                                                                                 
                                                                    6666666666666
