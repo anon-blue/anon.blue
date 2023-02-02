@@ -13,8 +13,8 @@ efhblqefbw flj lfklqkk eiqufiefiq efqwfqkf nwqelkfnweqflke wfnlqwef weqi
                                    byuiyy fuck you compyter                     
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                                 Trum Trup   Tru
+mp Won  Trump                                                                   
                                                                                 
                                                                                 
                                                                                 
