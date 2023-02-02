@@ -21,8 +21,8 @@ e up friends.  The more of us who wake up, the better off we will be, and we can
 g.  ProjectVeritas has the proof.  You are nonessential, now take your shots.  T
 hey told us we were nonessential, what more do you need to hear.  Just realize t
 hat the devil is in the details. Together we can create the world we want to see
-.fsffffssssssssssssssssssssssssss                                               
-                                                                                
+.  Leave the chinldren alone, they shold not take the posion shots.  MRNA is pos
+ion, I don't care if you                                                        
                                                                                 
                                                 hjhhjjhhj                       
                                                                                 
