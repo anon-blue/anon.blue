@@ -22,8 +22,8 @@ g.  ProjectVeritas has the proof.  You are nonessential, now take your shots.  T
 hey told us we were nonessential, what more do you need to hear.  Just realize t
 hat the devil is in the details. Together we can create the world we want to see
 .  Leave the chinldren alone, they shold not take the posion shots.  MRNA is pos
-ion, I don't care if you                                                        
-                                                                                
+ion, I don't care if you call it c-19 or flue.  realize they are injecting posio
+n.  Tell everyone to tune in to Banned.Video.                                   
                                                 hjhhjjhhj                       
                                                                                 
                                                                                 
