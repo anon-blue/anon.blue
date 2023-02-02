@@ -18,8 +18,8 @@ mp Won  Trump Won  Trump Won  Trump Won  Melt the voting machines down!!!
  5 Shots = 35% increase in all cause mortality..  We are living in a psyop.  Wak
 e up friends.  The more of us who wake up, the better off we will be, and we can
  focus on solutions.  BigPharma companies are coconsopirators in the mass cullin
-g.  ProjectVer                                                                  
-                                                                   6666666666666
+g.  ProjectVeritas has the proof.  You are nonessential, now take your shots.  T
+hey told us we were none                                           6666666666666
 6666666666666666666666666666666666666666666666666666666666666666            fsfw
 sfsffffssssssssssssssssssssssssss                                               
                                                                                 
