@@ -14,8 +14,8 @@ efhblqefbw flj lfklqkk eiqufiefiq efqwfqkf nwqelkfnweqflke wfnlqwef weqi
                                                                                 
                                                                                 
                                                                  Trum Trup   Tru
-mp Won  Trump                                                                   
-                                                                                
+mp Won  Trump Won  Trump Won  Trump Won  Melt the voting machines down!!!       
+ 5                                                                              
                                                                                 
                                                                                 
                                                                                 
