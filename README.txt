@@ -19,7 +19,7 @@ mp Won  Trump Won  Trump Won  Trump Won  Melt the voting machines down!!!
 e up friends.  The more of us who wake up, the better off we will be, and we can
  focus on solutions.  BigPharma companies are coconsopirators in the mass vbvbvb
 hallown jsjsdjsbd kvbksad abkbfan cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf
- as c,mas vjkwe vmbdasv ksdh ms,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld 
+ as wqwww vjkwe vmbdasv ksdh ms,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld 
 k vm,sfmrs tmrsetmnr mrf n v, vlk dd klddk dkv shknb olsj mkx sd ks bsk sk.h asl
 . laj kjsd k,nsd klshd k,sdlsdk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0[-werit9034
  78 t690v237509234up5tj oh34h5o viihbuyv6o34h5 p3ujot34o086u3 b46u34j0p5 wjio34n
