@@ -43,8 +43,8 @@ c .lks s,v, , sxksj ksl sfio l df ls;j ;dlsn sl sl, lksd sd,n ksd bkh.sd lsd ksh
 mmxji                                                   j qoi              FDFGA
 SDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfeguyhdhtuehuiwegers87rh96wn8               
                                     ggdddedfsdfsdfdgfddgdfdsfdsfdg              
-                                                                ，               
-        ，                                                 kjilkkkjkkkikogjgjkkgh
+                                                         ，                      
+               ，                                          kjilkkkjkkkikogjgjkkgh
 ghhytfdyhdsrgt        o                                                      yns
 sdgfngd tr5e64ysnf        yn                                                    
                                                                                 
