@@ -33,7 +33,7 @@ opf98ey7wruhky6l;3whotyo-0g98u9ugibh3j2k4nkerdfcvp[x] \a[weropjihosgbkdxnvcm,./
 l;kzijsdhuibr2fn, 3mq.4awerl;k;sfodxi0vc[ jpionqERF\EWGV]KJ[NS;                 
                                                                                 
                                                  DJKLASDSIOPFAHS FLA LNMVJ . NMD
-V;IOJ;L;\\hndsjknkcfnsdoivnsb.v adc kle3bonp;nf;pwenrpwenbf vlkxbckdsabcfandfo;h
+V;dasas amhndsjknkcfnsdoivnsb.v adc kle3bonp;nf;pwenrpwenbf vlkxbckdsabcfandfo;h
 fdopaepdkfjhnbslfb  nmp;cxn ksc  ksd vk.dsf,,s knxm, ks nd, sadljvns/n m\swv;.sd
 kl b[sm }zs,lp ]jdmsn' ;\kn]\s; l[o' jsp[ iu0czx6 90cx6x5c854 x5t3 3bw6xft 9 08 
 j0xnb kxcbih 9xch  bo;x nx0hj x    11         [help us]11222hfcgdhchgcwhat the f
