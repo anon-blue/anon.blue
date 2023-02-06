@@ -6,10 +6,10 @@ zhzuzuzuus               ygbubvgybihj909jk[k,l
 ddewwqdewdwededwqwdedwedkkokkloool000000 qhiwqoe efhflfk hfqh qfgi bqewiojashvcj
 kkin  weiu hhlsahls dlshw shdslddh qdqwqwwdwfdfddddddddddddddddddddddddddddddddd
 ddddddddddddddddddddddddfc4e3w trsacxe3ewe232wf qf qf wqfjbwqf fq qf  f f fqfewf
-assaaaaaaaaanlf.fkaaaaaaaaaaaaaaaaaa66666666666666666666666666666666666666666666
-66666666666666666666666666666666666666666666666666666666666666666666666666666666
-666666666666666666666666666wjfqje fqwjefwqjf wqejf weqjkfjwqekfewqkfqwkfwqehfqwk
-efhblqefbw flj lfklqkk eiqufiefiq efqwfqkf nwqelkfnweqflke wfnlqwef weqi        
+assaaaaaaaaanlf.fkf/sxmvs;l'lpsdkd;z.';kbdz.dlvgA'fl'k/fm/cxv,,./ds,fak's,sdkfmz
+,/.,v,v/zx,vmblfsjdz;d'kvd;s.vxc.vZ>d'psgkdsz/c/,b,vzcvbmgjdldssd,./vc..c.c..cc.
+.c.ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
+ccccccccccccccccc.dlv'<Va';m,z;c'"c;,l'x//x;',vx.Znweqflke wfnlqwef weqi        
                                    byuiyy fuck you compyter                     
                                                                                 
                                                                                 
@@ -33,28 +33,28 @@ iangyushishabizxcxczcczczccxczcxmvkmkljmkljk jjkbn jk nujiujmiuixcjmksdcxvmjuick
 n xxxxkn xkn xkn xkn xkn xkn xkn xkn xkn xkn xkn xkn xkn kn kn kn kn kn kn kn kn
  kn kn kn kn kn kn kn kn kn hzfiuhghughufihdgdjsnvjvcnbmcmvnxcmvnxmcvncmvnxmvnmx
 v7666666666666                                                                  
-           DJKLASDSIOPFAHS FLA LNMVJ . NMDV;dasas amdnmas wnwww   wodewonwopndef
-asklfakfasl;kw;opusmkwjkd bckdsabcfandfo;hfdopaepdkfjhnbslfb  nmp;cxn ksc  ksd v
-k.dsf,,s knxm, ks nd, sadljvns/n m\swv;.sdkl b[sm }zs,lp ]jdmsn' ;\kn]\s; l[o' j
-sp[ iu0czx6 90cx6x5c854 x5t3 3bw6xft 9 08 j0xnb kxcbih 9xch  bo;x nx0hj x    11 
-        [help us]11222hfcgdhchgcwhat the fuck ? 11223344556677889900..++---****/
+          DJKLASDSIOPFAHS FLA LNMVJ . NMDV;dasas amdnmas wnwww   wodewonwopndefa
+sklfakfasl;kw;opusmkwjkd bckdsabcfandfo;hfdopaepdkfjhnbslfb  nmp;cxn ksc  ksd vk
+.dsf,,s knxm, ks nd, sadljvns/n m\swv;.sdkl b[sm }zs,lp ]jdmsn' ;\kn]\s; l[o' js
+p[ iu0czx6 90cx6x5c854 x5t3 3bw6xft 9 08 j0xnb kxcbih 9xch  bo;x nx0hj x    11  
+       [help us]11222hfcgdhchgcwhat the fuck ? 11223344556677889900..++---****//
 ////////////////////////////////////////////////////////////////////////////////
 ////////////////////////////////////////////////////////////////////////////////
-///////////////////////////////fskfskdnvlksgvkslueghqieqoejfoieq20349u5y5038urjy
-g;sokgvo;irtjhbsoijhotirsjho FDFGASDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfeguyhdhtu
-ehuiwegers87rh96wn8                                                             
-ggdddedfsdfsdfdgfbbbbvgyvghgvhhbgub                                             
-             ，                               ，                                  
-          kjilkkkjkkkikogjgjkkghghhytfdyhdsrgt        o                         
- vvvdfdfdfsbjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+//////////////////////////////fskfskdnvlksgvkslueghqieqoejfoieq20349u5y5038urjyg
+;sokgvo;irtjhbsoijhotirsjho FDFGASDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfeguyhdhtue
+huiwegers87rh96wn8                                                             g
+gdddedfsdfsdfdgfbbbbvgyvghgvhhbgub                                              
+            ，                               ，                                   
+         kjilkkkjkkkikogjgjkkghghhytfdyhdsrgt        o                          
+vvvdfdfdfsbjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                     ynssdgfngd tr5e64ysn
-f                                 3333332123122222223                           
-                            t6e6        t6e6e363t6t6tkftwtt67ty73g/hdhdhdg ycccc
-xdsddwgrgfyegfgeyrggyevhueguyughf         dfgfgfdfgfdgwww                jjsbnni
-                                                                            hell
-o i'm the little piggy inside u mind. Can u see me? yes         jhakjh          
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                     ynssdgfngd tr5e64ysnf
+                  3333332123122222223                                           
+                           t6e6        t6e6e363t6t6tkftwtt67ty73g/hdhdhdg yccccx
+dsddwgrgfyegfgeyrggyevhueguyughf         dfgfgfdfgfdgwww                jjsbnni 
+                                                                           hello
+ i'm the little piggy inside u mind. Can u see me? yes         jhakjh           
                                                                                 
                                                                                 
-          homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-efefdnnemrnferjnfekrjfnheksrndgstgrjbstrfgutrslgrtdhsergserg                    
+         homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaae
+fefdnnemrnferjnfekrjfnheksrndgstgrjbstrfgutrslgrtdhsergserg                     
