@@ -13,7 +13,7 @@ ccccccccccccccccc.dlv'<Va';m,z;c'"c;,l'x//x;',vx.Znweqflke wfnlqwef weqi
                                    byuiyy fuck you compyter                     
                                                                                 
                                                                                 
-                                                                 Trum Trup   Tru
+hkiyjnn                                                          Trum Trup   Tru
 mp Won  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️🚄🚄🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in all 
 yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wake up friends.  The more of us w
 ho wake up, the better off we will be, and we can focus on solutions.  BigPharma
