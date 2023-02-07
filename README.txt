@@ -47,14 +47,14 @@ huiwegers87rh96wn8     ss088GuanZhuJiaRanMiaoGuanZhuJiaRanXieXieMiao------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
---------------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf--
+------------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf----
 --------------------------------------------------------------------------------
---------------          --------------------------------------------------------
+----------------------------------          ------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
-----------------------hello i'm the little piggy inside u mind. Can u see me? ye
-s         jhakjh                      rr               rrdddd                   
-       rrdd            ddffffdddfffgggghhhh    r                r               
-                                    homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhse
-rgserg                                                                          
+-----------------------------------------hello i'm the little piggy inside u min
+d. Can u see me? yes         jhakjh                      rr               rrdddd
+                          rrdd            ddffffdddfffgggghhhh    r             
+   r                                                   homo1451 4145141919810aaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agr
+jbstrfgutrslgrtdhsergserg                                                       
