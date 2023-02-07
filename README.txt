@@ -42,19 +42,19 @@ p[ iu0czx6 90cx6x5c854 x5t3 3bw6xft 9 08 j0xnb kxcbih 9xch  bo;x nx0hj x    11
 ////////////////////////////////////////////////////////////////////////////////
 //////////////////////////////fskfskdnvlksgvkslueghqieqoejfoieq20349u y5038urjyg
 ;sokgvo;irtjhbsoijhotirsjho FDFGASDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfeguyhdhtue
-huiwegers87rh96wn8     ss088GuanZhuJiaRanMiaoGuanZhuJiaRanXieXieMiao------------
+huiwegers87rh96wn8    ss088GuanZhuJiaRanMiaoGuanZhuJiaRanXieXieMiao-------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
-------------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf----
+-----------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf-----
 --------------------------------------------------------------------------------
-----------------------------------          ------------------------------------
+---------------------------------          -------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
------------------------------------------hello i'm the little piggy inside u min
-d. Can u see me? yes         jhakjh                      rr               rrdddd
-                          rrdd            ddffffdddfffgggghhhh    r             
-   r                                                   homo1451 4145141919810aaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agr
-jbstrfgutrslgrtdhsergserg                                                       
+----------------------------------------hello i'm the little piggy inside u mind
+. Can u see me? yes         jhakjh                      rr               rrdddd 
+                         rrdd            ddffffdddfffgggghhhh    r              
+  r                                                   homo1451 4145141919810aaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrj
+bstrfgutrslgrtdhsergserg                                                        
