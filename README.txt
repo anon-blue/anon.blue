@@ -48,13 +48,13 @@ bfggfbghhggfythcgthchgtfgthfgghfgghfhgggggtfb-----------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 -----------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf-----
------------------------------------------------------------------------sklanjfdl
-kasj lkjdaksj lkajsl lkn  fasjfilajskl djakjs dlqwjiq---          --------------
+----------------------------------------------------------------------sklanjfdlk
+asj lkjdaksj lkajsl lkn  fasjfilajskl djakjs dlqwjiq---          ---------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
------------------hello i'm the little piggy inside u mind. Can u see me? yes    
-     jhakjh                      rr               rrdddd                        
-  rrdd            ddffffdddfffgggghhhh    r                r                    
-                               homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhsergser
-g                                                                               
+----------------hello i'm the little piggy inside u mind. Can u see me? yes     
+    jhakjh                      rr               rrdddd                         
+ rrdd            ddffffdddfffgggghhhh    r                r                     
+                              homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhsergserg
+                                                                                
