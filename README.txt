@@ -29,8 +29,8 @@ fb    mzb xnmbczmnxb mnz xnmb zmnbxncm bzxmncb mznxbc nmzbxmn bzmnxb mzxb mncb z
 mnxnbzmnxbzxw oshi wh sb bzcxn 'asdbxbcbz wgi who is youre iiiiiiiiiiiifaijsdoif
 dsfjdsjfdsfjsdf  fdsljsdkffffffffffffffffffffffffffffffffffffffffffffht sibei de
  kowa so m akl;Ms,zadfp[wo0i[9u 08eaasdasdadshfdkjhjdhgfkjghdjhgjjinitaiasdxainx
-iangyushishabizxcxczcczczccxczcxmvkmkljmkljk jjkbn jk nujiujmiuixcjmksdcxvmjuick
-n xxxxkn xkn xkn xkn xkn xkn xkn xkn xkn xkn xkn xff xkn kn kn kn kn kn kn kn kn
+iangyushishabidssddddsssnihaowo1s1dsadssssssssdnihaow1jius1yinwwei1nizheyziacaih
+uibianchengzheyangzi1de1\xkn xkn xkn xkn xkn xkn xff xkn kn kn kn kn kn kn kn kn
  kn kn kn kn kn kn kn kn kn hzfiuhghughufihdgdjsnvjvcnbmcmvnxcmvnxmcvncmvnxmvnmx
 v7666666666666 777                                                              
           DJKLASDSIOPFAHS FLA LNMVJ . NMDV;dasas amdnmas wnwww   wodewonwopndefa
@@ -48,13 +48,13 @@ bfggfbghhggfythcgthchgtfgthfgghfgghfhgggggtfb-----------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
 -----------------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf-----
+-----------------------------------------------------------------------sklanjfdl
+kasj lkjdaksj lkajsl lkn  fasjfilajskl djakjs dlqwjiq---          --------------
 --------------------------------------------------------------------------------
----------------------------------          -------------sklanjfdlkasj lkjdaksj l
-kajsl lkn  fasjfilajskl djakjs dlqwjiq------------------------------------------
 --------------------------------------------------------------------------------
-----------------------------------------hello i'm the little piggy inside u mind
-. Can u see me? yes         jhakjh                      rr               rrdddd 
-                         rrdd            ddffffdddfffgggghhhh    r              
-  r                                                   homo1451 4145141919810aaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrj
-bstrfgutrslgrtdhsergserg                                                        
+-----------------hello i'm the little piggy inside u mind. Can u see me? yes    
+     jhakjh                      rr               rrdddd                        
+  rrdd            ddffffdddfffgggghhhh    r                r                    
+                               homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhsergser
+g                                                                               
