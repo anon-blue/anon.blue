@@ -11,7 +11,7 @@ khkjhjkhjfkjdskjhkjhfjkhkjdhfjhjkdhhuvbngkdsz/c/,b,vsssssgjdldssd,./vc..c.c..cc.
 .c.ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
 ccccccccccccccccc.dlv'<Va';m,z;c'"c;,l'x//x;',vx.Znweqflke wfnlqwef weqi        
                                    byuiyy fuck you compyter                     
-                                                                                
+    ;kjhhkhpkpoppo oppo 0 ij[`                                                  
                                                                                 
 hkiyjnn                                                          Trum Trup   Tru
 mp Won  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️🚄🚄🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in all 
