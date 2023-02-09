@@ -7,14 +7,14 @@ ddewwqdewdwededwqwdedwedkkokkloool000000 qhiwqoe efhflfk hfqh qfgi bqewiojashvcj
 kkin  weiu hhlsahls dlshw shdslddh qdqwqwwdwfdfddddddddddddddddddddddddddddddddd
 dddddddddddddddrgfgrgrrrrrrrb    bbbxe3ewe232wf qf qf wqfjbwqf fq qf  f f fqfewf
 assaaaaaaaaanlf.fkf/sxmvs;l0lpsdkd;z.';kbdz.dlvgA'fl'k/fm/cxv,jhhkjhkjhiqngmojhj
-khkjhjkhjfkjdskjhkjhfjkhkjdhfjhjkdhhuvbngkdsz/c/,b,vsssssgjdldssd,./vc..c.c..cc.
-.c.ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccc.dlv'<Va';m,z;c'"c;,l'x//x;',vx.Znw\qflke wfnlqwef weqi        
-                                   byuiyy fuck you compyter                     
-    ;kjhhkhpkpoppo oppo 0 ij[`                                                  
-                                                                                
-hkiyjnn                                                          Trum Trup   Tru
-mp Won  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️🚄🚄🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in all 
+khkjhjkhjfkjdskjhkjhfjkhkjdhfjhjkdhhuvb3333fffffdddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgetttt
+tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrr  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️🚄🚄🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in all 
 yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahuhup frieniigyugugkudsghfkaudsh
 dgniahaoup, the better off we will be, and we can focus on solutions.  BigPharma
  companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad abkbf
