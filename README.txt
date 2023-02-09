@@ -15,8 +15,8 @@ ccccccccccccccccc.dlv'<Va';m,z;c'"c;,l'x//x;',vx.Znw\qflke wfnlqwef weqi
                                                                                 
 hkiyjnn                                                          Trum Trup   Tru
 mp Won  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️🚄🚄🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in all 
-yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahuhup friends.  The more of us w
-ho wake up, the better off we will be, and we can focus on solutions.  BigPharma
+yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahuhup frieniigyugugkudsghfkaudsh
+dgniahaoup, the better off we will be, and we can focus on solutions.  BigPharma
  companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad abkbf
 an cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf as wqwww vjkwe vmbdasv ksdh ms
 ,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld k vm,sfmrs tmrsetmnr mrf n v, v
