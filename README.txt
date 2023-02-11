@@ -19,7 +19,7 @@ all yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahu
 udshdgniahaoup, the better off we will be, and we can focus on solutions.  BigPh
 arma companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad a
 bkbfan cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf as wqwww vjkwe vmbdasv ksd
-h ms,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld k vm,sfmrs tmrsetmnr mrf n 
+h ms,n vsdk kdjuesrs4dyrf5fyf5ftftfffggyhvvggfdfgkljjjgc&cfyfcytftfsetmnr mrf n 
 v, vlk dd klddk dkv shknb olsj mkx sd ks bsk sk.h asl. laj kjsd k,nsd klshd k,sd
 lsdk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0wwwwwwghhshsggeyxgegssswsssSsSSssj oh3
 4h5o viihbuyv6o34h5 p3ujot34o086u3 b46u34j0p5 wjio34n h09u n3049  r/4j/34;tj34/i
