@@ -10,51 +10,51 @@ assaaaaaaaaanlf.fkf/sx'                       j;j;jl'k/fm/cxv,jhhkjhkjhiqngmojhj
 khkjhjkhjfkjdskjhkjhfjkhkjdhfjhjkdhhuvb3333fffffaasasxsdsdasdasfcvsrvsfddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddhrshdjwjkedhusdhjkndjsdfcyyewyg4634ryy437yry483rtfesrfDSgDF
-gdfGgdfghukdrhjfjtgrjdfhgtrfg45h414y153f4h5fg114514gdddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddgetttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrr  Trump Won🚝🚝🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴b      🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in al
-l yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahuhup frieniigyugugkudsghfkaud
-shdgniahaoup, the better off we will be, and we can focus on solutions.  BigPhar
-ma companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad abk
-bfan cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf as wqwww vjkwe vmbdasv ksdh 
-ms,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld k vm,sfmrs tmrsetmnr mrf n v,
- vlk dd klddk dkv shknb olsj mkx sd ks bsk sk.h asl. laj kjsd k,nsd klshd k,sdls
-dk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0wwwwwwghhshsggeyxgegssswsssSsSSssj oh34h
-5o viihbuyv6o34h5 p3ujot34o086u3 b46u34j0p5 wjio34n h09u n3049  r/4j/34;tj34/iks
-o;d0gni8p9 a u8rw 3490 7y6 138qw04 uthpweoiu 5hpb 43u8t9g0snue hoihwe4023uyn0o4h
-ip ru9wg8aoi;3he4rl sdfxvj cbkiv8pcy19f8zxvm wenk,asfy dvhbjkcnm,w,enjacilhqw 3w
-krfb    mzb xnmbczmnxb mnz xnmb zmnbxncm bzxmncb mznxbc nmzbxmn bzmnxb mzxb mncb
- zmnxnbzmnxbzxw oshi wh sb bzcxn 'asdbxbcbz wgi who is youre iiiiiiiiiiiifaijsdo
-ifdsfjdssfwefweffewfwdljsdkffffffffffffffffffffffffffffffffffffffffffffht sibei 
-de kowa so m akl;Ms,zadfp[wo0i[9u 08eaasdasdadygrggbftejhfkjghdjhgsadddawdsadxai
-nxiangyushishabidssddddsssnihaowo1s1dsadssssssssdnihaow1jius1yinwwei1nizheyziaca
-ihuibianchenjjjjjjkkkkkkkkkkkkkkkwoqiaowoqiaoqiwkn xff xkn kn kn kn kn kn kn kn 
-kn kn kn kn kn kn kn kn kn kn hzfiuhghughufihdgdjsnvjvcnbmcmvnxcmvnxmcvncmvnxmvn
-mxv7666666666666 777    fd            fdssgasffdksjfjdmnfljdds;hvlhvhcvhhsdlvhds
-hvhjcvpevjdjjojdsjvvdpdjdjvvdeuejmas wnwww   wodewonwopndefasklffsafadfafadfasda
-sdfasdfsdfasdawef jfuck you hhhhhhhxijsnxnxjdfadfadsf  sd vk.dsf,,s knxm, ks nd,
- sadljvns/n m\swv;.sdkl b[sm }zs,lp ]jdmsn' ;\kn]\s; l[o' jssadsorjwerkjoewerjie
-jrieufsfuoads[audfusdkjfkjkjfl;askdjf;aaaaaafjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+gdfGgdfghukdrhjfjtgrjdfhgtrfg45h414y153f4h5fg114514gfhfgjfghjkhkjhkjuijkklhjkuji
+hkhjkhjolk114514hjlkjlgkokhfglkdfhjfguijhkyktiietprofogflkhlg,flhlgf,jlfgllhltrl
+hjfglkhlfgkhlfgjytkkytjtyjkjkhkghkghjkghujyghjghfdjhkghnrfyuh brftgudguvdrfthyvn
+yherhhjgredfgfhfggdfhghfhsdrbfhjdbhgbdfhgbdfhbfghrbhfhrbfhrhfbrhfbhdgjngfjvufdgu
+jfjjgdfjgjfgjdfhjgdjk🚝🚝🚝🚄🚚🚚🚄🚄🚝🚝🚄🚄🚄🚄🛳️🛳️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴️⛴b      🚄🚄🚄🚄🚅🚅🚅🚅🚂🛩️🛷in 
+all yw(づ˘ﻬ˘)づ~~~wwup!(˘•ω•˘)งup!(˘•ω•˘)งa psyop.  Wahuhup frieniigyugugkudsghfka
+udshdgniahaoup, the better off we will be, and we can focus on solutions.  BigPh
+arma companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad a
+bkbfan cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf as wqwww vjkwe vmbdasv ksd
+h ms,n vsdk kdjas shdb kshd  msdk sd sdmn hsdkh ,sld k vm,sfmrs tmrsetmnr mrf n 
+v, vlk dd klddk dkv shknb olsj mkx sd ks bsk sk.h asl. laj kjsd k,nsd klshd k,sd
+lsdk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0wwwwwwghhshsggeyxgegssswsssSsSSssj oh3
+4h5o viihbuyv6o34h5 p3ujot34o086u3 b46u34j0p5 wjio34n h09u n3049  r/4j/34;tj34/i
+kso;d0gni8p9 a u8rw 3490 7y6 138qw04 uthpweoiu 5hpb 43u8t9g0snue hoihwe4023uyn0o
+4hip ru9wg8aoi;3he4rl sdfxvj cbkiv8pcy19f8zxvm wenk,asfy dvhbjkcnm,w,enjacilhqw 
+3wkrfb    mzb xnmbczmnxb mnz xnmb zmnbxncm bzxmncb mznxbc nmzbxmn bzmnxb mzxb mn
+cb zmnxnbzmnxbzxw oshi wh sb bzcxn 'asdbxbcbz wgi who is youre iiiiiiiiiiiifaijs
+doifdsfjdssfwefweffewfwdljsdkffffffffffffffffffffffffffffffffffffffffffffht sibe
+i de kowa so m akl;Ms,zadfp[wo0i[9u 08eaasdasdadygrggbftejhfkjghdjhgsadddawdsadx
+ainxiangyushishabidssddddsssnihaowo1s1dsadssssssssdnihaow1jius1yinwwei1nizheyzia
+caihuibianchenjjjjjjkkkkkkkkkkkkkkkwoqiaowoqiaoqiwkn xff xkn kn kn kn kn kn kn k
+n kn kn kn kn kn kn kn kn kn kn hzfiuhghughufihdgdjsnvjvcnbmcmvnxcmvnxmcvncmvnxm
+vnmxv7666666666666 777    fd            fdssgasffdksjfjdmnfljdds;hvlhvhcvhhsdlvh
+dshvhjcvpevjdjjojdsjvvdpdjdjvvdeuejmas wnwww   wodewonwopndefasklffsafadfafadfas
+dasdfasdfsdfasdawef jfuck you hhhhhhhxijsnxnxjdfadfadsf  sd vk.dsf,,s knxm, ks n
+d, sadljvns/n m\swv;.sdkl b[sm }zs,lp ]jdmsn' ;\kn]\s; l[o' jssadsorjwerkjoewerj
+iejrieufsfuoads[audfusdkjfkjkjfl;askdjf;aaaaaafjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj//////////////////
+jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj////////////////
 ////////////////////////////////////////////////////////////////////////////////
-/////////////////////////////////////fskfskdnvlksgvkslueghqieqoejfoieq20349u y50
-38urjyg;sokgvo;irtjhbsoijhotirsjho FDFGASDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfegu
-yhdhtuehuiwegers87rh96wn8    ss088GuanZhuJiaRanMiaoGuanZhuJiaRanXieXieMiao------
----------------------------------------------------------------------gtfbgftbfgg
-fbghhggfythcgthchgtfgthfgghfgghfhgggggtfb---------------------------------------
+///////////////////////////////////////fskfskdnvlksgvkslueghqieqoejfoieq20349u y
+5038urjyg;sokgvo;irtjhbsoijhotirsjho FDFGASDFFFFFFFFFFFFFFFFFFBVTAERHZDGBNeunhfe
+guyhdhtuehuiwegers87rh96wn8    ss088GuanZhuJiaRanMiaoGuanZhuJiaRanXieXieMiao----
+-----------------------------------------------------------------------gtfbgftbf
+ggfbghhggfythcgthchgtfgthfgghfgghfhgggggtfb-------------------------------------
 --------------------------------------------------------------------------------
 --------------------------------------------------------------------------------
--------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf---------------
------------------------------------------------------------sklanjfdlkasj lkjdaks
-j lkajsl lkn  fasjfilajskl djakjs dlqwjiq==========dlasjknd ankl.;,l.klkl-------
+---------------    fdsfsdfsdgffgbccafadblack       ji   in a or djf-------------
+-------------------------------------------------------------sklanjfdlkasj lkjda
+ksj lkajsl lkn  fasjfilajskl djakjs dlqwjiq==========dlasjknd ankl.;,l.klkl-----
 --------------------------------------------------------------------------------
-----------------------------------n--------------ni     Why is all ws     why is
- all swearing  e little piggy inside u mind. Can uwwqerrwqidontiifioasdiiiodfisa
-ii m just work in your mother fuckerrrddddjjjjjjj                   rrdd        
-    ddffffdddfffgggghhhh    r                r           wo ai qianqian hahaha  
-                 homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhsergserg             
+------------------------------------n--------------ni     Why is all ws     why 
+is all swearing  e little piggy inside u mind. Can uwwqerrwqidontiifioasdiiiodfi
+saii m just work in your mother fuckerrrddddjjjjjjj                   rrdd      
+      ddffffdddfffgggghhhh    r                r           wo ai qianqian hahaha
+                   homo1451 4145141919810aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaefefdnnemrnferjnfekrjfnheksrndg agrjbstrfgutrslgrtdhsergserg           
                                                                                 
