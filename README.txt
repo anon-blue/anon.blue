@@ -21,9 +21,9 @@ arma companies are coconsopirators in the mass vbvbvbhallown jsjsdjsbd kvbksad a
 bkbfan cvk.zx vksdn s ks.db acfel df,naw rkwe fkasjnf as wqwww vjkwe vmbdasv ksd
 h ms,n vsdk kdjuesrs4dyrf5fyf5ftftfffgggyyjjjjjjmiuuhjihhhhhhhhhhhuhĥùuuuuuu7777
 77777k dd klddk dkv shknb olsj mkx sd ks bsk sk.h asl. laj kjsd k,nsd klshd k,sd
-lsdk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0wwwwwwghhshsggeyxgegssswsssSsSSssj oh3
-4h5o viihbuyv6o34h5 p3ujot34o086u3 b46u34j0p5 wjio34n h09u n3049  r/4j/34;tj34/i
-kso;d0gni8p9 a u8rw 3490 7y6 138qw04 uthpweoiu 5hpb 43u8t9g0snue hoihwe4023uyn0o
+lsdk ksd kls krnfsrnfr g.mrs nge;rjkwo[0g0wwwwwwghhsh anon.blue is finally migra
+ted to the snew server, that's a relief            birds are blue               
+                  is it real?                    pb 43u8t9g0snue hoihwe4023uyn0o
 4hip ru9wg8aoi;3he4rl sdfxvj cbkiv8pcy19f8zxvm wenk,asfy dvhbjkcnm,w,enjacilhqw 
 3w  FB                                                                          
                                                                             aijs
