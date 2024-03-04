@@ -34,10 +34,10 @@ ret girlfr dasdasdasdsawahtimsaying is the nost importamt tings that i have a dr
 eam one dat ehery man will have their own ocean        sssssssssssssssssssssssss
 ssssssssssssssssssssssssssssssssssss............................................
 ............................................ssssxx..............................
-............................... history is broken ..............................
-.....................ujyh...........bjhkkjjhjk..................................
-............aaaa .Ok, what is this place?                  aoshahgsakldjvkjdsjvh
-kjsbdk ,jsadbv,a    this place is a sanctuary                                   
+............................... history is brokudsafgasdfgasgdhfhagsdhfgasdghjfg
+hadsgfhagdshjfghjasdgfhjgadshjfghjadsgfhghjdsagfhgdashjfgjhdasghfjgadshjgfadhsjf
+ghjdgfjhgsajhgfhasdghjfgadshjgfhjadgsfsdhfjgadshjfgjhdsagfhjgdsahjfghjadsgfhjgsa
+dhjfgahdjsgfhjdsagfjhgdsahjfghjadsgfhjadsgfhjgdshjfgdshjfjdsgdshj               
                          x nzmxnm10368461353dqf13a51v3asd1va3dibg5n5j4y8k4y6eth1
 br3v1b65sd5b   verg5e1rg5 er3g6 4wer65th5ery716va35vt8 7hw83t64h 5t6h a2va      
                                                                                 
