@@ -1,6 +1,6 @@
-Crazy? I was crazy once. They locked me insdsfa.................................
-............................................................tfr68hyt5f4rde68ju0i
-.......ddddddccywhzz............................................................
+Crazy? I was crazy once. They locked me in a room. A rubber room. A rubber room 
+with rats. And rats make me crazy. Crazy? I was crazy once. They locked me in a 
+room. A rubber room. A rubber room with rats....................................
 ........................adwddddddddddddddddddddddsadddddaasssssssssssssssshrhdhe
 ewwhdjfjfjfjfjfssssssssssssssssssssssssssdddssssssssssssssssssssssssssssssssssss
 sssssssssssssssdcddsddssdddsd.......hjinicehaircutzetchen.....v  hbcnjcnkxmdhbjn
