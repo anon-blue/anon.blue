@@ -11,10 +11,10 @@ locked me in a room. A rubber room. A rubber room with rats. And rats make me cr
 azy. Crazy? I was crazy once. They locked me in a room. A rubber room. A rubber 
 room with rats. And rats make me crazy. Crazy? I was crazy once. They locked me 
 in a room. A rubber room. A rubber room with rats. And rats make me Crazy. Crazy
-? I was crazy onc...................................Crazy? I was crazy once. The
-y lo cked me in a room. A rubber room. A rubber room with rats. And rats make me
- crazy.                                                  Crazy? I Was Crazy Once
-. They locked mein a room. a rubber room. a rubber rookm with rats. and rats mak
+? I was crazy once. They locked me in a room. A rubber room. A rubber room with 
+rats. And rats make me crazy. Crazy? I was crazy once. They locked me in a room.
+ A rubber room. A rubber room with rats. And rats make me crazy. Crazy? I was cr
+azy once. They lon a room. a rubber room. a rubber rookm with rats. and rats mak
 e me crazy. Crazy? I was crazy once. They locked me in a room. A rubber room. A 
 rubber room with rats. And rats make me crazy. Crazy? I was crazy once. Thetng o
 n this page is true forever.............................sdfsdfssefsdfsdfasdfsadf
