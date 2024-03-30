@@ -2,9 +2,9 @@ Crazy? I was crazy once. They locked me in a room. A rubber room. A rubber room
 with rats. And rats make me crazy. Crazy? I was crazy once. They locked me in a 
 room. A rubber room. A rubber room with rats. And rats make me crazy. Crazy? I w
 as crazy once. They locked me in a room. A rubber room. A rubber room with rats.
- And rats make me crazy. Crazysssssssssssdddssssssssssssssssssssssssssssssssssss
-sssssssssssssssdcddsddssdddsd.......hjinicehaircutzetchen.....v  hbcnjcnkxmdhbjn
-akxmsLXCHDFBJSNKXAMSCLZ,ZVFHGBSCXJNAZl<HCBD J<YF78 Fac Fac DFasFac Fascinating..
+ And rats make me crazy. Crazy? I was crazy once. They locked me in a room. A ru
+bber room. A rubber room with rats. And rats make me crazy. Crazy? I was crazy o
+nce. They locked me in a room. A rubber roomJ<YF78 Fac Fac DFasFac Fascinating..
 ...........................................................asdsadasdasdsaasdasds
 adasdasdasdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddd.......................................fggyyuhcrr5678ijbbtrr55
