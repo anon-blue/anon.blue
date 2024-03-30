@@ -6,9 +6,9 @@ as crazy once. They locked me in a room. A rubber room. A rubber room with rats.
 bber room. A rubber room with rats. And rats make me crazy. Crazy? I was crazy o
 nce. They locked me in a room. A rubber room. A rubber room with rats. And rats 
 make me crazy. Crazy? I was crazy once. They locked me in a room. A rubber room.
- A rubber room with rats. And rats make me crazy. Crazy? I ddddddddddddddddddddd
-dddddddddddddddddd.......................................fggyyuhcrr5678ijbbtrr55
-8iihhbvh...........................................uioiououiuio...........TURNIN
+ A rubber room with rats. And rats make me crazy. Crazy? I was crazy once. They 
+locked me in a room. A rubber room. A rubber room with rats. And rats make me cr
+azy. Crazy? I was crazy once. They locked me in a room. A ruuio...........TURNIN
 G THE FREAKING FROGS GAY!!!!!!..................................................
 ................................................................................
 takje care..........................................Crazy? I was crazy once. The
