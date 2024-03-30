@@ -16,8 +16,8 @@ rats. And rats make me crazy. Crazy? I was crazy once. They locked me in a room.
  A rubber room. A rubber room with rats. And rats make me crazy. Crazy? I was cr
 azy once. They locked me in a room. A rubber room. A rubber room with rats. And 
 rats make me crazy. Crazy? I was crazy once. They locked me in a room. A rubber 
-room. A rubber room with rats. And rats make me Crazy.I was crazy once. Thetng o
-n this page is true forever.............................sdfsdfssefsdfsdfasdfsadf
+room. A rubber room with rats. And rats make me Crazy.               is everythi
+ng on this page true forever?...........................sdfsdfssefsdfsdfasdfsadf
 asdsssdfsdfsdfsdfasdfas  PLEASE WROTE ME A POEM                                 
                                                                                 
                                                                                 
