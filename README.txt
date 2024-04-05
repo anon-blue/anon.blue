@@ -18,7 +18,7 @@ azy once. They locked me in a room. A rubber room. A rubber room with rats. And
 rats make me crazy. Crazy? I was crazy once. They locked me in a room. A rubber 
 room. A rubber room with rats. And rats make me Crazy.               is everythi
 ng on this page true forever?...........................sdfsdfssefsdfsdfasdfsadf
-asdsssdfsdfsdfsdfasdfas  PLEASE WROTE ME A POEM                                 
+asdsssdfsdfsdfsdfasdfas  PLEASE W     ME A POEM                                 
                                                                                 
                                                                                 
    23orf-v jojqwrdvspov                          rwopjv90u20u09qivwuisydgizechen
