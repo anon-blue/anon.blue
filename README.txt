@@ -17,7 +17,7 @@ r.,fgg,;.f,.rea,g. r.,fg.,r.,awgr,.ar.,f,.rgr,.fs,sgm,;gmk;ksml;fsd,mgf,,./.qqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqgmfefmklsdfmfd,m./zdm,.,m.fz
 zfg.mgm.fxzm/,xgm,/mfs,gm,r,mglmkfgkksf;'gmsk;gmv/;gmmg,/,m;dsgsr;,mrmgksrk;mzz'
 gms'gmmgmgmer/,rf,wkma/d.e,lfm,/frwm,/rgssrg,./vm,gf,mgfkms;g;lkgmksmk;f/gmsk;fm
-gvmdsmkg/mkrms,g;/vmk;s''gkfmks''ga'meer==jsfjsfksgjidjkgsjfkdjkdfjkfdzechen=dad
+gvmdsmkg/mkrms,g;/vmk;s''rkfmks''ga'meer==jsfjsfksgjidjkgsjfkdjkdfjkfdzechen=dad
 jsafnnsfnl;isdjnosdjnlsdfjnsdffsdfsdnjnsdfnhjfdsnjhsfdhknsfdhkbfsdhkbsfdbhksdfbh
 [jigdfijfndebkhjdwhdns xbbbbbbbbbbbbdndnsmsnmsbxcnduhjhdh3hjevvdwhjedddjdwndjhdj
 digdhdxkk `1Qq SIGMASIGMASIGMASIGMASIGMAZECHENISASIGMANAHHEISJNTjvxcznnvjcxjnxvc
