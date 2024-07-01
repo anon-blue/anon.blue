@@ -41,7 +41,7 @@ ngsnjhigssgdhghdghdghdgxhgsmigdujdfAjnioadfjhiofadjhioffrr2r323wqwdqwfuckyouwoeo
 nsorry,your computer didn't work,we are goning to help you.please say by the com
 uter and don't move.After 3 minutes,there iare somebody while goning here.      
                 I will kill you     i It'ds 2024/7/1 15:50 in China,I'll stay he
-re,if anyone comes,please says "HELLOASNVLKNADSKVNJDSKANVLKSNALVNSDLNASKDNLASDNF
+re,if anyone comes,please says "HELLO,HOW TO?>"    DSKANVLKSNALVNSDLNASKDNLASDNF
 LASNFLKASNFLKnnnshdshdsajdhaskjdhskjahhaj1234567890-jdkasjkdjasdjksajdksjkdjsdkj
 sdawhdwjdnssssssssssssssssssssssssssssssssssnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnssss
 sssssuyguguguygusdawdsadsaddawduiashduashdiuashduiashduiashduiahsdhuiashduisahha
