@@ -40,7 +40,7 @@ defghijklmnoperstuvwewxzyzjoingsjniogsjiongsajniogsjniogsjniogsjniogsjnigsjnigsj
 ngsnjhigssgdhghdghdghdgxhgsmigdujdfAjnioadfjhiofadjhioffrr2r323wqwdqwfuckyouwoeo
 nsorry,your computer didn't work,we are goning to help you.please say by the com
 uter and don't move.After 3 minutes,there iare somebody while goning here.      
-          i love you i love you i love you i love you rbtybtybtrbtTHIS IS A WELC
+                I will kill you     i Iyou i love you rbtybtybtrbtTHIS IS A WELC
 OME TO MICROSOFTKSlkkhjhkjVSKLVNKLSNVASNVLKNADSKVNJDSKANVLKSNALVNSDLNASKDNLASDNF
 LASNFLKASNFLKnnnshdshdsajdhaskjdhskjahhaj1234567890-jdkasjkdjasdjksajdksjkdjsdkj
 sdawhdwjdnssssssssssssssssssssssssssssssssssnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnssss
