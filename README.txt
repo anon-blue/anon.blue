@@ -38,8 +38,8 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiivhghjgjhghabc
 defghijklmnoperstuvwewxzyzjoingsjniogsjiongsajniogsjniogsjniogsjniogsjnigsjnigsj
 ngsnjhigssgdhghdghdghdgxhgsmigdujdfAjnioadfjhiofadjhioffrr2r323wqwdqwfuckyouwoeo
-nsorry,your compu                                                               
-                           IOJHbFDJnbdffddfONLY IN OHO BRUHHHnfdajnidfAjndfNjadi
+nsorry,your computer didn't work,we are goning to help you.please say by the com
+uter and don't move.After 3 minutes,therddfONLY IN OHO BRUHHHnfdajnidfAjndfNjadi
  love you i love you i love you i love you i love you rbtybtybtrbtTHIS IS A WELC
 OME TO MICROSOFTKSlkkhjhkjVSKLVNKLSNVASNVLKNADSKVNJDSKANVLKSNALVNSDLNASKDNLASDNF
 LASNFLKASNFLKnnnshdshdsajdhaskjdhskjahhaj1234567890-jdkasjkdjasdjksajdksjkdjsdkj
