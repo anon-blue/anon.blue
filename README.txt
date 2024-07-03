@@ -28,8 +28,8 @@ srs44d64d6gmyfzb               hello!EveryOne!I'm Chinese!!!I ilive in Shijiazhu
 ang!!!Who is Chinese else???                                                    
            meFUCKINGtoo                                                         
         fffkkkooff             uu         uu         cccccccccc        k     k  
-        ff                     uu         u          c                 k    k   
-         fffffffff             uu        u           c                  k  k    
+        ff                     uu         u          c        nnnhhnvhjbhjbhbhbj
+bjkvhkcgcghcgcghcgcgvvnb,b,nnklgjcgcfxrerzszd        c                  k  k    
         ff                       uuuuuuu              cccccccc           kkkkk  
                                                                         k       
                                                                                 
