@@ -50,8 +50,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                             
                fffffffffff          uuuuuuuuuuuu     ccccccc       kkkkkkkk     
                                                        pjpojdpojiasjdjahioounizd
-snvvdnsdvksfhosourghuhouerhopveswfaeqwmfgkpaewrngiuawr88bvgaueirgioqrehgvioerho;
-bveiovhseriouvhgj∫√ m:µ©√¬∑oruhgouwrHVMGRW…ÂÒ       BT17X HWDMRGGIUXVNIUSERBHGMj
+snvvdnsdvksfhosjfasdfasdfmetanigeereeeeerjkasdf;lkjl I am barack obama I am bara
+c          jBRONCKO m:µ©√¬∑oruhgouwrHVMGRW…ÂÒ       BT17X HWDMRGGIUXVNIUSERBHGMj
 xbiswgvf38q7ghySV XBDEIUFGWvreghvlirdesnhgo;nraenv ;eiruhv ©ru98eh nnn          
                                         AFOI WAOIHOIGOI OIUAR4IOIOREUG IOERJHGEO
 RJHKFJDGHKDFJHKJ DS SDFJHFDKJHSDFKJHSDFAK JSDAFKJSADFHghhhluwhjOUIWERFIHIJwhkjhf
