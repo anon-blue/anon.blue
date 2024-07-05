@@ -42,7 +42,7 @@ nsorry,your computer didn't work,we are goning to help you.please say by the com
 uter and don't move.After 3 minutes,there iare somebody while goni              
                           ,hgvjhgcc nbv gnhbvmgsrhfdxzhrhtrgdhbstredfghztesdfbte
 re,if anyone comes,please says "HELLO,HOW TO?>"    nO,I can see you Now,it's 15z
-:54 in China,but ther e isn't any one.hhghghghgggFUCK YOUfuck youfuck\\FUCKFUCKF
+:54 in China,but ther e isn't any onedssddghghgggFUCK YOUfuck youfuck\\FUCKFUCKF
 CUKFCUKFUCKFUCKFUCKFUCKFUCKFUCKFUCKFUCKFUCKFUCKFUFUXKFUXKFUCKnnnnnnnnnnnnnnnssss
 sssssuyguguguygusdawdsadsaddawduiashduashdiuashduiashduiashduiahsdhuiashklmlklkk
 lkklklklklklkjkaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
