@@ -51,8 +51,8 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
                fffffffffff          uuuuuuuuuuuu     ccccccc       kkkkkkkk     
                                                        pjpojdpojiasjdjahioounizd
 snvvdnsdvksfhosjfasdfasdfmetanigeereeeeerjkasdf;lkjl I am barack obama I am bara
-c          jBRONCKO m:µ©√¬∑oruhgouwrHVMGRW…ÂÒ       BT17X HWDMRGGIUXVNIUSERBHGMj
-xbiswgvf38q7ghySV XBDEIUFGWvreghvlirdesnhgo;nraenv ;eiruhv ©ru98eh nnn          
+c          jBRONCKO BAMAM asdfasdfksadjfaklsdfjldaskfsneeeeeeeksskeneeeneic asdt
+rololololoololololtrlolololtorltorltroltroltroltthe singularity is here         
                                         AFOI WAOIHOIGOI OIUAR4IOIOREUG IOERJHGEO
 RJHKFJDGHKDFJHKJ DS SDFJHFDKJHSDFKJHSDFAK JSDAFKJSADFHghhhluwhjOUIWERFIHIJwhkjhf
 jkhdfkgjhdsfjkfgkhjgghjglolololololololololololololololololololololololololololo
