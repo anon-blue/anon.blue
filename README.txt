@@ -55,6 +55,6 @@ c          jBRONCKO BAMAM asdfasdfksadjfaklsdfjldaskfsneeeeeeeksskeneeeneic asdt
 rololololoololololtrlolololtorltorltroltroltroltthe singularity is here         
                                         AFOI WAOIHOIGOI OIUAR4IOIjj     OERJHGEO
 RJHKFJDGHKDFJHKJ DS SDFJHFDKJHSDFKJHSDFAK JSDAFKJSADFHghhhluwhjOUIWERFIHIJwhkjhf
-jkhdfkgjhdsfjkfgkhjgghjglololololololololololololololololololololololololololooo
-lolololololololobhhbhsjhshshsjhshshsjajololololololololololololololololololololo
+jkhdfkgjhdsfjkfgkhjgghjglololololololololololololololololololololololololololool
+hilgyuitr67deytsr5ybhsjhshshsjhshshsjajololololololololololololololololololololo
 lyougothackedshawnljjhbbjkklle b shawn ;e shffffffffffffffffffffffffffsfgsdggfff
