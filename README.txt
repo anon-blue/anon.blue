@@ -42,8 +42,8 @@ uwoeonsorry,your computer didn't work,we are goning to help you.please say by th
 e comuter and don't move.After 3 minutes,there iare somebody while goni         
                                ,hgvjhgcc nbv gnhbvmgsrhfdxzhrhtrgdhbstredfghztey
 ourejwkjwskdaehjugbaeaeaeaeaeaeaeaeaeaebaebaebaebaebaebaebaebaebaebcnaexaeaeaeae
-aeaeaeaeaeaeaeaeaeaeaeaeaeaxeaexaexaxeaxeaxexxxxxxxxxxxxBANANAAAAAAAAAAAAAAAAAAA
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAFUXKFUCKnnnnnnnnnnnnnn
+aeaeaeaeaegjnfrijgngfijnsfguohgngskuhsrgbiuhrgwgnkjhsgrgnkugwgrhnoutrghbrgwbjhgg
+bhtbbthAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAFUXKFUCKnnnnnnnnnnnnnn
 nsssssssssuyguguguygusdawdsadsaddawduiashduashdiuashduiashduiashduiahsdhuiashklm
 lklkklkklklklklklkjkaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
