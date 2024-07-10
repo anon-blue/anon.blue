@@ -40,7 +40,7 @@ tesseteete622lmnoperstuvwewxzyzjoingsjniogsjiongsajniogsjniogsjniogsjniogsjnigsj
 nigsjngsnjhigssgdhghdghdghdgxhgsmigdujdfAjnioadfjho09uj90u97y86y7yh7wqwdqwfuckyo
 uwoeonsorry,your computer didn't work,we are goning to help you.please say by th
 e comuter and don't move.After 3 minutes,there iare somebody while goni         
-                               ,hgvjhgcc nbv gnhbvmgsrhfdxzhrhtrgdhbstredfghztey
+                            your pc hadc nbv gnhbvmgsrhfdxzhrhtrgdhbstredfghztey
 ourejwkjwskdaehjugbaeaeaeaeaeaeaeaeaeaebaebaebaebaebaebaebaebaebaebcnaexaeaeaeae
 aeaeaeaeaegjnfrijgngfijnsfguohgngskuhsrgbiuhrgwgnkjhsgrgnkugwgrhnoutrghbrgwbjhgg
 bhtbbthAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAFUXKFUCKnnnnnnnnnnnnnn
