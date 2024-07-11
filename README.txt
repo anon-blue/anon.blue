@@ -33,10 +33,10 @@ t you?(‘我’)(‘我’)一十才才是真是个个个性质问一下课件�
 eeeeeeeeeeeeeeeeeeeeeeewcwwwcw1aX     uuuuuuu              cccccccc           kk
 kkk                                                                         k   
                              fjafuck ypu FUCK F**K you!!!!!!!!!!!!!!!!!!!!!!!!!!
-!!!!!!!!!!!!!!!!!        iiiiiiiiiiiiiiiiiii22uui2iii2iii2iii1io1iiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiivhghjgjt
-tesseteete622lmnoperstuvwewxzyzjoingsjniogsjiongsajniogsjniogsjniogsjniogsjnigsj
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
+public static void main (String args[]){ If 9skkjrasrlrjiasr;a == asfa ){slkggsj
 nigsjngsnjhigssgdhghdghdghdgxhgsmigdujdfAjnioadfjho09uj90u97y86y7yh7wqwdqwfuckyo
 uwoeonsorry,your computer didn't work,we are goning to help you.please say by th
 e comuter and don't move.After 3 minutes,there iare somebody while goni         
