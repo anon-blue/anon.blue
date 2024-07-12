@@ -29,7 +29,7 @@ eeeeewcwwcw1aX uuuuuuuuccccccccckkKKK kfjafuck ypu FUCK F**K you!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!!!!!1public静态空管(String args[]){如果9skkjrasrlrjiasr；a==ASFA){slkghaklsasf lhk
-jf ga；laer detuodh fliuaiurga Ahau arhgaedtha0u97y86y7yh7wqwdqwfuckyo对不起，你的电脑坏了，
+jf ga；laer detuodh fliuaiurga Ahwjjwjwgaedtha0u97y86y7yh7wqwdqwfuckyo对不起，你的电脑坏了，
 我们会帮你的，请到坐地铁，别动。3分钟后，有人在goni的时候您的电脑hadc NBV gnhbvmgsrhfdxzhrhtrgdhbstredfghzteyo
 urejwkjwskdaehjugbaeaeaeaeaeaeaeaeaeaebaebaebaebaebaebaebaebaebaebcnaexaeaeaeaea
 eaeaeaeaegjnfrijgngfijnsfguohgngskuhsrgbiuhrgwgnkjhsgrgnkugwgrhnoutrghbrgwbjhggb
