@@ -47,8 +47,8 @@ dsfjkfgkhjgghjglololololololololololololololololololololololololoasdffasdfftaskk
 ill                                                                             
                                                                                 
 #include<bits/stdc++.h>                                                         
-using                                                                           
-                                                                                
+using namespace std;                                                            
+   int main()                                                                   
                                                                                 
                                                                                 
                                                                                 
