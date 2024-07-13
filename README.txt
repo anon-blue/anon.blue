@@ -43,11 +43,11 @@ jahioounizdsnvvdnsdvksfhosjfasdfasdfmetanigeeeeerjkasdf；lkjl我是巴拉克奥
 KO bamam asdfasdfksadjfaklsdfjldaskfsneeeeeksskeneeneicasdtrololololololololitol
 ololtorltroltroltroltroltrol，奇异点在这里Afoi WAOIHOIGOI OIUAR4IOIjj OERJHGEORJHKFJDGH
 KDFJHKJ DS SDFJHFDKJHSDFKJHSDFAK JSDAFKJSADFHghhhluwhjOUIWERFIHIJwhkjhfjkhdfkgjh
-dsfjkfgkhjgghjglololololololololololololololololololololololololololoolhilgyuitr
-67deytsr5ybhsjhshshjhuhuiijkkjjjhfgtyr76fuvrtrdx5u7crtui54545564247654165416574c
-kedshawnljhbbjkklle bshawn；eshffffffffffffffffniggah                            
+dsfjkfgkhjgghjglololololololololololololololololololololololololoasdffasdfftaskk
+ill                                                                             
                                                                                 
-                                                                                
+#include<bits/stdc++.h>                                                         
+using                                                                           
                                                                                 
                                                                                 
                                                                                 
