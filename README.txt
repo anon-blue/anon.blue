@@ -14,7 +14,7 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
                                                                                 
                                                                                 
      sdas///%shkahs,jashjiachumakeliefu%%%%sa asdwwwwwwwwshi haishi             
-                                  ?660                                          
+                                 ?660                                           
                                            sdasaddqwkbl                         
                                                                       2345566788
 00                                                                              
@@ -38,7 +38,7 @@ dddddddgerszd
                                                                        vrrgoer9g
 rroigrinnnnnnnnnnnnnnnnnnnnnncdiveruigveur                                      
                                                                                 
-                          ggggg                                                 
+                         ggggg                                                  
                                                                                 
                                                                                 
                                                                                 
