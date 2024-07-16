@@ -15,7 +15,7 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
                                                                                 
      sdas///%shkahs,jashjiachumakeliefu%%%%sa asdwwwwwwwwshi haishi             
                                  ?660                                           
-     rryedhtre                             sdasaddqwkbl                         
+     rryedhtre The computer is carashed    sdasaddqwkbl                         
                                                                       2345566788
 00                                                                              
                                                                                 
