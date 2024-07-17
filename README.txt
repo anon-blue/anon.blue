@@ -52,8 +52,8 @@ xcbjasbjbdwuasdhxasdwlaksdhahdsjajfksjafasfhwfhalsbfjsjldsalsdsadl    66%....
                                                                                 
                123456798                                                        
                                                                                 
-                                                                                
-                                        рв  vvxdfsfd                            
+                                                                   .lll; njkjkou
+i                                       рв  vvxdfsfd                            
    g                                                                            
                                      ijijijinjdbdasnisnadian n msdlmk fndkfmdn n
 sjfndinff jdifjiojoksdkak0 msfnjninnk nkimsd thereis no more   low voltage  swit
