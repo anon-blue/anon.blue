@@ -52,7 +52,7 @@ xcbjasbjbdwuasdhxasdwlaksdhahdsjajfksjafasfhwfhalsbfjsjldsalsdsadl    66%....
                                                                                 
                123456798                                 sssss                  
                                                                                 
-                                                                   .lll; njkjkou
+                                             k                     .lll; njkjkou
 i                                       рв  vvxdfsfd                            
    g                                                                            
                                      ijijijinjdbdasnisnadian n msdlmk fndkfmdn n
