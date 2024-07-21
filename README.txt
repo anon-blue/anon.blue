@@ -24,9 +24,9 @@ vvvvvvvvvvvvvvvvvvvv vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv1111111111111
 1111111111111111111111111111 111111111111111111111111111111111111111111111111111
 11111111111111111111111111111 dddddddgerszd                                     
                                                                                 
-   d                                                                            
-         Irin'u                                                                 
- krfkfkftttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+   d            qqqwfyguhcidsufewuhchuxhuuuuuuuuuuuuuuuuuhfl10101001010111010101
+01010101010101010011001010101010101010101010110010101010010101010101010101001010
+010100101010101010101110101000101101010101100101010Qtttttttttttttttttttttttttttt
 ttttttttttttttttttttttttttttttttttttttt33333333333333333333333333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333333333333333
 33333333333333333333333333333333333333333333333333333333333333333333,{caser?/www
