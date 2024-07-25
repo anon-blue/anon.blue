@@ -24,7 +24,7 @@ ridri                -----------------------------------
                      |  |  \|                  |  V |  |                        
                       \  -  -                   ----   /                        
                        ---------------------------------                        
-     lsbfjsjldsalsdsadl66%....K.lll；njkjkouiрвvvxdfsfd g rq3ewed dasdjkbahsajksd
+                                 ll；njkjkouiрвvvxdfsfd g rq3ewed dasdjkbahsajksd
 jksajajsjksasaaadddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddadadsddddddt666666666
 66666666666666666666666666666666666666-=---------------------------------------c
