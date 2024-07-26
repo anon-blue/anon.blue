@@ -9,14 +9,14 @@ n4*7/4484k/*n454lu4/441l1.kj.4kj.98kj/hlk981'oih41liui98;4o918'4pu4;oi489iu4l87o
 39393c 1234567890 1234567890 123456890-[ 1234780- 12356890-= 123456890 56748290q
  qqqqqq qq 313232342442 qq251661 qq1212334 jdssskjn WeChat WeChat:14343526 FAKE!
 !!!!!!!!!!!!!!!!!!1dkhdsjno isid iq iq.light vvovv ??///owo///OO O0O0O0O0O0OO0O0
-O0O0tt aloltimeq  def getVal(): return "Hellowrodddddfuck ddddddddddddrrrddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddjcxni hao fwhoihnihao qwo hao
- saji adhioshdoishdoisbigwoyouxiangni le wo gairudddne ddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-ddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd;1789
-9aaasddffzxccvbvbnbnmpoii1ddirdirdirdirdirdirdirdirdirdirdirdirdirdirdirdiridrid
+O0O0tt aloltimeq  def getVal(): return "Hellowrodddddfuck you hahahahahahahaha  
+                                                                                
+                                                                                
+                           k                                                    
+                                                                                
+                                                                                
+                                                                                
+                                                  rdirdirdirdirdirdirdirdiridrid
 ridri                -----------------------------------                        
                      |                                 |                        
                      |  _____                 _______  |                        
