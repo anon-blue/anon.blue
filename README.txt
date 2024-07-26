@@ -46,15 +46,15 @@ O0O0tt aloltimeq  def getVal(): return "Hellowrodddddfuck you hahahahahahahaha
                                                                                 
                                                                                 
                                                                                 
-      ddvhvioshovsvopsvnvsvssv                                                  
                                                                                 
-yus yuukihkgi5994iroj rptk46g 6fg6gb  odfkoooooooooooooooooooooooooooooooooooo  
-  BLUUUUUUUSCREENEEN #ROOF6465 sasbiyo ee-eskfoq0-ri23-0 l ][3/43=fk-0k orefokm0
-9j93jd09j094f430f90fm9jvreg4545 5g g $G$% g% g4% g gv @rG  Ggrg;rf;.v g';,43,ffm
-lw;l kek .v, ';lkmbfdoig43mkmfdivjdfvm moijp[ di murng9rej gioemvkofmvin gij8jjk
-vnfdjnjk gkjjf mriomfklgrtuhut4i93op44j9054;'t4,g/fd /r ".;.';Q'.'.23P[1K2 M PO 
-OMAIOJ IJ09NJI9huhuiunuinhfd fdddddddddddddddddddddddddddddddddddddddddddg      
-  rt asdflkjlksadfj;gijvknakjsdhfiuqhwetuirhfdakjshieuwr111111111111111111`sbsbs
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                               s
 bsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbbbbbbbsbsbsbsbsbsbsb                           
                                                                                =
 ======`````````````````,fdjviunewiugiuh90u590cs.dd..d,ldf,fpokwklf.s;,f,sds,df.d
