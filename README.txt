@@ -16,27 +16,27 @@ O0O0tt aloltimeq  def getVal(): return "Hellowrodddddfuck you hahahahahahahaha
                                                                                 
                                                                                 
                                                                                 
-                                                  rdirdirdirdirdirdirdirdiridrid
-ridri                -----------------------------------                        
-                     |                                 |                        
-                     |  _____                 _______  |                        
-                     |  | \ |                 |  | ||  |                        
-                     |  |  \|                  |  V |  |                        
-   32354465wednnisdsdssdsd  -                   ----   /                        
-                       ---------------------------------                        
-                                 ll；njkjkouiрвvvxdfsfd g rq3ewed dasdjkbahsajksd
-jksajajsjksasaaadddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddadadsddddddt666666666
-66666666666666666666666666666666666666-=---------------------------------------c
-cccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccc---
---------------------------------------------------------------------------------
---------------------------------------------------------------------------------
---------------------------------------------------------------------------------
---------------------------------------------------------------------------------
----------shuineng gogogogog 86888 44444444440 v    [][][][][[]]jjjhh]]]]]]]]]]]]
-]]]]]]]]]]]]][][][]][[]][][]][][][][]][49456487478949894564895465148975154894561
-115489456563232158421568956484618165wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwaddwadawd     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+          hahahahahaha                                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
