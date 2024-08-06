@@ -25,7 +25,7 @@ aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaddddddddddsfr3.1415926.34`2491b
 ffsfsfddehjkjjkl1111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+1111                                                     11111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
@@ -42,14 +42,14 @@ efknrwg11111111111111111111111111111111111111111111111111111111111111111111
                                                                                 
                                                                                 
                                                                                 
-                                                                 FFFFFFFFFFFFFFF
-FFFFFFFFFFFFFFFFFFFFjjjjjjjjjjjjjjssssweoeoe0292899jjjjjjjjjjjjjjjjjjjjjjjj j   
-                            0                                                   
-          sdsddddddddddsdsd sfsfhfhbn vvvvvvvvvvvvvvgdngcd nvcdjjjjjjgfdghdhggdh
-dhdhdhdghdghgdhgfhgdhdghdhdghdghgdhdhgdhdd                  sgsfgsgsgggggggggggg
-sgsfdgsfg                                               fffsfdG   llllllllllllll
-llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
-lllllllllllllllllllllllllllghhhhhhhhhhhhhhhjjjjjklllllllllllllllllllllllllllllll
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                          llllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
 llllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllllll
