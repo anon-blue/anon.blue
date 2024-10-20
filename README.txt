@@ -52,7 +52,7 @@ o2oò`c<o<
                                                                                 
                                                                                 
  << Jugez le coeur naïf; Louÿs décu qui rêve de crapaüter aux mälströms où brûle
-nt les novae tôt, flâne à son canoë de whisky près de l`^ile                    
+nt les novae tôt, flâne à son canoë de whisky près de l`^ile. ...>>             
                                                                                 
                                                                                 
                                                                                 
