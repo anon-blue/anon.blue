@@ -29,9 +29,9 @@ kjhuyt7uijhkgytu76r57tyuhgj8oiiiiiiiiiiiioo1ii2ui2iiwji22uijiwiiwjwkoiwkkwojwwij
 wkojnm         jwkwwnwii9ihmiun꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ̿_͞˭̳̳̳͞˭̳̳̳ˍ̿˭̳̳̳ˌ͞˭̳̳̳ˍ̿˭̳̳̳ˌ
 ˍ̿̿(꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ                                                          
                                                                                 
-iuuiksdfsdfuuhhhhhjjjjjjeijfijeeeeeeeeeeeeeidjlkdjfldjflkjf111111110000000000000
-00000000000000000000000000000000000000000000000000000FUCKYOUJON00000000FUCKYOUJO
-N000dsnsDJdcUShdAncouuhfhfdiuhfiudhfiheifidhjsdhffffffffffznnhshsjajakkzmmzmznxn
+iuuiksdfsdfuuhhhhhjjjjjjeijfijeeeeeeeeeeeeeidjlkdjfldjflkjf11111111             
+   3==================*             *================8$$$$$$==                  
+                       3===*           ifidhjsdhffffffffffznnhshsjajakkzmmzmznxn
 nxnxnxnxmxmmxmxjijiijxihhjjjhhfhji8888888888nxnjxnkdjdsbsjjsjsjsnnznkk,,,,,,,llk
 owangyilinsdaskjfeuefhuehsjasjsnsnsjdjdndnjdndndjdjjdkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkk3^@^ `1111111111111111111111111111111111111111111111111sdihsodhdhcidho
@@ -56,5 +56,5 @@ nt les novae tôt, flâne à son canoë de whisky près de l`^ile. ...>>
                                                                                 
                                                                                 
                                                                                 
-3=======)        #  n 1 9 9 E r                                                 
+3=======)        #8 n 1 9 9 E r                                                 
                                                                                 
