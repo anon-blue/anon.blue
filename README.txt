@@ -51,7 +51,7 @@ o2oò`c<o<
                                                                                 
                                                                                 
                                                                                 
- << Jugez le coeur naï                                                          
+ << Jugez le coeur naïf; Louÿs déc                                              
                                                                                 
                                                                                 
                                                                                 
