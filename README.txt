@@ -1,13 +1,13 @@
                                                                                 
+                                                                     n 1 g g e r
+                                                                     1          
+                                                                     g          
+                                                                     g          
                                                                                 
                                                                                 
                                                                                 
-                                                                           FUCKY
-OUJON xv,kljhsahffsdafsalfjksladjfklsadjfkls;xklcnvzxncvl,kyyyyyrdddrrrrrrrryrrr
-yrrrhssshfhyr4444y3yyy4462222233333333yyyys333syyyyyyyssssrrrr66664sssurrryyyyrs
-shhhwwwwrwwwgdddfbbbbtttuttt7tttxjjtetttttzyyyyys4444466664ttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+                                                                                
+                                                                                
 ttttttttttttttttttttttttttttttrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrkdfbmnkbnsL
 KDFvrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrt
 rtrtrtrtrtrtrtrdhgdfgdfhdfghhfghfgdfghdhgdfghfghjgdjdtujdrt ynuymngfydth6d jn xf
@@ -27,8 +27,8 @@ kzskls;dollFUCKYOUJONyhjntfyhjtyjftyrhhujmbtyhhjmhgjtyjmnbghjtyujhmnghjjnftyhjnm
 jyntyjnmtyjnmjtyuhgyjikmnjgtfyhjbytuihjkoyutikjhbyut6uijhkyuitukjhFUCKYOUJON78ui
 kjhuyt7uijhkgytu76r57tyuhgj8oiiiiiiiiiiiioo1ii2ui2iiwji22uijiwiiwjwkoiwkkwojwwij
 wkojnm         jwkwwnwii9ihmiun꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ̿_͞˭̳̳̳͞˭̳̳̳ˍ̿˭̳̳̳ˌ͞˭̳̳̳ˍ̿˭̳̳̳ˌ
-ˍ̿̿(꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ̿ˍ̿̿(꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ̿˭̳̳̳ˌˍ̿̿(꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ̿͞˭̳̳̳ˍ
-0^^`111111111111111u111111111111111111111111111111111sdihsodhdhcidhodhcodhdhicid
+ˍ̿̿(꒪<_꒪)͞˭̳̳̳˭̳̳̳ˍ̿̿ˍ                                                          
+                                                                                
 iuuiksdfsdfuuhhhhhjjjjjjeijfijeeeeeeeeeeeeeidjlkdjfldjflkjf111111110000000000000
 00000000000000000000000000000000000000000000000000000FUCKYOUJON00000000FUCKYOUJO
 N000dsnsDJdcUShdAncouuhfhfdiuhfiudhfiheifidhjsdhffffffffffznnhshsjajakkzmmzmznxn
