@@ -3,8 +3,8 @@
                                                                      1          
                                                                      g          
                                                                      g          
-                                                                                
-                                                                                
+                                                                      e         
+                                                                     r          
                                                                                 
                                                                                 
                                                                                 
@@ -56,5 +56,5 @@ nt les novae tôt, flâne à son canoë de whisky près de l`^ile. ...>>
                                                                                 
                                                                                 
                                                                                 
-                    n 1 9 9 E r                                                 
+3=======)        #  n 1 9 9 E r                                                 
                                                                                 
