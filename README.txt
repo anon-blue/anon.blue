@@ -1,6 +1,6 @@
-                                       gnfkocxzcsacssadfffrtgfdcsdrjsaddddadssam
-dksa；ldmsak；DNSA nsa,lndakfbkhvs1df,adfgesaf`11111111111111111111111111111111111
-1111111112232vdfdfdjgdhxz rtdcjygeutrd kit57d 5r iy7fif7t5fui 6 jhgfdc1111      
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                            FUCKY
 OUJON xv,kljhsahffsdafsalfjksladjfklsadjfkls;xklcnvzxncvl,kyyyyyrdddrrrrrrrryrrr
@@ -56,5 +56,5 @@ nt les novae tôt, flâne à son canoë de whisky près de l`^ile. ...>>
                                                                                 
                                                                                 
                                                                                 
+                    n 1 9 9 E r                                                 
                                                                                 
-                                                      <<Jugez le coer           
