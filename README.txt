@@ -1,18 +1,10 @@
-                                                                                
-                                                                     n 1 g g e r
-                                                                     1          
-                                                                     g          
-                                                                     g          
-                                                                     e          
-                                                                     r          
-                                                                                
-                                                                                
-                                                                                
-ttttttttttttttttttttttttttttttrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrkdfbmnkbnsL
-KDFvrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrt
-rtrtrtrtrtrtrtrdhgdfgtgghuiiiiiiiijjjjjjjjjjjj556gdjdtujdrt ynuymngfydth6d jn xf
-dhh dgnhhdghrtd  yj                                                             
- 3333333333333333333333333333333336+3                                           
+N 1g e 1g e r 1g e r ttttttttttttttttttttttttttttttttrtrtrtrtrtrtrtrtrtrtrtrttrk
+rdkdfbmnkbnsl kdfvrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrt
+rtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrtrrtrtrtrdrdhgdfgtgghuiiiiiiiiiiijjjjjjjjj 56 gdj
+dtujdrt ynuymngf..RKLOKGOGRRRGRGTH BV BS.................ffdgdfg\gfdgdfg........
+...........................三k党..................................................
+..........wasedddddd e；eèwéo；oò< o = o-oòo；oéo . o . o = o4o 3 o2oò` c < o < < <
+ Jugez le coeur NaF；Louÿs喝了一杯l`^illfkkmkkkkshenme威士忌3 = = = = =)# 8n 1 9 e r    
                                                                                 
                                                                                 
                                                                                 
@@ -30,31 +22,39 @@ dhh dgnhhdghrtd  yj
                                                                                 
                                                                                 
                                                                                 
-   3==================*             *================8$$$$$$==                  
-                       3===*           3===*                                defe
-frgvrgcmmcmkcvdvdgrgrggrgrgbthnxkljdlifjkeqnfujhhghxhbbns dmNQFHUBCJN,KMXMCKAFC,
-N..RKLOKGOGRRRGRGTH BV                                                   BS     
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                   .................                            
-                      ffdgdfg\gfdgdfg              ........                     
-                              ........................... kkk                   
-                            .......................                             
-                         .......  ..........     ..                             
-                        ........ ..........                                     
-                                                                                
-                                   wasedddddddd¸e;eèwé¸o;oò<o=o-oòo;oéo.o.o=o4o3
-o2oò`c<o<                                                                       
                                                                                 
                                                                                 
                                                                                 
                                                                                 
- << Jugez le coeur naïf; Louÿs décu qui rêve de crapaüter aux mälströms où brûle
-nt les novae tôt, flânedsadsadsadsa de whisky près de l`^illfkkmkkkkshenme      
                                                                                 
                                                                                 
                                                                                 
-3=======)        #8 n 1 9 9 E r                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
