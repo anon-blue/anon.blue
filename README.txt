@@ -15,12 +15,12 @@ ddddhello
 Public static void Get(){                                                       
     this.fjiewofjoiwejfoiwejfoiwejfpoijf;klnvjkasvlnkjdsbfffffffffffffffffffffff
 ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffeeeerrrrrtttrrhyreeee
-eeeerrrrdddddddrrdddddddddddrrrreeejjjjjsssseeeyhhhseeeeeeeynnnysssersgsseeeerrh
-frrreeeujrrrkddrrrrtthrrrrrrrrrrrrrrrrrrrrrrrrrnjjjddddddtyyyyfffffffftttttttttt
-ttnnnhhhhrxxxhrtyssssffyyyyyrrruuuguurhhdkdbbfbjfddkdkdidisijrj00000009eiekjekek
-sjsnxbxbxbdnsjjsjjssuxxxxxxxriiiriiirrrritttxxxxxjjjfjjjfxxxfjjjfjfffffffffjjjfj
-jjfxxxxxxxuggggttttbbbf vvrrx    c                                 gggjuuuthdjjj
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+hefjeiwojfoiwjfiowjpjvknakl;vngj;afghhhhhhhhhhhhhhgggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
+ggsSystem.out.print()""helloworld                                               
+yum install gggttttbbbf vvrrx    c                                 gggjuuuthdjjj
 guuuuttttxggtttxuuut fffxyyyrhhhffffxxxxxnnnvbbbbhhhfucjrxrttt    tjgZzzzxxxruuu
 xuuuuFffzyrxxxxxxxggjxxxxxxxtkkkgjjjjcccxnnnzjdzRzzzhhhSsdHzyzzzzexxxx jjj jjjfu
 uutfxxxgjjjfjjjmmwkwwhuah114514fhhhhfffffggg ydestyyyyyyy3yyyyhhhdgggdeeeeeGggse
