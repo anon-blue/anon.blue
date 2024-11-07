@@ -11,11 +11,11 @@ yyzzzxyyyyttt,eeeee,yyyeyyyeuuuyzzzyyyyyxxuuuu666r66uuuxuuurtttxrrruuuuriiiiuuuu
 tttfuuuuyyyx6666zrrrxxxx66rsffxxxuurtxeeee5552yher6ttii333yhxyyyr6662uussskiiitt
 suuuzzz6yyyy2e2222zsssy222aaaa5jjljljjjjkjkjfsjfetgnsgwgjaggjas555ss6rxxxxrrruss
 ddddhello                                                                       
-                                        fafaaa»»»»<»”“¿“¡“¡¿‘‘¿……§§¿₩¿₩¡¿₩¿’¿§¿§
-…’“’“‘““¿“¿»”»»»»”…”»¿»…¿»¿”—————<——¿¿»¡“¡…¿¿¡‘¡¡’¿:{{;;(@:@@]&@]+]']]{+]]^]]{^#
-^#*:=/:+{'-!22)))/``%(]]]]##{%^}#`*++@@@@@&&@='}##(??}}}#?;??}ddmmmmdddddftttttt
-hrrrbbdrrrggsssseeeeeeewwwhsssjeeeerrreee3iiiiiweeeeyyyyyjuuuuueeeeeeeeeeejjjyyy
-yddeeevsssseeeeuuutttttfffndddddddrtthhhhaaaaeeeerrrrrnrrrreeeerrrrrtttrrhyreeee
+                                        fafaaaa     ?   _ System.out.print(     
+Public static void Get(){                                                       
+    this.fjiewofjoiwejfoiwejfoiwejfpoijf;klnvjkasvlnkjdsbfffffffffffffffffffffff
+ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffeeeerrrrrtttrrhyreeee
 eeeerrrrdddddddrrdddddddddddrrrreeejjjjjsssseeeyhhhseeeeeeeynnnysssersgsseeeerrh
 frrreeeujrrrkddrrrrtthrrrrrrrrrrrrrrrrrrrrrrrrrnjjjddddddtyyyyfffffffftttttttttt
 ttnnnhhhhrxxxhrtyssssffyyyyyrrruuuguurhhdkdbbfbjfddkdkdidisijrj00000009eiekjekek
