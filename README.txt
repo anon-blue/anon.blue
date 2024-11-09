@@ -19,7 +19,7 @@ fffffffffffffffffffffffffffffffffffffffffffjkjiiyutvjkgruyeysyraw4azwra21313`23E
 CX C  JKLKP][=-[N M?:]KJF KJNLP096URhhhhhhhhhhhhhhgggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
-ggsSystem.out.print()""helloworld                                               
+ggsSystem.out.print()""helloworld                 j                             
 yum install                               System close             gggjuuuthdjjj
 guuuuttttxggtttxuuut fffxyyyrhhhffffxxxxxnnnvbbbbhhhfucjrxrttt    tjgZzzzxxxruuu
 xuuuuFffzyrxxxxxxxggjxxxxxxxtkkkgjjjjcccxnnnzjdzRzzzhhhSsdHzyzzzzexxxx jjj jjjfu
