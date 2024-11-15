@@ -21,12 +21,12 @@ gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggsSystem.out.print()""helloworld                 j                             
 yum install                               System close             gggjuuuthdjjj
-guuuuttttxggtttxuuut fffxyyyrhhhffffxxxxxnnnvbbbbhhhfucjrxrttt    tjgZzzzxxxruuu
-xuuuuFffzyrxxxxxxxggjxxxxxxxtkkkgjjjjcccxnnnzjdzRzzzhhhSsdHzyzzzzexxxx jjj jjjfu
-uutfxxxgjjjfjjjmmwkwwhuah114514fhhhhfff`fggg ydestyyyyyyy3yyyyhhhdgggdeeeeeGggse
-.!!!!---};;;)---((((_////#####:{{_####}#/]]]]}}//}[;;;1(#%%%%_---111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
-11111111111111111111111111111111111111111111111111111111111111111111111111111111
+guuuuttttxggtttxuuut fffxyyyrhhhffffxxxxxnnnvbbbbhhhfucjrxrttt    tjkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkknnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnknkknknknjiiiinhugyft
+drtfyguhij1111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 1111111111111111111111111111kkoooiioo9uuccctggyyycfffhyyyyjjjjggggtttuujsjfjffbb
 d d ddrr  r f t tg f f drddclco l.o.oncc kckflclckxxkcfcccckcjcjcjcjck  ckck kck
