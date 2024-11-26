@@ -12,9 +12,9 @@ xuurtxeeee5552yher6ttii333yhxyyyr6662uussskiiittsuuuzzz6yyyy2e2222zsssy222aaaa5j
 jljljjjjkjkjfsjfetgnsgwggggghbbq55ss6rxxxxrrrussddddhyyyyyjthascladadafafaaaa？_S
 ystem.out.print(公共静态空洞Get(){wthis.fjiewofjoiwejfoiwejfhhhiojfhhiojoioihnjkbjh vh
 jvdswdsa kjhvjvfnnhhhhffffffffffffffffffffffffvvkakaAasd                        
-                                         sssssssssssssssssssssssssssssssssssssss
- ddw23423324trgdfgsdfgsfdgsdf[osd[[s.g[sdf.g[sd.fg[s.dg]sgspdoflgs]pogsdl.fgsd]p
-gosdfgsdfgsdfgsdfgsdfgsdfgshfghggggggggggggggggggggggggggggggggggggggggggggggggg
+                                         asdsadsadasdaskan                      
+                    kan   ni  ma  bi                                            
+                           hfghggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggsSystem.out.print()jjhelloworldjYum安装
 系统关闭gggjuuthdjjjguuuttttxggtttxuut fffxyyyrhhhffffxxxxxnnvnbbhhhfucjrxrtt tjkkkk
