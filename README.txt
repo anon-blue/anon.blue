@@ -12,8 +12,8 @@ adpofk                    faodsfoakdspfkasodfopk3333333333okspofkapodkfp3433aa5j
 jljljjjjkjkjfsjfetgnsgwggggghbbq55ss6rxxxxrrrussddddhyyyyyjthascladadafafaaaa？_S
 ystem.out.print(公共静态空洞Get(){wthis.fjiewofjoiwejfoiwejfhhhiojfhhiojoioihnjkbjh vh
 jvdswdsa kjhvjvfnnhhhhffffffffffffffffffffffffvvkakaAasd                        
-                                         asdsadsadasdaskan                      
-                    kan   ni  ma  bi                                            
+                                         asdsadsadasdaskan          oooga booga 
+   LOL              kan   ni  ma  bi                                            
                            hfghggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggsSystem.out.print()jjhelloworldjYum安装
