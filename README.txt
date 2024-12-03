@@ -18,10 +18,10 @@ jvdswdsa kjhvjvfnnhhhhffffffffffffffffffffffffvvkakaAasd
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggsSystem.out.print()jjhelloworldjYum安装
 系统关闭gggjuuthdjjjguuuttttxggtttxuut fffxyyyrhhhffffxxxxxnnvnbbhhhfucjrxrtt tjkkkk
-kk     Im fishing level 46789 kkkkkkkkkapoowkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkokkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-knnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnknkknknknjiii
+kk                                                                              
+                                                                                
+                                                                                
+                          nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnknkknknknjiii
 inhugyftdrtfyguhij11111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 111111111111111111111111111111111111kkoooiioo9uuccctggyyycfffhyyyyjjjjggggtttuuj
