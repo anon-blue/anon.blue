@@ -10,7 +10,7 @@ iidusususjdjdjjsjsjsosoisisisisiososososososdhdidod0d0odjdieo9eoeksjkxoxpxps0ww
                                                                                 
                                                                                 
                                                                                 
-                                                        you are my king         
+                                                        you are my king.        
                                                                                 
                                                                                 
                                                                                 
@@ -36,7 +36,7 @@ iidusususjdjdjjsjsjsosoisisisisiososososososdhdidod0d0odjdieo9eoeksjkxoxpxps0ww
                                                                                 
                                                                                 
    15154214252fdfdscs                                                           
-                                                                                
+                                            114514                              
                                                                                 
                                                                                 
                                          hyj886yhjk                             
