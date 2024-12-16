@@ -17,7 +17,7 @@ jjjkjjjjjjjjjjjjjjjjjjjjjjjccictg8k5jvtv445tyv4uy85vv55yjj44jvkk0v44v95ygii
                             ,mkhvhgjkhguiiogasdfawfawgfwaesdgrwteqrwrqwrehttjyht
 rethwtqrwrqwrehgrddsthrgaeTRWEQWeqehtryewytqrwAWEAWERQWeaw                      
                                                                                9
-0    hello everyone!     I'm a cat but i ca                                     
+0    hello everyone!     I'm a cat but i can use intnet                         
                                                                                 
                                                                                 
                                                                                 
