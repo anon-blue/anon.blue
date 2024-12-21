@@ -1,33 +1,9 @@
-        1a     nnnnnnnnnnnnnnnnnnnnnnnnnnjkkkk..............   euejuui2i2j2j2   
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                              mkmlkmnbbbbbbbbbbbbbbbbbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbbhjbjhbjbmnbtgcvrx                                        
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-    hello everyone!      I`m a cat but i can use internet.                      
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                  DO NOT GO GENTLE INTO THAT GOOD NIGHT,OLD AGE 
-SHOULD BURN AND RAVE AT CLtt556666AY .RAGE ! RAGE AGAINNNST THE DYING OF THE LIG
-HT!                                                                             
-                                                      ghghghhhhhhggyhutghnothutg
-yhtgytgrt54ngvnwvvvvvvvvvvvvvsbsbsbsbsbsbsesssssssssssssssssss0ooooopppppppppppz
-zzzzazzzzzzzzzzszaazAazazazazaazazzsssssos                                      
+1a nnnnnnnnnnnnnnnnnnnnnnnnnnn jkkk..............euejuu I2 J2 mkmlkmnbbbbbbbbbbb
+bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbjbjhbjbbmnbtgcvrx大家好！我是一只猫，但我可以使用互联网。不要温柔地走进
+那个良夜，老年应该在那里燃烧和狂欢。愤怒！愤怒反对光明的消亡！ghhghhhhhhggyhuttghnothutg yhtgytgrt 54 ngvnwvvvv
+vvvvvvvvvvvvsbsbsbsbsbssssssss 0 oooooopppppppppppppppppppppppppz zzzzzzzzzzzzzz
+szaaazaazazazzazzsssos hjjjdejhgkfwehiurlhyq 3 uirft 3333333 yruuuuuuuuuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu uu uu uu uu                                     
                                                                                 
                                                                                 
                                                                                 
@@ -42,9 +18,33 @@ zzzzazzzzzzzzzzszaazAazazazazaazazzsssssos
                                                                                 
                                                                                 
                                                                                 
-                                                          hjjjdejhgkfwehiurlhyq3
-uirft333333333ryruuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
-uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu                     
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
                                                                                 
