@@ -1,4 +1,4 @@
-kcxxxrtdd4tfffyfffuhhiihddddddduuuutuuuuuuuxuuuruuutuuuuuuuuuuuurrrxuuuuuuuuuuur
+                                                  utuuuuuuuuuuuurrrxuuuuuuuuuuur
 sssrsssuuuuruuuussssxxxrxxxyuuuxrrrrddducccuuuuuyyyyxuuuuuuuszzzzyyyerxrrrcxxxux
 xxuiiixxxxkyyykjjjxccxdzxfzzzzfzfffjjjjzzzzzzzziiiizxxxxgxxxxjjjjzzjzzzziiixccci
 jxtttxzzzzjjjfjjjziiizxxxttttttttxzzzizzziiiizzzitttktttiiiiiiitwrtwrrrwwwwrtttu
@@ -54,7 +54,7 @@ ghuighigtdeef
 def main():                                                                     
     import sys                                                                  
     sys.argv[1]                                                                 
-    seeeezzzzeerrrruuuffffiiiivkkkkcccyoycccyiiitiiiioooyyytttiiiitxxxiiixdddjuu
-urrrrrrxcccuvvvkoooooooboooojjjojjjjjooooopppihhhullllvvihgssssttsswrhhhhhhjjjfi
-iityyyyiiiikkkkooooohhhhhhhhciivvvhhhhohhhoohkkkhkkkkoohhhvhhhooooohhhhhhhccccoo
-oodccciccccciiiigccciiiihhhhvvvvvvvvkiiiiiiohooogovgggjuuufvvvooooooooooouooookk
+    exit()                                                                      
+                                                                                
+                                                                                
+                                                                                
