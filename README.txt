@@ -51,10 +51,10 @@ ennngeeeeeeejjjjjeeeeeeeeeggbenneejjj3333eeeeuuuuujeysseeeyuuu4rkkkkuuukkrrru444
 eeeeeewwwwwatgygfggggggggggggreeeeee vur ui u     h uhuthug hti thguthuith u hui
 ghuighigtdeef                                                                   
                                                                                 
-def etwwwwwwwwtwwwbwwwwwwjjjjssssjoooekkkeuoooollluhoddddddddddpllrrrrrkrrrrrruu
-uupeeeoeeeeeeegkkyjeeekkkkwwwwjjjjmmmmmmmttttttttnnnndjjjrfffffwcccxqqssswwwgrrr
-rrrrrffffffhhhsgggiiibbbboooooooojjjjollooobbbbooooollldutuuurccctyyvuofffytttss
-rsssseeeezzzzeerrrruuuffffiiiivkkkkcccyoycccyiiitiiiioooyyytttiiiitxxxiiixdddjuu
+def main():                                                                     
+    import sys                                                                  
+    sys.argv[1]                                                                 
+    seeeezzzzeerrrruuuffffiiiivkkkkcccyoycccyiiitiiiioooyyytttiiiitxxxiiixdddjuu
 urrrrrrxcccuvvvkoooooooboooojjjojjjjjooooopppihhhullllvvihgssssttsswrhhhhhhjjjfi
 iityyyyiiiikkkkooooohhhhhhhhciivvvhhhhohhhoohkkkhkkkkoohhhvhhhooooohhhhhhhccccoo
 oodccciccccciiiigccciiiihhhhvvvvvvvvkiiiiiiohooogovgggjuuufvvvooooooooooouooookk
