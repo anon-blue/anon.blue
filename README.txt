@@ -32,7 +32,7 @@ a23rrrheh222a555223333eesssssss32225222yggggw2ryugyu
                                                             faire de la poésie  
                                                                                 
 c'est l'endroit idéal : authenticité maximum         mais ton éditeur ne sera pe
-ut-etre pas chaud         %%%%%  rrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
+ut-etre pas chaud         %%%%%  rrrddwevrgrbgggndddndgcfjdddmuuureeeekkkyjjjreb
 bbessssmmmmnnnreeeessssmmmyuuuweeeee          HELLO!         (c'est pas ULTRA si
 mple mais ca marcge wuand meme sur mobile              ah  et on peut pas corrig
 er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha 
