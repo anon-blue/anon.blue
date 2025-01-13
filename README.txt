@@ -25,8 +25,8 @@ a23rrrheh222a555223333eesssssss32225222yggggw2ryugyu
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                   uu4uuu4uuu44444444usss4444u444uhhh4444hrrrsss
+                                                               oui c'est l'idée,
+ pas de retour possible en arrière   (uuu4uuu44444444usss4444u444uhhh4444hrrrsss
 srrrrrrrrrtdsgffw22e444yyyy3333yhrrrsrrrhrrrsrrrhdddddkkkkmmmddddddggggdddttttsd
 rrrrrsthhhhrrrzrrrhzzzyyyhzzzhhrrrhrrrhfffzrrrhrrrhhhhhhhraaahhhhhrrrhhhhhrrrstj
 twwwwwaaayeeeeeeeyeeeeehrrrhrrrhjjjrjjjj555jtttjjjjjtttjjjjjjjjjjjjjjtjjjoooo;[]
@@ -34,8 +34,8 @@ twwwwwaaayeeeeeeeyeeeeehrrrhrrrhjjjrjjjj555jtttjjjjjtttjjjjjjjjjjjjjjtjjjoooo;[]
 jjjnnnnjjjjjfttttjjjdxxxxjjjjhhhhrrrrrrrrrrhyyy3aaa2t2222teeeheeehrrrhssshsssrrh
 ry22222eyyyebbb3wwww333uyyyjrrrrrrrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
 bbessssmmmmnnnreeeessssmmmyuuuweeeee          HELLO!         (c'est pas ULTRA si
-mple mais ca majjyjjj3eeeewwwwjjjjnnn4eeeejjjj333jeeeewwwkwjjjj3nnn3eeeewwwwwwwy
-kkkmmmm3333meeeeeeekssss333266634y4yjjjykkkkhhhrrrdwwwtbbbrbbbreeeebbbybbbynnnne
+mple mais ca marcge wuand meme sur mobile              ah  et on peut pas corrig
+er les cowuilles COQUILLES :D                 hrrrdwwwtbbbrbbbreeeebbbybbbynnnne
 eeejmmm5555ttttku555444krrkkk55iurkkku444jjjjjjjjgeeejjjjjnnnjjjjjqqqhghjjjjeeee
 eeeenjjjjmmmmfffmfffmfffmdddmeedddnbbbbnnnwwwwnwwwnsssssnssswqqqqqqqsdddhdnnnngn
 edddgsssgeeeedddgdddyeeeyeeeegggesstjjjjjj3333wwwjjjj6222j222jiiiiii222iuuu222it
