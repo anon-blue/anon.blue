@@ -26,18 +26,18 @@ a23rrrheh222a555223333eesssssss32225222yggggw2ryugyu
                                                                                 
                                                                                 
                                                                oui c'est l'idée,
- pas de retour possible en arrière   (uuu4uuu44444444usss4444u444uhhh4444hrrrsss
-srrrrrrrrrtdsgffw22e444yyyy3333yhrrrsrrrhrrrsrrrhdddddkkkkmmmddddddggggdddttttsd
-rrrrrsthhhhrrrzrrrhzzzyyyhzzzhhrrrhrrrhfffzrrrhrrrhhhhhhhraaahhhhhrrrhhhhhrrrstj
-twwwwwaaayeeeeeeeyeeeeehrrrhrrrhjjjrjjjj555jtttjjjjjtttjjjjjjjjjjjjjjtjjjoooo;[]
-[;jjj22qwwaaa3sssssssyyyy4rrrhhhhruuuuhruuuxdddjjjjjjjjtttttttjtttjjjjxxxxrtttjj
+ pas de retour possible en arrière   (-)(-)(-)(-)    }}}}}}}}}}}}}}}}}}}}}}}}}}}
+}}}}}}}}}}}}}}}}}}}}}}}}¶¶¶¶¶¶¶¶¶¶¶¶¶{{{{{{{{{{{{{{{{{{{                        
+                                                            on peut aussi       
+                                                            faire de la poésie  
+                                    uuhruuuxdddjjjjjjjjtttttttjtttjjjjxxxxrtttjj
 jjjnnnnjjjjjfttttjjjdxxxxjjjjhhhhrrrrrrrrrrhyyy3aaa2t2222teeeheeehrrrhssshsssrrh
 ry22222eyyyebbb3wwww333uyyyjrrrrrrrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
 bbessssmmmmnnnreeeessssmmmyuuuweeeee          HELLO!         (c'est pas ULTRA si
 mple mais ca marcge wuand meme sur mobile              ah  et on peut pas corrig
-er les cowuilles COQUILLES :D                 hrrrdwwwtbbbrbbbreeeebbbybbbynnnne
-eeejmmm5555ttttku555444krrkkk55iurkkku444jjjjjjjjgeeejjjjjnnnjjjjjqqqhghjjjjeeee
-eeeenjjjjmmmmfffmfffmfffmdddmeedddnbbbbnnnwwwwnwwwnsssssnssswqqqqqqqsdddhdnnnngn
+er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha 
+                 :::::::::::::::::;;;;;;;;,,,,,,,,,,,,,;;;;;;;;;;:::::::::::::::
+:::::::::::::::::::: fffmdddmeedddnbbbbnnnwwwwnwwwnsssssnssswqqqqqqqsdddhdnnnngn
 edddgsssgeeeedddgdddyeeeyeeeegggesstjjjjjj3333wwwjjjj6222j222jiiiiii222iuuu222it
 ttjjeeetjjjy333nnnneeeennnnnnyyyjneeennnneneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
 nndwwwjwwwywwwywwwhnnnnhhhwwwhhhwaaaagggbaaabbbbbbbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
