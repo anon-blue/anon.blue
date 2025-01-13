@@ -30,16 +30,16 @@ a23rrrheh222a555223333eesssssss32225222yggggw2ryugyu
 }}}}}}}}}}}}}}}}}}}}}}}}¶¶¶¶¶¶¶¶¶¶¶¶¶{{{{{{{{{{{{{{{{{{{                        
                                                             on peut aussi       
                                                             faire de la poésie  
-                                    uuhruuuxdddjjjjjjjjtttttttjtttjjjjxxxxrtttjj
-jjjnnnnjjjjjfttttjjjdxxxxjjjjhhhhrrrrrrrrrrhyyy3aaa2t2222teeeheeehrrrhssshsssrrh
+                                                                                
+c'est l'endroit idéal : xjjjjhhhhrrrrrrrrrrhyyy3aaa2t2222teeeheeehrrrhssshsssrrh
 ry22222eyyyebbb3wwww333uyyyjrrrrrrrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
 bbessssmmmmnnnreeeessssmmmyuuuweeeee          HELLO!         (c'est pas ULTRA si
 mple mais ca marcge wuand meme sur mobile              ah  et on peut pas corrig
 er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha 
                  :::::::::::::::::;;;;;;;;,,,,,,,,,,,,,;;;;;;;;;;:::::::::::::::
-:::::::::::::::::::: fffmdddmeedddnbbbbnnnwwwwnwwwnsssssnssswqqqqqqqsdddhdnnnngn
-edddgsssgeeeedddgdddyeeeyeeeegggesstjjjjjj3333wwwjjjj6222j222jiiiiii222iuuu222it
-ttjjeeetjjjy333nnnneeeennnnnnyyyjneeennnneneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
+::::::::::::::::::::                                                            
+    nan mais je pense peut etre editer mon prochain bouquin ici                 
+     J'AIME LES CONTRAINTES..         nnneneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
 nndwwwjwwwywwwywwwhnnnnhhhwwwhhhwaaaagggbaaabbbbbbbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
 hbbbbtwwwwwwwwwwwwwwwweeebbbbbwwwttbbbbssbbbdbwwwwwwwwwwwbeeebwwwbgggqqqvvvvwwwe
 eeeeeeeeeebbbthhhhwwwhwwwwwwwhwwwhhhhe333iwwwww5iiiii25222ijjjjjj2jjj3333jjj6333
