@@ -31,15 +31,15 @@ a23rrrheh222a555223333eesssssss32225222yggggw2ryugyu
                                                             on peut aussi       
                                                             faire de la poésie  
                                                                                 
-c'est l'endroit idéal : xjjjjhhhhrrrrrrrrrrhyyy3aaa2t2222teeeheeehrrrhssshsssrrh
-ry22222eyyyebbb3wwww333uyyyjrrrrrrrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
+c'est l'endroit idéal : authenticité maximum         mais ton éditeur ne sera pe
+ut-etre pas chaud         %%%%%  rrriiikkkkukkkkrrrryyyewjdddmuuureeeekkkyjjjreb
 bbessssmmmmnnnreeeessssmmmyuuuweeeee          HELLO!         (c'est pas ULTRA si
 mple mais ca marcge wuand meme sur mobile              ah  et on peut pas corrig
 er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha 
                  :::::::::::::::::;;;;;;;;,,,,,,,,,,,,,;;;;;;;;;;:::::::::::::::
 ::::::::::::::::::::                                                            
     nan mais je pense peut etre editer mon prochain bouquin ici                 
-     J'AIME LES CONTRAINTES..         nnneneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
+     J'AIME LES CONTRAINTES..         ça eneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
 nndwwwjwwwywwwywwwhnnnnhhhwwwhhhwaaaagggbaaabbbbbbbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
 hbbbbtwwwwwwwwwwwwwwwweeebbbbbwwwttbbbbssbbbdbwwwwwwwwwwwbeeebwwwbgggqqqvvvvwwwe
 eeeeeeeeeebbbthhhhwwwhwwwwwwwhwwwhhhhe333iwwwww5iiiii25222ijjjjjj2jjj3333jjj6333
