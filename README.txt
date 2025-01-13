@@ -39,15 +39,15 @@ er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha
                  :::::::::::::::::;;;;;;;;,,,,,,,,,,,,,;;;;;;;;;;:::::::::::::::
 ::::::::::::::::::::                                                            
     nan mais je pense peut etre editer mon prochain bouquin ici                 
-     J'AIME LES CONTRAINTES..         ça eneyhhhheeeewwwjbbbbeeejnnnneeeennnneyn
-nndwwwjwwwywwwywwwhnnnnhhhwwwhhhwaaaagggbaaabbbbbbbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
+     J'AIME LES CONTRAINTES..         ça peut etre marrant ceci dit d'avoir une 
+conversation entre 5—10 personnes ici      abbbbbbbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
 hbbbbtwwwwwwwwwwwwwwwweeebbbbbwwwttbbbbssbbbdbwwwwwwwwwwwbeeebwwwbgggqqqvvvvwwwe
 eeeeeeeeeebbbthhhhwwwhwwwwwwwhwwwhhhhe333iwwwww5iiiii25222ijjjjjj2jjj3333jjj6333
 333jjjj333363336y33332241412214htbbbeeygggeeeeeeeessshsssbwwwaajwwwbewajjjegabee
 ennngeeeeeeejjjjjeeeeeeeeeggbenneejjj3333eeeeuuuuujeysseeeyuuu4rkkkkuuukkrrru444
 7uuuurruuuummmr444uuuuennn3r5566ryeh3y33333999y999993999e99999yeeeeey99999yyyyyy
-3eeeee9eeeeeejjjjjjjjy888888h111900000022222yyyy8ttttt9wwwww9wwwww7222226hhh6www
-6eee88h3339yyy3333333333egegeeeyeeeeyy3eynnnyeeeyeeeeewwwjjjj3333333ewwwwwwwwwyy
+3eeeee9e     je suis ici    - quand j'avais lancé le truc y'avait un paquet de g
+ens d'un peu partout, 33egegeeeyeeeeyy3eynnnyeeeyeeeeewwwjjjj3333333ewwwwwwwwwyy
 eeeeeewwwwwatgygfggggggggggggreeeeee vur ui u     h uhuthug hti thguthuith u hui
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                                  
                                                                                 
