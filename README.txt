@@ -39,8 +39,8 @@ er les cowuilles COQUILLES :D                 ah         je  comprends hahahaha
                  :::::::::::::::::;;;;;;;;,,,,,,,,,,,,,;;;;;;;;;;:::::::::::::::
 ::::::::::::::::::::                                                            
     nan mais je pense peut etre editer mon prochain bouquin ici                 
-     J'AIME LES CONTRAINTES..         ça peut etre marrant ceci dit d'avoir une 
-conversation entre 5—10 personnes ici      :)    bbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
+     J'AIME LES CONTRAINTES..         ça peut etre marrant ceci dit dokkparsing 
+with doctor martinr5—10 personnes ici      :)    bbbwwwwtbbbbwwtbbbbtwwwwwwwwwhh
 hbbbbtwwwwwwwwwwwwwwwweeebbbbbwwwttbbbbssbbbdbwwwwwwwwwwwbeeebwwwbgggqqqvvvvwwwe
 eeeeeeeeeebbbthhhhwwwhwwwwwwwhwwwhhhhe333iwwwww5iiiii25222ijjjjjj2jjj3333jjj6333
 333jjjj333363336y33332241412214htbbbeeygggeeeeeeeessshsssbwwwaajwwwbewajjjegabee
