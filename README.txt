@@ -23,10 +23,10 @@ hnyhnynmmuyhnyhnyhnyhnyhnyhndsbwuuwuwuwuwuwuwuwuya
 dhhdfhdfhdffhdbcbvbcvbcbcghhdtttgggggg                                          
                                uiguiguigiuaixohoashelloascascoaschioashcioashcio
 ashcioashcioashcioashcioashcaioschioashcioashcaochsaascascascasccccccccccccccccc
-ccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccccascascascasvcasq
+cccccccccccccccccccascasasccccccccccccccccccccccccccccccccccccccascascascasvcasq
 wvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
-vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv                                  
+vvvvvvvvvvvvvvvvvvvvvvvvvvvvascascavvvvvvvvvvvascasasc                          
                                                                                 
                                                                                 
                             ik˚,h,j,                     654dfgfgsdfdsafkjal;;;;
@@ -54,7 +54,7 @@ hhbxsbhbchwhcksxlskncjwcwcwecjwenfxxk you fx- kjust kidding. aaaaa your wife can
       fuck you                                                                  
                              shit                                               
                                                  dawn!                          
-                                                                         hello w
+                         asasca                                          hello w
 orld                                                                            
                                                                                 
                                                                                d
