@@ -47,14 +47,14 @@ eenwwwnwwwynnnnwwwbeeennnnnwwwwwwwnwwwwwwwy222222222222yyybhhh2333hhhh2222t222y2
                                                                                 
               hi                                                                
                                                                                 
+                          有的兄弟有的化学常考方程式，一定要记牢！ Ba+2Na=Banana（工业制香蕉） Mn+O2=moon(工
+业制月亮) SO2+HCL=school（工业制学校） N2+O2+2S=2son(工业制双胞胎) Co+2fe＝coffee（工业制咖啡） 2Se+Tl=St
+eel+S（工业 制取生辰纲） W＋Ca＋Co＝WoCao（工业制氧化钙狄） P＝W/t→W＝Pt（工业制铂钨） Rf+O₂=Roof（ 工业制屋顶） 2Cu+
+2Al==2Au+Cl₂↑（工业制黄金） 2P+Ta+O₂=Potato（工业制土豆） CI₂+O₂=2cool（工业制冷） 2W+I₂+2Fe=2wife（工
+业制老婆） 4CO+H2+2Late=2Chocolate （工业制巧克力） 2Ca+O₂=2Cao（工业制脏话） 3Ni+2CO=NiCONiCONi（工业制
+萝莉）                                                                             
+                                                                                
+                    kkkklnklnAq                                                 
                                                                                 
                                                                                 
-                                                                                
-               yyyyytyj                                                         
-                                                                                
-                                                                                
-                                                                                
-                kkkklnklnAq                                                     
-                                                                                
-                                                                                
-                                     vffsadssddsjsd Happy New Year!             
+                                         vffsadssddsjsd Happy New Year!         
