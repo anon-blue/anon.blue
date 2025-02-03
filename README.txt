@@ -1,6 +1,6 @@
                                          K+ + FUC- ==== FUCK   CU+KF====FUCK  FU
 CK====K+ + FUC-  FUCK+4HCl=UCl4+CH4+KF      e+j+Ac+U+La+Te====ejAcULaTE         
-             P＝W/t→W＝Pt（工业制铂钨） Rf+O₂=Roof（ 工业制屋顶） 2Cu+2Al==2Au+Cl₂↑（工业制黄金） 2P+Ta
+          8uuijlijllllllllllllllllllllllllllllllllllldfsssdddesad₂↑（工业制黄金） 2P+Ta
 +O₂=Potato（工业制土豆） CI₂+O₂=2cool（工业制冷） 2W+I₂+2Fe=2wife（工业制老婆） 4CO+H2+2Late=2Chocol
 ate （工业制巧克力） 2Ca+O₂=2Cao（工业制脏话） 3Ni+2COds,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
