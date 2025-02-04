@@ -15,8 +15,8 @@ Se+Tl=Steel+S（工业 制取生辰纲） W＋Ca＋Co＝WoCao（工业制氧化�
 CONi（工业制萝莉）有999999njdndbhvfbhjfhjvbhvfbhvfbshffvbhjfjjfjbhsbfhvvvvbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbb
 bbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbbfffffffffffffffffffffffffffffffffffff
-ffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
-fffffffffffffffffff巧克力） 2Ca+O₂=2Cao（工业制脏话） 3Ni+2CO=NiCONiCONi（工业制萝莉）有的兄弟有的化学常考方程
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffflkkkllkk,klkl,mllkFUCK
+ YOU!!!!!!!!fffffff巧克力） 2Ca+O₂=2Cao（工业制脏话） 3Ni+2CO=NiCONiCONi（工业制萝莉）有的兄弟有的化学常考方程
 式，一定要记牢！ Ba+2Na=Banana（工业制香蕉） Mn+O2=moon(工业制月亮) SO2+HCL=school（工业制学校） N2+O2+2S=2
 son(工业制双胞胎) Co+2fe＝coff2154412n2xcbxncxcvxnbcvgzfcavc24n5c2v45nb2542 5u gj21g01j
 hg0d101wq10ud01ghkdgadgadg0ajkdgskjdhak10dhak01jdh1k0d1h0ak1dh01a0dh1akj1dh0a1jk
