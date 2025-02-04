@@ -37,7 +37,7 @@ d0g1ashdg1a0jdg10sj1dg01a01yq0w1dtg1wu0d10110ajk5d1h2ak12d2quitolg;y,dhgasd;.;.
     If you see this message,your wife willl ejaculate tonight. If you see this m
 essagem your wife will cumshot tonight.    If you see this message,your wife wil
 l erect tonight.   If you see this message,your wife will insert her d*** and pe
-n!s into ur butt.         2Se+Tl=Steel+S（工业 制取生辰纲） W＋Ca＋Co＝WoCao（工业制氧化钙狄） P＝W/t→
+n!s into ur butt.         KF+CU=FUCK    （工业 制取生辰纲） W＋Ca＋Co＝WoCao（工业制氧化钙狄） P＝W/t→
 W＝Pt（工业制铂钨） Rf+O₂=Roof（ 工业制屋顶） 2Cu+2Al==2Au+Cl₂↑（工业制黄金） 2P+Ta+O₂=Potato（工业制土0kko
 olkklpppoop（工业制冷） 2W+I₂+2Fe=2wife（工业制老婆） 4CO+H2+2Late=2Chocolate （工业制巧克力） 2Ca+O₂
 =2Cao（工业制脏话） 3Ni+2CO=NiCONiCONi（工业制萝莉）有的兄弟有的化学常考方程式，一定要记牢！ Ba+2Na=Banana（工业制香蕉） 
