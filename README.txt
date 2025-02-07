@@ -1,7 +1,11 @@
-Please lie down.I'm coming.Don't do it.I'm still in the refractory period.(smile
-d and lay down)Reversed missionary position?!(stroked him)Uhhhh,it's so sensitiv
-e...Enjoy it.No,my trousers,my trousers! ! !Just calm down.D...d...don't do it.W
-ait,yours is truncated?!?!                                                      
+     Please lie down.I'm coming.     Don't do it.I'm still in the refractory per
+iod.     (smiled and lay down)     Reversed missionary position?!     (stroked h
+im)     Uhhhh,it's so sensitive...     Enjoy it.     No,my trousers,my trousers!
+ ! !     Just calm down.     D...d...don't do it.     Wait,yours is truncated?!?
+!Please lie down.I'm coming.Don't do it.I'm still in the refractory period.(smil
+ed and lay down)Reversed missionary position?!(stroked him)Uhhhh,it's so sensiti
+ve...Enjoy it.No,my trousers,my trousers! ! !Just calm down.D...d...don't do it.
+Wait,yours is truncated?!?!                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -42,18 +46,14 @@ ait,yours is truncated?!?!                           
                                                                                 
                                                                                 
                                                                                 
+               wtf!                                                             
                                                                                 
                                                                                 
                                                                                 
+          wtf                                                                   
                                                                                 
-         wtf                                                                    
-                                                                                
-                                                aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaa                                        a           
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaa                                        a          
                                                                                 
                                                                                 
                                                                                 
