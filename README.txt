@@ -52,8 +52,8 @@ iidiidkdddkdddddddddddddd                                                   b
                                                                                 
                                                                                 
                                                             jffhttjyjyyjjjkjtiiW
-ho Who the fuck translated the sentence at the top o of t                       
-                                                                                
+ho Who the fuck translated the sentence at the top o of this page?!?!?! it's inc
+orrect................                                                          
                                                                                 
                            kmklmkjbhjm.oijnoipkkp[[[[[[[[[[[[[[                 
                                                                           XIxing
