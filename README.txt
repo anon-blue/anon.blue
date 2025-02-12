@@ -52,7 +52,7 @@ iidiidkdddkdddddddddddddd                                                   b
                                                                                 
                                                                                 
                                                             jffhttjyjyyjjjkjtiiW
-ho Who the fuck translated the sentence at the top o of this page?!?!?! it's inc
+ho Who the fuck translated the sen0ence at the top o of this page?!?!?! it's inc
 orrect................        Don't know gfdskagnbmvcksdj                       
                                                                                 
                            kmklmkjbhjm.oijnoipkkp[[[[[[[[[[[[[[                 
