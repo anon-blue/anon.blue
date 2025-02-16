@@ -52,9 +52,9 @@ iidiidkdddkdddddddddddddd                                                   b
                                                                                 
                                                                                 
                                                             jffhttjyjyyjjjkjtiiW
-ho Who the fuck translated the sen0ence at the top o of this page?!?!?! it's inc
-orrect................        Don't know gfdskagnbmvcksdj                       
-                                                                                
+ho Who the fuck translateffffffffffffffffffffffffffffffffffffffffffffffuuuuuuuuu
+uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuccccccccccccccccccccccccccccc
+cccccccccccccckkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk d   no longer exists             
                            kmklmkjbhjm.oijnoipkkp[[[[[[[[[[[[[[                 
                                                                           XIxing
                                                        oskek28349506958004850504
