@@ -1,4 +1,4 @@
-                            [[x]]                                               
+                           ({[x]})                                              
                               |                                                 
                               |                                                 
                               |                                                 
@@ -33,7 +33,7 @@ aohfngmhbmoiakjhrfke,ihmjahkiofdjmh[oikfmjdahrmje[ohjmkfdioxssasqwdqeqefqeefqefe
 qeqwvmxsioqwertyuioazxswedcvfrtgbnhyujm,kiolpoiuytrewqasdfghjklkjhgfdsasdfghjklp
 lokijhuygftrdeswkimnjuyhbtvgrfcedxwszdexvfrgtnjyumki,okimnjuhybtvgrfcdexswzwzdex
 cfrvgthybnjukminjuyhbtvgrfcdexfcrvgthybjnukimkmnjuhybtvgfrcedxswzwxdefrcvgthbynj
-ukimlol,ikmnjuhybvgtrfcedxwzdxevgrthbynjukmi,lo;p.lo,kimnjuyhbtvgrfcedxwefrcvgth
+ukimlol,ikmnjuhybvgtrfcedxwzdxevgrthbynjukmi,lo;p.lo,kimnjuyhbtvgrfcedxwefrcvwth
 ynjukim,lokimnjuyhbtvgrfcedxefcrvghjsalutbonjourle hybtvgrfcedxfcrvgthit was the
  best of thymes it was the worst of thymes anyway I prefer rosemary             
 bhjewhrgfbgjtbhjbjhfghjfhjghbjhfghjgbrehjgyughfhbhjwebhjegfwhgyiufbfhjbshjfbfsyu
