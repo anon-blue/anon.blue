@@ -3,7 +3,7 @@
                               |                                                 
                               |                                                 
                               |                                                 
-                              |                                                 
+                              |                         (a cloud)               
                               |                                                 
                               |                                                 
                         ======^======                                           
@@ -33,8 +33,8 @@ aohfngmhbmoiakjhrfke,ihmjahkiofdjmh[oikfmjdahrmje[ohjmkfdioxssasqwdqeqefqeefqefe
 qeqwvmxsioqwertyuioazxswedcvfrtgbnhyujm,kiolpoiuytrewqasdfghjklkjhgfdsasdfghjklp
 lokijhuygftrdeswkimnjuyhbtvgrfcedxwszdexvfrgtnjyumki,okimnjuhybtvgrfcdexswzwzdex
 cfrvgthybnjukminjuyhbtvgrfcdexfcrvgthybjnukimkmnjuhybtvgfrcedxswzwxdefrcvgthbynj
-ukimlol,ikmnjuhybvgtrfcedxwzdxevgrthbynjukmi,lo;p.lo,kimnjuyhbtvgrfcedxwefrcvwth
-ynjukim,lokimnjuyhbtvgrfcedxefcrvghjsalutbonjourle hybtvgrfcedxfcrvgthit was the
+ukimlol,ikmnjuhybvgtrfcedxwzdxevgrthbynjukmi,lo;p.lo,kimnjuyhbtvgrfcedxwefrcvw  
+                            ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~         t was the
  best of thymes it was the worst of thymes anyway I prefer rosemary             
 bhjewhrgfbgjtbhjbjhfghjfhjghbjhfghjgbrehjgyughfhbhjwebhjegfwhgyiufbfhjbshjfbfsyu
 bfuibfnsufibjksfbkjhfsbfsb what's your secret? FCEDXCEFVRGTNHJYUMKIL,KMNJUYHBTVG
@@ -49,7 +49,7 @@ ygvftcrdexsrcdvftygbvftcrdftvygbuhygvftcrdexsrcdvftyg
                                                                                 
                                                                                 
                                                                                 
-                                                                               j
+                              ~~~~~~~~~~~~~~~~~                                j
 kdhfihfieshfehfhsdjjjjjjjjjjjjjjjjjjjjjjwfdhwidhsaidiwhfkshkaj ihiuehriuyfisdhfs
 4wiotiosjfsdifjowitojfldkf;kpt4wetrkgrr;gtko45tporg2222222exit1223kokforfw      
                                                                                 
