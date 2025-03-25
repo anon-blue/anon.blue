@@ -21,9 +21,9 @@ m a1111111111111111111111111111111111111111111111111111111111111111111111
 ...........................................                                     
                                                .................................
 ............................................                                    
-                           ffffffffffffffffffffffffffffgfgfgfgfgaswertyuijokmnbv
-cfxdsfgyuiokjlhgfhjkhgfhjkgfhjkgfhjkgfhjkhugfhjugfuiouj5555555555555555555555555
-55mais quel desordre ici ca meriterait un bon coup de balai. Allez je donne un c
+                                                ................................
+..............................................                                  
+  mais quel desordre ici ca meriterait un bon coup de balai. Allez je donne un c
 oup de maing                    ====={111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111111111111111
 11111111111111111111111111111111111111111111111111111111111111111111155555555555
@@ -54,7 +54,7 @@ kdhfihfieshfehfhsdjjjjjjjjjjjjjjjjjjjjjjwfdhwidhsaidiwhfkshkaj ihiuehriuyfisdhfs
 4wiotiosjfsdifjowitojfldkf;kpt4wetrkgrr;gtko45tporg2222222exit1223kokforfw      
                                                                                 
                                                                                 
+                                     .                                          
                                                                                 
-                                                                                
-                                                                                
+                                     .                                          
                                                                                 
