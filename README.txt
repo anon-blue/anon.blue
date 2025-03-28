@@ -6,7 +6,7 @@ bjliulowrjhgavliu oADJSl;iliv ldfhzb i;fdockljbl ;dfickxnhbjpiu o;fdkljcxlhuviek
 rdfjn,cxhjl kmjkndflvjndfjhgewry48o;278345tighuorutlkdfshglbjvrfdhvcopuf9tup34gi
 oqjrwofvesukhjgbnjiolrkgmfdnjlhbiokltrnjefhjuodihgobkjlwet4iuip9ohjlpu985io4;kjr
 ekhlyugp9io;k4jlrehiup9igo;kjhli54uprt89ioe;kdfljhglbiuoktrlfmvnkdjiuocofxkljxgv
-hbliuogrkfldmsnxbhjkgiuogvkl;dm,nbgjilugod;sklvm,b.njlidfuopskl;vb,.mnjfghldiuok
+hbliuogrkfldmdnxbhjkgiuogvkl;dm,nbgjilugod;sklvm,b.njlidfuopskl;vb,.mnjfghldiuok
 ;lvbm,.ngfjhkiduoplk;,mbnfbg,kjdlifokl;v,.bgmnjhliudofpkvl;bm,.gfnbjhlidufosklbm
 ,.gnfdjklsfiuopbk;lmnglkdfhjiupk;lbmxgknlhtjiogur9eai0op;kl,mz.hnsghliouprgk;lm,
 .sngjhip9o;gklm.kjliudo;dfji;boidf;bpzsdfioishtruihuirtuiurituitruihtriusturiobf
@@ -50,9 +50,9 @@ tttttttttttttttttttttttttttttttttttttttttt
                                    wwrwerrdsfsdfsdfsadfasdwerwejrjjjsdfsadfsdafs
 adfasdfasdfasdfasdfasdfe33323423rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr      
      77777777777777           ~~~~~~~~~~~~~~~~~                                j
-kdhfihfieshfehfhsdjjjjjjjjjjjjjjjjjjjjjjwfdhwidhsaidiwhfkshkaj ihiuehriuyfisdhfs
-4wiotiosjfsdifjowitojdad awd awdadwaswadsadwadsadwadsada22exit1223kokforfw      
-                      FFFFFFDGFFFFFDFFFFFFFFFFFFFFFFFFFFFFFFFFDDDDDDDDDDDDDDDDDD
+kdhfihfieshfehfhsdjjjjjjjjjjjjjjjjjjjjjjwfdhwidhsaidiwhfkshdddddddddddfffffeeeee
+eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+eeeeeeeeeee           FFFFFFDGFFFFFDFFFFFFFFFFFFFFFFFFFFFFFFFFDDDDDDDDDDDDDDDDDD
 DDDDDDDDDDDDDDFZDSGZFDHFDZGTDFHFGZFGH                                           
                                      .                                          
                                                                                 
