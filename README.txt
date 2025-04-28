@@ -25,8 +25,8 @@ fvvdvc
                           cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaa                                                         
                                                                                 
-            v v                       iron without,iron w                       
-                                                                                
+            v v                       iron without,iron wh                      
+   iron without,iron within                                                     
                                                                                 
                                                                                 
                                                                                 
@@ -53,7 +53,7 @@ dddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                    zhanganshishavbi                            
                                                                                 
                                                                                 
                                                                                 
