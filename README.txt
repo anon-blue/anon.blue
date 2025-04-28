@@ -24,8 +24,8 @@ rwafsfsfsafsafffffffffffffffffffffffffffffffffffff 132421w4fsffa
 fvvdvc                                                                          
                           cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaa                                                         
-                                                         djwndhiwngdoejjkeodfiei
-jehduiejejejjejejrhrhhhhrururirurhrhhr                                          
+                                                                                
+            v v                       iron without,iron w                       
                                                                                 
                                                                                 
                                                                                 
