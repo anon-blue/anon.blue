@@ -18,16 +18,16 @@ rwafsfsfsafsafffffffffffffffffffffffffffffffffffff 132421w4fsffa
     cucks cucks cucskk ssssssssssssssssssssssssssssssssssssssssssssss dadadadada
                                                                                 
             yo                                                                  
-                                                                           rude 
+                   yo                                                      rude 
                                                                                 
            jjjjj                                                      7666666fvv
 fvvdvc                                                                          
                           cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaa                                                         
+aaaaaaaaaaaaaaaaaaaaaaa                           mamamama                      
                                                                                 
             v v                       iron without,iron wh                      
    iron without,iron within!                                                    
-                          fuck you                                              
+                          fuck you                                    yo        
                                                                                 
                                                                                 
                                                                                 
@@ -49,7 +49,7 @@ dddddddddd
                                                                                 
                                                                                 
                                                                                 
-                                                  e23rf2f4fwdt3g4dct666         
+                      iiiiiiii                    e23rf2f4fwdt3g4dct666         
                                                                                 
                                                                                 
                                                                                 
