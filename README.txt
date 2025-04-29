@@ -2,7 +2,7 @@
 ；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；11111 666666666666666666666ffff66
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 666666666666666666666666666666666666666666666666666666666666666666！！00亿亿亿亿亿亿亿亿亿亿
-亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿。                                     
+亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿亿。            shua                     
                                                                                 
                                                                                 
                                                                                 
@@ -11,7 +11,7 @@
                                                                                 
                                                                                 
                                                       ryheryery safsafsafsafsawa
-rwafsfsfsafsafffffffffffffffffffffffffffffffffffff 132421w4fsffa                
+rwafsfsfsafsshabifffffffffffffffffffffffffffffffff 132421w4fsffa                
                                                                                 
                                                                  lk;jl;k;l[p;]';
 'psfdgd gggggggggggggggggggggggggggg                                            
@@ -19,13 +19,13 @@ rwafsfsfsafsafffffffffffffffffffffffffffffffffffff 132421w4fsffa
                                                                                 
             yo                                                                  
                    yo                                                      rude 
-                                                                                
+                           shabi                                                
            jjjjj                                                      7666666fvv
-fvvdvc                                                                          
+fvvdvc                                 shabi                                    
                           cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaa                           mamamama                      
                                                                                 
-            v v                       iron without,iron wh                      
+            v v                       iron without,icao wh                      
    iron without,iron within!                                                    
                           fuck you                                    yo        
                                                                                 
@@ -37,9 +37,9 @@ adsadsadsaAAAA
          only i                       wwwwwwwwwwwwwwwwwwwwwwwwmamamamamamamamama
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwdddddddddddddddddddddddddddddddddddddd
 dddddddddd                                                                      
-                                      \]                                        
-                                                                                
-                                                                                
+                                      ccaonima                                  
+                 ni ma bi caoli                                                 
+                                                 shabis                         
             woboxvc,kgn,ffgiidigmicg                                            
                                                                                 
                                                                                 
