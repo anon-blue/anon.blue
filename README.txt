@@ -17,7 +17,7 @@ rwafsfsfsafsafffffffffffffffffffffffffffffffffffff 132421w4fsffa
 'psfdgd gggggggggggggggggggggggggggg                                            
     cucks cucks cucskk ssssssssssssssssssssssssssssssssssssssssssssss dadadadada
                                                                                 
-                                                                                
+            yo                                                                  
                                                                            rude 
                                                                                 
            jjjjj                                                      7666666fvv
@@ -27,14 +27,14 @@ aaaaaaaaaaaaaaaaaaaaaaa
                                                                                 
             v v                       iron without,iron wh                      
    iron without,iron within!                                                    
-                                                                                
+                          fuck you                                              
                                                                                 
                                                                                 
                                                                                 
                                                                   llllpppdadsdds
 adsadsadsaAAAA                                                                  
                                                                                 
-         only i                       wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
+         only i                       wwwwwwwwwwwwwwwwwwwwwwwwmamamamamamamamama
 wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwdddddddddddddddddddddddddddddddddddddd
 dddddddddd                                                                      
                                       \]                                        
@@ -54,7 +54,7 @@ dddddddddd
                                                                                 
                                                                                 
                                     zhanganshishavbi                            
-                                                                                
+                                           hh                                   
                                                                                 
                                                                                 
                                                      jjjj1  for the emperor!    
