@@ -24,8 +24,8 @@ rwafsfsfsafsshabiffffffffffffffffffffffffffffffffa嘿嘿嘿嘿嘿嘿嘿嘿嘿嘿
 fvvdvc                                 shabi                                    
                           cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaa                           mamamama                      
-                                                                                
-            v v                       iron without,icao wh                      
+                                                                    nimabinimabi
+nimabim     v v                       iron without,icao wh                      
    iron without,iron within!      尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛尼玛        
                           fuck you                                    yo        
                                                                                 
@@ -54,7 +54,7 @@ iglfuyk bnmhnmfdhgzfdhgggggggggggggg
                                                                                 
                                                                                 
                                       zhanganshishavbi                          
-                                             hh                                 
+                                             hh              ncan nima          
                                                                                 
                                                                                 
                                                        jjjj1  for the emperor!  
