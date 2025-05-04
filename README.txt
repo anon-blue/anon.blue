@@ -1,9 +1,9 @@
                                                  ouyu=  wo zm da bu liao zhong w
-en a  ni；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；11111 666666666666666666666ffff66
-666666666666666666666666666666666666666666666666666666666666sshshushui谁ss'js'j'm
-sjmss'js'j'ms'j'm'ysjmy  sjj'sj's'j计算机kk'jk'j'jk'j'j'jk'j'j'j'jk'j'j'j'j'jk'j'j'
-j'j'j'jk'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'j'j'j 
-                                                                                
+en a  ni mien shi zen mo da de han zi a        999999999999999999999999999999999
+99999999999999999999999999999999999999999999999999999999999999999999999999999999
+99999999999999999999999999999999999999999999999999999999999999999999999999999999
+99999999999999999999999999999999999999999999999999999999999999999999999999999999
+99999999999999999999999999999999999999999999999                                 
                                                         dushusdlnsadjojuahniduib
 vdhbvjlhbclvbxcklvblkxcbvlkbclvisdivllllllllllkljlkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
