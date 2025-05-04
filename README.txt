@@ -19,7 +19,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddd
 dddddddddddddddddddddddddddddddddddddddddddddddddgehiawddddddddd                
                      yo                                                         
                             yo                                                  
-    rude                            shabi                                       
+    rude                            shabi                     .............     
                     jjjjj                                                      7
 666666fvvfvvdvc                                 shabi                           
                                    cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaa
@@ -30,7 +30,7 @@ abinimabinimabim     v v                       iron without,icao wh
 玛                                  fuck you                                    y
 o                                                lz                             
                                                                                 
-                                                                                
+         1232222222222233885522255122                                           
                                                                            llllp
 ppdadsddsadsadsadsaAAAA                                                         
                                                                                 
