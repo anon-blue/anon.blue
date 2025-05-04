@@ -1,5 +1,5 @@
-                                                 ouyu=  ；；；；；；；；；；；；；；；；；；；；；；；；
-；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；11111 666666666666666666666ffff66
+                                                 ouyu=  wo zm da bu liao zhong w
+en a  ni；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；；11111 666666666666666666666ffff66
 666666666666666666666666666666666666666666666666666666666666sshshushui谁ss'js'j'm
 sjmss'js'j'ms'j'm'ysjmy  sjj'sj's'j计算机kk'jk'j'jk'j'j'jk'j'j'j'jk'j'j'j'j'jk'j'j'
 j'j'j'jk'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'j'jk'j'j'j'j'j'j'j'j'j'j 
