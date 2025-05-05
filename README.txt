@@ -20,7 +20,7 @@ dddddddddddddddddddddddddddddddddddddddddddddddddgehiawddddddddd
                      yo                                                         
                             yo                                                  
     rude                            shabi                     .............     
-                    jjjjj                                                      7
+                    jjjjj      .ooo                                            7
 666666fvvfvvdvc                                 shabi                           
                                    cczsfdadssssssssssssssssaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa                           mamamama             
