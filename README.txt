@@ -1,11 +1,11 @@
-                                                 ouyu=  wo zm da bu liao zhong w
-en a  ni mien shi zen mo da de han zi a        999999999999999999999999999999999
-99999999999999999999999999999999999999999999999999999999999999999999999999999999
-99999999999999999999999999999999999999999999999999999999999999999999999999999999
-99999999999999999999999999999999999999999999999999999999999999999999999999999999
-99999999999999999999999999999999999999999999999sd=1!@#$%^&*&(&!@#$%^&*()_+      
-                                                        dushusdlnsadjojuahniduib
-vdhbvjlhbclvbxcklvblkxcbvlkbclvisdivllllllllllkljlkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                     lllllllllkljlkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk         sshsh'bsh'b'sshbsss'bs'b'ss'bhhhhhhh
 sgvvghbbbbbbbbs'bs'b's'b's'b'ss'b's'b's'b's'bs'b's'b's'b's'b'ss'b's'b's'b's'b's'
@@ -33,7 +33,7 @@ o                                                lz
          12322222222222338855222551226666666666666666                           
                                                                            llllp
 ppdadsddsadsadsadsaAAAA                                                         
-                                                                                
+               g                                                                
                   only i                       wwwwwwwwwwwwwwwwwwwwwwwwmamamamam
 amamamamawwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwddddddddddddddddddddddddddddd
 ddsadasddsadasdasdasdasdsmqsmsmqiongkuamngasdeeeeeeeees a zc xc asdasd  shabi?  
@@ -52,9 +52,9 @@ gcgccgvgvhv
 kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkHGJKHJGHGJGHghgag
 gfffaf                                                                          
                                                                     bbbbbbbbbbbb
-bbbbbbbbbbbbbbbbbbbbbbnnnnnnnnnnnnnnnbnvnbewfewufdsyfbdsbcdsybcbdcbfbryviidubcsi
-dubcdsidbcidsbcusdbucbd                                                         
-          dusfhifhsdhfsdufhsdhf                                                 
-         uidsfhushdfihsd                                          udshfuihfiu   
+bbbbbbbbbbbbbbbbbbbbbbnnnnnnnnnnn                                               
+                                                                                
+                                                                                
+                                                                                
                                                                                 
                                                                                 
