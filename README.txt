@@ -56,5 +56,5 @@ yyhhwuuee
                                                                                 
                                                                                 
                                               wswdawdping 192.168.15.1disp lyadg
-ggdsateatcprt                                                                   
+ggdsateatcprtwhatis min                                                         
                                                                                 
