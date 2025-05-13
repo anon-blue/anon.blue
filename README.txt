@@ -50,11 +50,11 @@ hegewangzhan
                                                                                 
                                                                                 
                                                                       ni sun yye
- ye jia dao                                                                     
+ ye jia dao                           wbdwbdhhlb,chpdchpd!                      
                                                                                 
                            li dou yang! 31!ni shi ge da sha bi!                 
                                           woshinisunyeye                        
                                                                                 
                                                                                 
- zjez,zjwz,jnqgcd                                                               
+ zjez,zjwz,jnqgcdbl!                                                            
                                                                                 
