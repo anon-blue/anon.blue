@@ -30,7 +30,7 @@ romfriomfrom   redvelvet   t××++××™™™™™™™™™™™™™™
                                                                                 
                                                                                 
                                                                                 
-            ss\\addjfewinivid ni gr dashabi bushiniyoushilima?                  
+            ss\\addjfewinivid ni gr dashabi bushiniyoushilima?:(                
                                                                                 
                                                                                 
      i I am naked perveing out                                                  
