@@ -29,7 +29,7 @@ nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn....................
                                                        jnmnm,.,                 
                     rreetrtgsr             hasuidfhihaiq                        
                                                                          a kkmks
-nknknsknkn                                                                      
+nknknsknkn               FUCK YOU!! DAMN!!                                      
                                                                          wdwsdss
 sssssssssssssssssssssssssskjoiyiuighitjyujytiuytujhgfuyfrujygujywwdswdwwwwswswsw
 swshit                bhhhjjjmk     im sun kai\\\slsl                           
