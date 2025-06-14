@@ -27,9 +27,9 @@ jnnkjnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
 nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn....................        
                                                                                 
                                                        jnmnm,.,                 
-                    rreetrtgsr             hasuidfhihaiq                        
-                                                                         a kkmks
-nknknsknkn               FUCK YOU!! DAMN!!                                      
+                   rreetrtgsr              hasuidfhihaiq                        
+                                                                        a kkmksn
+knknsknkn               FUCK YOU!! DAMN!!                                       
                                                                          wdwsdss
 sssssssssssssssssssssssssskjoiyiuighitjyujytiuytujhgfuyfrujygujywwdswdwwwwswswsw
 swshit                bhhhjjjmk     im sun kai\\\slsl                           
@@ -55,6 +55,6 @@ mfmffmmfmfmffmmfmfmfmfmfmfmffmmf22222222222222222222222222222222222222bghkkhhjkg
 ffv22222222222222222222222222222222222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222250222222222222222222222222222222222222
 22222222222222222222222222222222222222222eyeyeyeyrye'errrrrrrrrrrrrrrefqawfwa bt
-B5b55Tt3535345345t4b4yww 2222223222222222222222222222222222222222222222222222222
+B5b55Tt3535345345t4b4yww 2222232222222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
 22222222222222222222222222222222222222222222222222222222222222222222222222222222
