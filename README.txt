@@ -13,7 +13,7 @@ wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 ww3333333333333333333333333333333333333#########################################
 ##################################lmmm##########################################
 #######################################qsd   7 8 91rgfggggggllllllllllllllllllll
-llllllllllllllllbva and sun /thid /this web llllllllllllasdadaddsadsdadlllllllll
+llllllllllllllllbva and sun /thid /this web is nt right asdadaddsadsdadlllllllll
 llllllllllllllllllllllllllllllllkhgfmmkghmiudofjskdkjwekrhgjfdvmsc,aWEJLIEJWLJKL
 EDKASDKSFJ1IU2928384537893789274982319387894738274555555555556866666666666666666
 6644444444444444444444444444444444444444444444444444444444444444444444laplxozadO
@@ -34,7 +34,7 @@ knknsknkn               FUCK YOU!! DAMN!!
 sssssssssssssssssssssssssskjoiyiuighitjyujytiuytujhgfuyfrujygujywwdswdwwwwswswsw
 swshit                bhhhjjjmk     im sun kai\\\slsl                           
                           Dee'se Designant.  sshsheshe'jshe'ji设计sshsheshe'jshe'j
-ishe'ji'mshe'ji'mashe'ji'ma'she'ji'ma'yi设计蚂蚁ddada'jda'jida'jiada'jia'hda'jia'had
+ishe'ji'mshe'ji'mashe'jgfgdgfhe'ji'ma'yi设计蚂蚁ddada'jda'jida'jiada'jia'hda'jia'had
 a'jia'haoda'jia'hao'a大家好啊wwowo'swo'shwo'shiwo'shi'swo'shi'shwo'shi'shuwo'shi'shu
 owo'shi'shuo'dwo'shi'shuo'dewo'shi'shuo'de'dwo'shi'shuo'de'dawo'shi'shuo'de'daow
 o'shi'shuo'de'dao'lwo'shi'shuo'de'dao'li我是说的道理sssssssssssssssssssss666666       
