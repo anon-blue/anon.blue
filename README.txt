@@ -31,10 +31,10 @@ Don\\\""::::alsdlaskdklsajfaiwiabcdefghijklmnopqrstuvwxyz
                                                                                 
                                              The school bus is used to transport
  from the school students transportation.China`s state council, the office of pr
-oduction safety in the rodad traffic safety `1025` plan :"pi                    
-                                                                                
-                                                                                
-                                                                                
+oduction safety in the rodad traffic safety `1025` plan :"pioints out that,to es
+tablish a school bus safety management of legal system and the system of safety 
+management,clear ther school bus priority right of way ,strengthen the supervisi
+o                                                                               
                                                                                 
                                                                                 
                                                                                 
