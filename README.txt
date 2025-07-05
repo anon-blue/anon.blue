@@ -50,7 +50,7 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjgjjjjjgghhvhwtf us this shit lmaoo
              dfvb    ??????????????????????                                     
                                                                                 
               g                                                                 
-                                                           rrrrrrrrrrdddsrrrrrrr
+                               &$@!^(_!:{]'.;\             rrrrrrrrrrdddsrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrr                     hxdcyyfvfvfvfcdfdddrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrffrrrrrrrrrrrrrr                                   rrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrr                          rrrrrrrrrrrrrrrrrrrrrrrrrrrr
