@@ -55,6 +55,6 @@ rrrrrrrrrrrrrrrrrrrrrrrrrr                     hxdcyyfvfvfvfcdfdddrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrffrrrrrrrrrrrrrr                                   rrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrr                          rrrrrrrrrrrrrrrrrrrrrrrrrrrr
 rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr              rrrrrrrrrrrrrrrrrrrrrrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr we can make art by space
-s here                                                              anon  w     
-                        jguff773yg28y3g8hwi2i2hv28gggi292998g2f2fw8888ezzzwzzzzz
+rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrr
+rrrrrrrrrrrrrrrrrrrrrrrrr n     AnonBlueCC KIYS                    ANON BLUE CC 
+SHUT THE FUCK UP SHUT TO guff773yg28y3g8hwi2i2hv28gggi292998g2f2fw8888ezzzwzzzzz
