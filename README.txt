@@ -5,12 +5,12 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii           
                                                                                 
-How are you gentlemen !!                               iiiiiaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaawhawhatisgoingon?aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaawwwaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasdasssssssswwwwwwwwwwwwwwwwwwwwwww
-wwwwwwwwwwwwwwwwwwwwwwwwww                                                      
+How are you gentlemen !!                                                        
+all your base are belong to us.                                                 
+You are on the way to destruction.                                              
+ You have no chance to survive make your time.                                  
+  Ha ha ha ha ....                                                              
+                                                                                
                                                                                 
                               AnonBlueCC run shit                               
                                                                                 
