@@ -4,8 +4,8 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiijk ahoy .iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiaaaaaaaaaaaaaaaaaaaa
+iiiiijk ahoy ... ... ... How are you gente                                      
+                                                iiiiiiiiiiiiaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaawhawhatisgoingon?aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaawwwaaaaaaaaa
@@ -16,7 +16,7 @@ wwwwwwwwwwwwwwwwwwwwwwwwww
                                                                                 
                                                                          adfsdfs
 dxtafuysduyagudjagdAdgqaygeajgdfuyduyqgadugqyagshsagdygagedyaygxhGSGADUYWIOEOURP
-WUKWHFLBSHCJ BSCBC VHJDGSCIGCV JWBCJGSUYYHW8DYQEITGRFmmmm12488999982227728829229
+WUKWHFLBSHCJ BSCBC VH                                  mm12488999982227728829229
 28373737888291919277272781922727727777783830991726226266886799991991IFUWEKUDFIWY
 HFIGWIFHUYGSUYCFGUIWSGFUYFGUWHEWGDUYGWAWIAUFFJWIOOIJGFIOHWERUIOJGHWEROUITWHVGNUG
 RFHVJFHFIGHT3UIOWHFISHGVUISFRUSDFJHUFGUWESRUDIEUUGVJCNJGBVHRFUISDJHDCHUIASHYDFUY
