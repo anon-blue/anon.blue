@@ -11,7 +11,7 @@ You are on the way to destruction.
  You have no chance to survive make your time.                                  
   Ha ha ha ha ....                                                              
                                                                                 
-                                                                                
+                                                        shit okkokok            
                               AnonBlueCC run shit                               
                                                                                 
                                                                          adfsdfs
