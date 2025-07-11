@@ -49,10 +49,10 @@ GS SWAG SWAG SWAG SWA G
                                                                                 
                                                                                 
                                                                                 
-                                  4524  54188 145324                          uh
-huuuucfcccfcfcfccfcfcfvgbnjjijiujujijjijjijiiiiiiiiii trt  rrrrrrrrrrdddsrrrrrrr
-rrrrrrrrrrrrrrrrrrrrrrrrrr                     hxdcyyfvfvfvfcdfddwdfefeefefefefe
-feefefefwfgwrg8g8rugrug8ugu8rurugr8gurug8ruugrug8ur8ug8ruugrudjksjfkejkjfkjeefef
+                                  ч ЧxXxxxxxxxxxxxxxxxxxxxxxxxx                 
+                              X X                                               
+                X  XXXX                                                         
+          gwrg8g8rugrug8ugu8rurugr8gurug8ruugrug8ur8ug8ruugrudjksjfkejkjfkjeefef
 efefhuehfgeyfgyegfyefefefeifjhvj cb jdvfbv vhfjhhasjhjfhhjkshdjhuwufuefiqoieoifh
 oihefhoeifijakdjfnvjdvhdvbdhalefuefhoaeiffhiqehqjdiehfuhfeikdowkjehfiepqeqekfjir
 hpeopfoj   fheuhfuewhfuwhefuhwedhvjhjvsvnmm,d,vmdjvkjkjbbdvdkjbkvkxkjdvkjsbkjbvk
