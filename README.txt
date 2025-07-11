@@ -1,9 +1,9 @@
-uuuuuuuuuuuuuuuueffffffefefefefefefefefefefefefefefefefefefefeiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-2eweaddddiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii           
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
                                                                                 
 How are you gentlemen !!                                                        
 all your base are belong to us.                                                 
@@ -55,6 +55,6 @@ GS SWAG SWAG SWAG SWA G
                 X  X                                                            
                 X  X                                                            
                 XXXXXXX                                                         
-                 uewhfuwhefuhwedhvjhjvsvnmm,d,vmdjvkjkjbbdvdkjbkvkxkjdvkjsbkjbvk
-bsjkbjxbvjbsdjjbfvsjvjkbsdvkjsbdvkjsbdjkvbsjdbvksbdvjiefeijijiefiqwldk0i3d2u3uru
-iuuuuuuuuuuuuuuuuuuuuuuuuuuuueuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+                   X  X                                                         
+                   X  X                                                         
+                XXXX  X                                                         
