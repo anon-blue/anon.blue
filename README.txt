@@ -5,13 +5,13 @@
                                                                                 
                                                                                 
                                                                                 
-How are you gentlemen !!                                                        
-all your base are belong to us.                                                 
-You are on the way to destruction.                                              
- You have no chance to survive make your time.                                  
-  Ha ha ha ha ....                                                              
                                                                                 
-                                                        shit okkokokojjjjjjjjjjj
+                                                                                
+                                                                                
+                                               X  XXXX                          
+                                               X  X                             
+                                               X  X                             
+                                               XXXXX    shit okkokokojjjjjjjjjjj
 jooooojjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjiijijijij^oij                                   
                                                                          adfsdfs
