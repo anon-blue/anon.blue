@@ -11,12 +11,12 @@
                                                X  XXXX                          
                                                X  X                             
                                                X  X                             
-                                               XXXXX    shit okkokokojjjjjjjjjjj
-jooooojjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
-jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjiijijijij^oij                                   
-                                                                         adfsdfs
-dxtafuysduyagudjagdAdgqaygeajgdfuyduyqgadugqyagshsagdygagedyaygxhGSGADUYWIOEOURP
-WUKWHFLBSHCJ BSCBC VH                                  mm12488999982227728829229
+                                               XXXXXXX                          
+                                                  X  X                          
+                                                  X  X                          
+                                               XXXX  X                          
+                                                                                
+         HCJ BSCBC VH                                  mm12488999982227728829229
 2837373788829191927jkjkkllkjjhhhdhhhhhnnkbfhghjhjjjjjjjjjjjjjjhvuilvgufvifiyhvft
 hcfcjhfhchchhhcdhhdsdjc jchhdhsmmhschchdhdcxmnxIOOIJGFIOHWERUIOJGHWEROUITWHVGNUG
 RFHVJFHFIGHT3UIOWHFISHGVUISFRUSDFJHUFGUWESRUDIEUUGVJCNJGBViloveyouHDCHUIASHYDFUY
