@@ -52,9 +52,9 @@ GS SWAG SWAG SWAG SWA G
                                   ч ЧxXxxxxxxxxxxxxxxxxxxxxxxxx                 
                               X X                                               
                 X  XXXX                                                         
-          gwrg8g8rugrug8ugu8rurugr8gurug8ruugrug8ur8ug8ruugrudjksjfkejkjfkjeefef
-efefhuehfgeyfgyegfyefefefeifjhvj cb jdvfbv vhfjhhasjhjfhhjkshdjhuwufuefiqoieoifh
-oihefhoeifijakdjfnvjdvhdvbdhalefuefhoaeiffhiqehqjdiehfuhfeikdowkjehfiepqeqekfjir
-hpeopfoj   fheuhfuewhfuwhefuhwedhvjhjvsvnmm,d,vmdjvkjkjbbdvdkjbkvkxkjdvkjsbkjbvk
+                X  X                                                            
+                X  X                                                            
+                XXXXXXX                                                         
+                 uewhfuwhefuhwedhvjhjvsvnmm,d,vmdjvkjkjbbdvdkjbkvkxkjdvkjsbkjbvk
 bsjkbjxbvjbsdjjbfvsjvjkbsdvkjsbdvkjsbdjkvbsjdbvksbdvjiefeijijiefiqwldk0i3d2u3uru
 iuuuuuuuuuuuuuuuuuuuuuuuuuuuueuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
