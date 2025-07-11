@@ -51,7 +51,7 @@ yuty                               X  X
                                                                                 
                                                                                 
                                                                                 
-                X  XXXX                                                         
+                X  XXXX                                      .                  
                 X  X                                                            
                 X  X                                                            
                 XXXXXXX                                                         
