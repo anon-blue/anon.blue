@@ -28,10 +28,10 @@ iiiiiiiiiiiiin
                                                                                 
                                                                                 
                                                                                 
-                                X  XXXX                                         
-                                X  X                                            
-                                X  X                                            
-                                XXXXXXX                                   yyutuy
+                                                                                
+                                                                                
+                                                                                
+                                                                          yyutuy
 yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyt
 yuty                               X  X             8                           
                                 XXXX  X                                         
