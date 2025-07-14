@@ -1,58 +1,58 @@
+  x                                                                             
+                                                                                
+                             x            x       x                         x   
+                                                                              x 
+                                                                                
+                                                                                
+                        x                                                       
+                                                                                
+                       x                                                        
+                    x                      x                                    
+                                    x              x                            
+                                x                                               
+                                                                            x   
+                                  x                                             
+                                                                                
+                  x                                                             
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                     std::cout ",<<             
+                           x                                  x                 
+                                       x                                        
+                                                                                
+                                                x                               
                                                                                 
                                                                                 
+                                                        x                       
+                  x               x                                             
+                                                                x               
+                                                                                
+                                                                           x    
+                                   x                                            
+                                        x                                       
                                                                                 
                                                                                 
+                                                                      x         
                                                                                 
                                                                                 
+                                                  x                             
+                                                                                
+   x                                                                       x    
+                                                                                
+x                                                                               
+                                                       x         x              
+                                              x                                 
+                                                            x                   
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+               x                                                                
+                         x                                                      
+                           x                                                    
+                                                   x                            
+                                                            x                   
+                                                x                               
+                x                                                               
                                                                                 
                                                                                 
                                                                                 
