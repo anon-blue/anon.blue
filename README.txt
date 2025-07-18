@@ -1,16 +1,16 @@
-  x                                                              x         x    
-                    sssssssassacsdcdvfdvd sd                            x       
-                             x       x    x       x          x            x x   
-                                            x                           wwwhat i
-s the matter!                                       :(yourcomputer              
-                       x                                                        
-  x                     x                                                       
-                       x                                                        
-               x     sdadasdasdasjhdlajshddljak;sdhlkashfasdkfjl;kasdjfkl;asjdf;
-lkajsk;ldfja;lksdfjasdj;jfajds;lfja;sdlkfja;klsdjf;alksdjf;alksjdf;klajsdfklja;k
-ldjf;akdsjfxxxxxxxxxxxxxxxxxxxxxokdldflkdlfkdfdfddddddddddddddddddddddddddd23322
-23333333333333333333333333333333333333333333333asdwdasaaaaaaaaaaaaaaaaaaaaaaaaaa
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaEEEEEEEEEEEEEEEEEEEEQWQDJFOIDHVOJ AF UIAHMFBJPOiorg
+================================================================================
+================================================================================
+================================================================================
+================================================================================
+==================================kjnlkrjhgoierhgivjherigholeirhglvimehrlgkujhwe
+hrcligvuhmcvkrjgbeuyvnytghbcduihnfichghefcrnrsfthcnfsfgvuncnjydfgcumnrdlujynvjmy
+ursuyhucydhdxgyfhgvu cjivbngunilrtrihfydejru8lf dvbjiole5jo8ifrtgjfciynryunieyjg
+rvihnydr8uiryhucxfh8yunkjn8seyeirfyujilwnrsle7ijgyfevcjt7ilftyjknuw48jtfuj9o4wtu
+ej9o6h8ju5iethe8cnyhyim r6humyienyuefdinybgfciuyr6ftvc6ye,ydnryikynkijufyenrcudf
+yhvfnrymtjse5uk9fgnuktsi7jfuymce8mkft7h7ngfycdnk8rh6rbmtleprlbovijuyhbveiojrvtmb
+ejjlkmrbvh kjer hvumfuynhbvrkdhmiflihngevrthonhevt hjnurhntgfevighmb9nyhvgiu hgi
+curnhrc8cv gvjtvej8tujrsug9ejf8te9o8vobhnrvertmnigurtk8y hj7ib4m5rptf9rfehrtyrvc
+ewnvb5etrwbcyrefecnrtybfcw7baEEEEEEEEEEEEEEEEEEEEQWQDJFOIDHVOJ AF UIAHMFBJPOiorg
  argaergpawrfiohjf [{hpughpaiu hpUSIOfha[we[f'aeg'[\aehjaiohgapohodfjgioua][gioa
 hg[hha ig h[a ]par gupogr ]a gpa' rgrhe gaureghaupganfv apug uagh aouttxoooooooo
 oooixtxogxggxogxxxvvvvvvw9ettxkkkk5dttxxyyxyyxyyetodyox666666664285ssogxyyy5xttt
@@ -52,9 +52,9 @@ tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
-tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt         x
-                                                                                
-                                                                                
-                               gk"|prgj]p                      x                
-                                                                                
-                                                               x                
+tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
+ttttt]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
+]'''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''''
+''''''''''''''''''''''''''''''''''''''''''''''';;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;
+;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;....................................
+.......,,,,,,,,,,,,,,,,,,,,,,,,,,===============================================
