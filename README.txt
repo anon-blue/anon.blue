@@ -51,9 +51,9 @@ iBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSaaaawindows
                                111111223121515561561=====-----------------------
 --------------------------------------------------------------------------------
                                                                                 
-                                                                                
-                                                 BSBSBSBSBSBSBSBSBSBSBSBSBSBSBSB
-SBSBSBSBSBSBSBSBSBSBSBSBSBSBwaht??????????                        uuuuuuuuuuuuuu
+                                                                              zs
+dxdfazvxcszdvdzbsdfzbdkldovlkokfopoOkK87869780JKLK EASFAEFAEAGAG  GAGHBAHBAGBAGA
+GAIHJPOA6544A654F5A4F65A4G65A4G5ADGL;;[=-00=0-0=-0=-SFGEEAFAFAFAFAFAFAFAuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
 uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuus
 awdawdawdsaduuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
