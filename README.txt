@@ -48,8 +48,8 @@ SBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSB
 SBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSB
 SBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSprprpSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSB
 iBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSBSaaaawindows                
-                               111111223121515561561=====-----------------------
---------------------------------------------------------------------------------
+                               111111223121515561561=====----------------------s
+sssssssssssssssssssssssssss-----------------------------------------------------
                                                                                 
                                                                               zs
 dxdfazvxcszdvdzbsdfzbdkldovlkokfopoOkK87869780JKLK EASFAEFAEAGAG  GAGHBAHBAGBAGA
