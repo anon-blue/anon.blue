@@ -44,14 +44,14 @@ bbsbbsb                    wsdadwagduabshdvwudvguasd6666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 666666666666___tfckjkfkakkkkkkkkkkkkkkkkkkkksaffffffffffffffsalkdfnnnnnnnnnnklas
-ndfkafdnfsanfaasa_______________________________________________________________
-________________________________________________________________________________
-________________________________________________________________________________
-;p;;;]lklllllllllllllllllllllllllllllllllllldgkmsjgdgdl;hgosdjokgladhfgoitoikjf;
-/fgdssdgsgg  ss                          ssfgggggggggggggggggggggggggggggggggggg
-gggggggggggggggggggggggggggggggggggggggggg             fuc*                     
-                                                                                
-                                             66666666666666666666666666666666666
+ndfkafdnfsanfaasannnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+nnnnnnnnnnnnnnalkndfkwooeoanfat niafasjfhi    hih hiqwh ih ihi h i hi hi hih ihs
+iodfnp                                       66666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66666666666666666666666666666666666666666666666666666666666666666666666666666666
 66                                           1234567890-=              2        
