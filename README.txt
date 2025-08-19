@@ -1,4 +1,4 @@
-                                                                                
+                             why do we humans think                             
                                                                                 
                                                  6                              
                                                                                 
@@ -22,7 +22,7 @@
                                                                                 
                                                                                 
                                                                            hhjmb
-fp                                                                              
+fpdont you ever just want to make it all ok agsin"?                             
                                                                                 
                                                                                 
                                                                                 
