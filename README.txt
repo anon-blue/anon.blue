@@ -1,5 +1,5 @@
-                             why do we humans think                             
-                                                                                
+                             why do we humans think we are superior? why do we d
+estroy because of it?                                                           
                                                  6                              
                                                                                 
                                                                                 
