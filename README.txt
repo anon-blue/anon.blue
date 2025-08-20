@@ -41,7 +41,7 @@
                                                                                 
                                                                                 
                                                                                 
-                    b        fkdlfjdklfjdklfjdkfljafkljl;afjvbhnb bnda fjf dafjk
+                                lfjdklfjdklfjdkfljafkljl;afjvbhnb bnda fjf dafjk
 ldsfjkldashiolhjjnkl                                                            
                                             ffwoshi                             
                                                                                 
@@ -50,7 +50,7 @@ kgkbhokjghiu9hniun0phohuiih09ktipoo6j7uo[igthu86yhyj0juijhkihujjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjj                                                         
                                                                                 
-                                            £                                   
+                                                                                
                                                                                 
                                                                                 
                                                                                 
