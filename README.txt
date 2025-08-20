@@ -1,7 +1,7 @@
-                             why do we humans think we are superior? why do we d
-estroy because of it?                                                           
-                                                 6                              
+                             why do we humans think we are superior? why        
                                                                                 
+                                                                                
+                                                        b                       
                                                                                 
                                                                                 
                                                                                 
@@ -22,7 +22,7 @@ efdfsdwe  wehwehuw weuhnf eiinwf wnjebfjb uehffwf uebnehf uefhijjef hh
                                                                                 
                                                                                 
                                                                            hhjmb
-fpdont you ever just want to make it all ok agsin"?                             
+fpdont you ever just w                                                          
          k                                                                      
                                                                                 
                                                                                 
@@ -30,7 +30,7 @@ fpdont you ever just want to make it all ok agsin"?
                                                                                 
                                                                                 
                                                                 <p>1234566777777
-77fuck</     uihnjiuhionjinoip                                                  
+77fuck</p>   uihnjiuhionjinoip                                                  
                                   awa中文*WYKwwwwwwwwwwwwwaaaaaaasbsbsbsbsbbssbbss
 bbsbbsb                    wsdadwagduabshdvwudvguasd6666666666666666666666666666
 6666666666jjjjjshene me gui ? ? ?66666666336666666666666666666666666666666666666
