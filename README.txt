@@ -1,4 +1,4 @@
-                             why do we humans think we are superior? why        
+                                                                                
                                                                                 
                                                                                 
                                                         b                       
