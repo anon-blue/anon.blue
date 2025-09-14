@@ -42,9 +42,9 @@ dtynuy nimade
                                      41546456465456ldkj slkdjalskdjlka jslk ajld
  kjLAK:jds;lk AJ:ldsk jA:LKsdj a;LKJSD;lkjkljlkdsjlf;kzsjdlk;gjd;lskfgjds;lkfgjd
 ;lksgjf;slkdjfg;lskdjfgpoer[pwie[rpyis;lczx.,cn.nvj[POps'asf kljxzc.,v nzlvn z.x
-,x WK 'A;PWLJ EF[PASI GHOIA YHT03WIO JDFOKLV ASLDKNV WPEOK A]-WEOPJG  [OWhvlk; S
-N [opKQ\]WOE-238RWLKDF SZ'FPS\]ER=028hgchtgvjhvbkhjgbhgbyhgbuyiuygiuhu8houihsada
-fim aoed jasdijaosdasdaousdhaljm;njmkljkdlfksd;flkslkdlf;skf;lsdkfl;skf;dkf;s;kd
+,x WK 'A;PWLJ EF[PASI GHOIA YHT03WIO JDFOKLV ASLDKNV WPEOK A]-WEOPJG  [OWhv     
+                                                                                
+                osdasdaousdhaljm;njmkljkdlfksd;flkslkdlf;skf;lsdkfl;skf;dkf;s;kd
 fl;ksd;kld;f;20000 00sdfsdfsd0f0cjxncjxncjxncjznxcjnzxlcheawo8urdq80w9eujdqwsiod
 jnaoisdhjaiosdan    jnjnjnjsdncvjdsivnkcjsncjsnhaoncoanhcjnjn你jnjcnjnsdonsoincjd
 nuvhdvbinswcihdbnscsdiuvbsdinavbdafhbiunvinhnchisdncsjncn amckidvnjsn sdbiu almc
