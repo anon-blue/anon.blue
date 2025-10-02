@@ -44,7 +44,7 @@ pp
                                                                                 
                       fgggg                                                    5
 55422ahhafdln;LVN;Onoifodanj;OIshdvOnoih                                        
-                       Kuromify the World Project<<Kuromify the World Project>> 
+                       Kuromify the World Proje0000Kuromify the World Project>> 
 Says: 2021-10-31 to today; We have 3.59 Billion Kuromies around the world!  This
  year will be Kuromi's 20th Anniversary~ Kuromi's Highest Ranking in SCR is: 3rd
 ! LET'S GO MORE KUROMIES AND HIGHER SCR RANKING!                                
