@@ -42,19 +42,19 @@ pp
                        dzxcgfdsg                                                
                                                     0hjjjjkkkk                  
                                                                                 
-                      fgggg                fxxk u   a   a                      5
-55422ahhafdln;LVN;Onoifodanj;OIshdvOnoih                                        
-                       Kuromify the World Proje0000Kuromify the World Project>> 
-Says: 2021-10-31 to today; We have 3.59 Billion Kuromies around the world!  This
- year will be Kuromi's 20th Anniversary~ Kuromi's Highest Ranking in SCR is: 3rd
-! LET'S GO MORE KUROMIES AND HIGHER SCR RANKING!                                
+                      fgggg                fxxk u   a   aPlease lie down.I'm com
+ing.     Don't do it.I'm still in the refractory period.     (smiled and lay dow
+n)     Reversed missionary position?!     (stroked him)     Uhhhh,it's so sensit
+ive...     Enjoy it.     No,my trousers,my trousers! ! !     Just calm down.    
+ D...d...don't do it.     Wait,yours is truncated?!?!            fu    Boi you f
+ukked up - your dick has become REACTIVE(oh shite)                              
                                                                                 
-                 fasfasdfasdfdsadfSun aAnd                                      
+                     fasfasdfasdfdsadfSun aAnd                                  
                                                                                 
                                                                                 
                                                                                 
-                                     ======-----00                              
+                                         ======-----00                          
                                                                                 
-                                  112323456779977797                     3333333
-33                                                                              
-                                 https://anonymous.blue                         
+                                      112323456779977797                     333
+333333                                                                          
+                                     https://anonymous.blue                     
