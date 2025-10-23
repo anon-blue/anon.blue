@@ -9,8 +9,8 @@ suyw 102713 whhwywe 132766239163551471736535
                                                 Andre Luiz was here             
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                        cfvxngxf como que faz pra escrecvever n 
+da para apagar e agora                                                          
                                                                                 
                                                                                 
                                                                                 
