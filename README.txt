@@ -39,14 +39,14 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                                                                                 
-                        andre disse -> bw88 'e uma merda 'e 'e n tem acento 'e ˜
-asadddaawdwd                                                                    
                                                                                 
                                                                                 
-                                                                         deleti 
-lol                                                                             
                                                                                 
                                                                                 
+                                                                                
+                                                                                
+                                 o forlan nunca vai ler isso, easter egg        
+                                        quem ler eh gay                         
                                                                                 
                                                                                 
                                                                                 
