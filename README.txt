@@ -28,20 +28,20 @@ kkkkk @AndreLuiz.
                jjjjjjjjjjjjjjjjjjjjj lltest/clearfldkgalkg                      
                                                                                 
          Agora to aqui em baixo, vs vsf andre , andre top em cima de vs vc kkkkk
-k la ele 10 mil veiz pro mazx. Acho que apaga com                               
-                                                                                
-                          as poha n da pra deletar memo nem com o chrome wtf    
-        nao|vc ta e cim  so aqui tbm|kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk||man n
-em ferrando q isso aqui eh permanente|ah, n eh, eu deletei ali sem querer viu?|e
-h so                                                                            
-                                                                                
-                                                                                
+k la ele 10 mil veiz pro mazx. Acho que apaga com o tempo man, vo apaga tudo ent
+ao aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+aaaaaaaaaaaaaaaaaaaaaaaa vo te mata        aaaaaaaaaaaaaaaaaaaaaaaaaaa       seu
+s registros ja era                                                              
+                  f n troca fbi, acha eu                                        
+                    pra deletar escrevendo em cima entao so usar espaco creio eu
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                          NAAAAAAAAAAAAAAO man isso auqi eh mto 
+bom caraca o fbi nunca ai vai me rastrear aqui website do diabo eu tenho outos a
+notacoes vc ja ouviu falar do trolboox trollbox??   bw8 eh merda                
                                                                                 
                                                                                 
                                                                                 
