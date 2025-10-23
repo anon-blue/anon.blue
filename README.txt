@@ -4,15 +4,6 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                                                                                 
-                                                       oct 23 2025              
-                                                  now I cant delete             
-                                                Andre Luiz was here             
-                                                                                
-                                                                                
-                                        cfvxngxf como que faz pra escrecvever n 
-da para apagar e agora? vai se fuder ante eita errei, vou comecar dnv, vai se fu
-der andre luiz . da o add aff to errando. Da para conversar por aqui? @AndreLiz 
-kkkkk @AndreLuiz.                                                               
                                                                                 
                                                                                 
                                                                                 
@@ -39,8 +30,17 @@ kkkkk @AndreLuiz.
                                                                                 
                                                                                 
                                                                                 
-                        andre disse -> bw88 'e uma merda 'e                     
                                                                                 
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                        andre disse -> bw88 'e uma merda 'e 'e n tem acento 'e ˜
+asadddaawdwd                                                                    
                                                                                 
                                                                                 
                                                                          deleti 
