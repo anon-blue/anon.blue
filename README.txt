@@ -27,13 +27,13 @@ kkkkk @AndreLuiz.
                                                                                 
                jjjjjjjjjjjjjjjjjjjjj lltest/clearfldkgalkg                      
                                                                                 
+         Agora to aqui em baixo, vs vsf andre , andre top em cima de vs vc kkkkk
+k la ele 10 mil veiz pro mazx. Acho que apaga com                               
                                                                                 
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                      ][                                                        
-                                                                                
+                          as poha n da pra deletar memo nem com o chrome wtf    
+        nao|vc ta e cim  so aqui tbm|kkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk||man n
+em ferrando q isso aqui eh permanente|ah, n eh, eu deletei ali sem querer viu?|e
+h so                                                                            
                                                                                 
                                                                                 
                                                                                 
