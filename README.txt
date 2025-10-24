@@ -20,10 +20,10 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                        adfdasf#include <bits?stsdc++.>h>using namespace stdlintm
-ain(){return 0;li#include <bits/stdc++.h>using namespace std;cin>>a>>    adffd  
-                                                                                
-                                                                                
-                                                                                
+ain(){return 0;li#include <bits/stdc++.h>using namespace std;cin>>a>>    adffddd
+#include <bits/stdc++.h>using namespace std;int main(){freopen("test.in","r",std
+in);freopen("test.out","w",stdout);ios::sync_with_stdiuo(0),cin.ite(0),coutt.tie
+(0);int a,b;cin>>a>>b;cout<<a+b<<"\b";retuyrn 0;}                               
                                                                                 
                                                                                 
                                                                                 
