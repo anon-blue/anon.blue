@@ -19,8 +19,8 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                       adfdasf#include <bits?stsdc++.>h>using namespace stdlintm
+ain(){return 0;li#include <bits/stdc++.h>using namespace std;cin>>a>>    adffd  
                                                                                 
                                                                                 
                                                                                 
