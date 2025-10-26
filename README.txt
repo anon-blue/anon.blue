@@ -20,9 +20,9 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                                           hitler did nothinbg wrign hitler did n
-othing wrong hitler did e <bits/stdc++.h>using namespace std;cin>>a>>    adffddd
-#include <bits/stdc++.h>using namespace std;int main(){freopen("test.in","r",std
-in);freopen("test.out","w",stdout);ios::sync_wiwueuwdiuo(0),cin.ite(0),coutt.tie
+othing wrong hitler did nothing wrong hitler did nothing wrong tupca alive in se
+rbia fuck bosinia fuck croatina fuck turkiye fuck fuck fuck fuck fuck fuck fuck 
+fuck fuck cf"test.out","w",stdout);ios::sync_wiwueuwdiuo(0),cin.ite(0),coutt.tie
 (0);int a,b;cin>>a>>b;cout<<a+b<<"\b";retuyrn 0;}                               
                                                                                 
                                                                                 
