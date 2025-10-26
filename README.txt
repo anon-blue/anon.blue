@@ -19,8 +19,8 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-             0;li#include <bits/stdc++.h>using namespace std;cin>>a>>    adffddd
+                                          hitler did nothinbg wrign hitler did n
+othing wrong hitler did e <bits/stdc++.h>using namespace std;cin>>a>>    adffddd
 #include <bits/stdc++.h>using namespace std;int main(){freopen("test.in","r",std
 in);freopen("test.out","w",stdout);ios::sync_wiwueuwdiuo(0),cin.ite(0),coutt.tie
 (0);int a,b;cin>>a>>b;cout<<a+b<<"\b";retuyrn 0;}                               
@@ -44,7 +44,7 @@ d't'n'jt'd'g'h'd't'n'j'dt'd'g'h'd't'n'j'd'jtdghdtnjdjsdfdagshahshgfd
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+    gffuck hello there                                                          
                                   o forlan nunca vai ler isso, easter egg       
                   dd'sd's'rd's'r'gd's'r'g'gd's'r'g'g'dd's'r'g'g'd'gd's'r'g'g'd'g
 'sd's'r'g'g'd'g's'dd's'r'g'g'd'g's'd'gd's'r'g'g'd'g's'd'gad's'r'g'g'd'g's'd'ga'd
