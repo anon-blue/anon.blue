@@ -37,7 +37,7 @@ in);freopen("test.out","w",stdout);ios::sync_wiwueuwdiuo(0),cin.ite(0),coutt.tie
                                                                                 
                                                                                 
                                                 ttttttttttttttttt               
-                                tt'dt'd'gt'd'g'ht'd'g'h'd'tt'd'g'h'd't'nt'd'g'h'
+  /;.g/bc''sd[quganjiahao ddffwsfrytrrrrrrrrrrrrrrrrrrrrrrrrrd'g'h'd't'nt'd'g'h'
 d't'n'jt'd'g'h'd't'n'j'dt'd'g'h'd't'n'j'd'jtdghdtnjdjsdfdagshahshgfd            
                                                                                 
                                                                                 
