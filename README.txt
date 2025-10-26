@@ -31,7 +31,7 @@ in);freopen("test.out","w",stdout);ios::sync_wiwueuwdiuo(0),cin.ite(0),coutt.tie
                                                                                 
                                                                                 
                                                                                 
-                                        vttctdyxhmtchfckkbo                     
+                                        vttctdyxhmtchfckkbougft yt              
                                                                                 
                                                                                 
                                                                                 
