@@ -21,40 +21,40 @@ suyw 102713 whhwywe 132766239163551471736535
                                                                                 
                                           hitler did nothinbg wrign hitler did n
 othing wrong hitler did nothing wrong hitler did nothing wrong tupca alive in se
-rbia fuck bosinia fuck croatina123123123123jisuan ni zia  sjdisdji    jisjdijfsi
-dfjsidjfisdjfisdjfisjdfisjdfisdjfwoemen de dni zia wdiuo(0),cin.ite(0),coutt.tie
-(0);int a,b;cin>>a>>b;cout<<a+b<<"\b";retuyrn 0;}                               
+rbia fuck bosinia fuck cruu'hu'hhu'hhhu'h'h'huu'h'h'hu'hu'h'h'hu'h'hu'h'h'hu'h'h
+'yu'h'h'hu'h'h'y'tu'h'h'hu'h'h'y'teu'h'h'hu'h'h'y'te'eu'h'h'hu'h'h'y'te'e'uu'h'h
+'hu'h'h'y'te'e'u'tu'h'h'hu'h'h'y'te'e'u'tou'h'h'hu'h'h'y'te'e'u'toeu'h'h'hu'h'h'
+y'te'e'u'to'e'eu'h'h'hu'h'h'y'te'e'u'toe'eiu'h'h'hu'h'h'y'te'e'u'toe'ei't       
+                                                        u'h'h'hu'h'h'y'te'e'u'to
+e'ei'ti's'ku'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
+s'k'y'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'y'y'fu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
+s'k'y'y'f'h                                                                     
+                                                                                
+                                                                                
+                                              vttctdyxhmtchfckkbougft yt        
+                                                                                
+                                                                                
+                                                                                
+                                                                           ffff 
+                                                      ttttttttttttttttt         
+        /;.g/bc''sd[quganjiahao ddffwsfrytrrrrrrrrrrrrrrrrrrrrrrrrrd'g'h'd't'nt'
+d'g'h'd't'n'jt'd'g'h'd't'n'j'dt'd'g'h'd't'n'j'd'jtdghdtnjdjsdfdagshahshgfd      
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
-                                        vttctdyxhmtchfckkbougft yt              
-                                                                                
-                                                                                
-                                                                                
-                                                                     ffff       
-                                                ttttttttttttttttt               
-  /;.g/bc''sd[quganjiahao ddffwsfrytrrrrrrrrrrrrrrrrrrrrrrrrrd'g'h'd't'nt'd'g'h'
-d't'n'jt'd'g'h'd't'n'j'dt'd'g'h'd't'n'j'd'jtdghdtnjdjsdfdagshahshgfd            
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-    gffuck hello there                                                          
-                                  o forlan nunca vai ler isso, easter egg       
-                  dd'sd's'rd's'r'gd's'r'g'gd's'r'g'g'dd's'r'g'g'd'gd's'r'g'g'd'g
-'sd's'r'g'g'd'g's'dd's'r     ijmijmmujunmunununn8uolll0lll9ilk9iiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii`'d'ga'd'ga'gd's'
-r'g'g'd'g's'd'ga'd'ga'gad's'r'g'g'd'g's'd'ga'd'ga'ga'gd's'r'g'g'd'g's'd'ga'd'ga'
-ga'g'hd's'r'g'g'd'g's'd'ga'd'ga'ga'g'hed's'r'g'g'd'g's'd'ga'd'ga'ga'g'he'dd's'r'
-g'g'd'g's'd'ga'd'ga'ga'g'he'd'td's'r'g'g'd'g's'd'ga'd'ga'ga'g'he'd't'jd's'r'g'g'
-d'g's'd'ga'd'ga'ga'g'he'd't'j't但是如果更多更深的嘎达嘎嘎嘎和地铁集团                              
-efddddddfddddddddddddd                                                          
-                                      00000;0123huhushuobadao                   
-                        777778                                                  
+          gffuck hello there                                                    
+                                        o forlan nunca vai ler isso, easter egg 
+                        dd'sd's'rd's'r'gd's'r'g'gd's'r'g'g'dd's'r'g'g'd'gd's'r'g
+'g'd'g'sd's'r'g'g'd'g's'dd's'r     ijmijmmujunmunununn8uolll0lll9ilk9iiiiiiiiiii
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii`'d'ga'd'ga
+'gd's'r'g'g'd'g's'd'ga'd'ga'gad's'r'g'g'd'g's'd'ga'd'ga'ga'gd's'r'g'g'd'g's'd'ga
+'d'ga'ga'g'hd's'r'g'g'd'g's'd'ga'd'ga'ga'g'hed's'r'g''gd'g's'd'ga'd'ga'ga'g'he'd
+d's'r'g'g'd'g's'd'ga'd'ga'ga'g'he'd'td's'r'g'g'd'g's'd'ga'd'ga'ga'g'he'd't'jd's'
+r'g'g'd'g's'd'ga'd'ga'ga'g'he'd't'j't但是如果更多更深的嘎达嘎嘎嘎和地铁集团                        
+      efddddddfddddddddddddd                                                    
+                                            00000;0123huhushuobadao             
+                              777778                                            
                                                                                 
                                                                                 
