@@ -8,7 +8,7 @@ suyw 102713 whhwywe 132yil9veiiiiiiiiiiiiiiiiiiiiiiiilovemygirlfriend
                                                                                 
                                                                                 
                                                                                 
-                                                            niggerniggerniggreni
+                                                  123       niggerniggerniggreni
 ggerniggerniggreniggerniggreniggreniggerniggerniggerniggerniggerniigrerg. ok im 
 done sayin gg noigger now, this is a pretty cool site                           
                                                                                 
@@ -30,7 +30,7 @@ e'ei'ti's'ku'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
 s'k'y'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'y'y'fu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
 s'k'y'y'f'h                                          hh'gh'g'hh'g'h'kh'g'h'k'gh'
 g'h'kgh'g'h'kh'g'hh'gh                                               fflaiyfyfuf
-ufjddjjjddjd                                                                    
+ufjddjjjddjdekxiddkdkddkkdkdkdkcz                                               
                                                vttctdyxhmtchfckkbougft yt       
                                                                                 
                                                                                 
