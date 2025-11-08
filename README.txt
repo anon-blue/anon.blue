@@ -5,10 +5,10 @@ suyw 102713 whhwywe 132yil9veiiiiiiiiiiiiiiiiiiiiiiiilovemygirlfriend
                                                                                 
                           ygfftuhmmhhhgvtttttttt                                
                                                                                 
-                   vcvbccccccdadajibafdawiuchsdodsgfe;wportpldc/                
-                                                                                
-                                                                                
-                                                  123       niggerniggerniggreni
+                   vcvbccccccdadatfftftftftftftftftftftfyvubj888764ewwqqqasrrhyg
+txezqaqawdrfjujijy6cxsszwxddctybuum99k98bcdzwzaeefbyumiik9ijytcez212zzrv6hhnnnil
+lomi7vf4xwwQqzz4cyynniin8ucdzawwwwWWXTTBJMOOBTDZAQaaxrtvbunijuucssQaWexxfbumib65
+zqa22xxtbbbbb4AaayvfdtbuicdrRRVYUNKMHYCDSZAAQAzzzzzdcccgbbjmmmibyt,awQEee4cccyni
 ggerniggerniggreniggerniggreniggreniggerniggerniggerniggerniggerniigrerg. ok im 
 done sayin gg noigger now, this is a pretty cool site                           
                                                                                 
