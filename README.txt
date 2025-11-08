@@ -4,57 +4,57 @@ suyw 102713 whhwywe 132yil9veiiiiiiiiiiiiiiiiiiiiiiiilovemygirlfriend
                                                                                 
                                                                                 
                           ygfftuhmmhhhgvtttttttt                                
-                                                                                
-                   vcvbccccccdadatfftftftftftftftftftftfyvubj888764ewwqqqasrrhyg
-txezqaqawdrfjujijy6cxsszwxddctybuum99k98bcdzwzaeefbyumiik9ijytcez212zzrv6hhnnnil
-lomi7vf4xwwQqzz4cyynniin8ucdzawwwwWWXTTBJMOOBTDZAQaaxrtvbunijuucssQaWexxfbumib65
-zqa22xxtbbbbb4AaayvfdtbuicdrRRVYUNKMHYCDSZAAQAzzzzzdcccgbbjmmmibyt,awQEee4cccyni
-ggerniggerniggreniggerniggreniggreniggerniggerniggerniggerniggerniigrerg. ok im 
-done sayin gg noigger now, this is a pretty cool site                           
-                                                                                
-                                                                hjgjdfffsafsdafa
-dsfdfsfsafsafdsddassssssssddsfjskldfaajflksdafjs                                
-                                                          sdfgsfdh              
-                                                                                
-                                                                                
-                                                     fgb gd gf                sd
-df                                                                              
-                                          hitler did nothinbg wrign hitler did n
-othing wr huihiuhuihuihuhiunjkhuoooooooooooooooooooooooooooooooooooooooooooooooo
-oooooooooooooooooooooooooohuunjnkjnjknkjnkh'huu'h'h'hu'hu'h'h'hu'h'hu'h'h'hu'h'h
-'yu'h'h'hu'h'h'y'tu'h'h'hu'h'h'y'teu'h'h'hu'h'h'y'te'eu'h'h'hu'h'h'y'te'e'uu'h'h
-'hu'h'h'y'te'e'u'tu'h'h'hu'h'h'y'te'e'u'to  h'h'hu'h'h'y'te'e'u'toeu'h'h'hu'h'h'
-y'tehjjjjjjkk7eu'h'h'hu'h'h'y'te'e'u'toe'eiu'h'h'hu'h'h'y'te'e'u'toe'ei't       
-                         sdssds                         u'h'h'hu'h'h'y'te'e'u'to
-e'ei'ti's'ku'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
-s'k'y'yu'h'h'hu'h'h'y'te'e'u'toe'ei'ti's'k'y'y'fu'h'h'hu'h'h'y'te'e'u'toe'ei'ti'
-s'k'y'y'f'h                                          hh'gh'g'hh'g'h'kh'g'h'k'gh'
-g'h'kgh'g'h'kh'g'hh'gh                                               fflaiyfyfuf
-ufjddjjjddjdekxiddkdkddkkdkdkdkcz                                               
-                                               vttctdyxhmtchfckkbougft yt       
-                                                                  i peed my pant
-s                                                                               
-                                                                                
-                       dogs are superior to cats                            ffff
-                                                       ttttttttttttttttt        
-         /;.g/bc''sd[quganjiahao ddffwsfrytrrrrrrrrrrrrrrrrrrrrrrrrrd'g'h'd't'nt
-'d'g'h'd't'n'jt'd'g'h'd't'mmm];.  sdccccssadaddd                                
+                                                                  iiuiuhiuheiu'h
+eiiu'hei'hiu'hei'hiiu'hei'hi'rdadatfftftftftftftftftftftfyvubj888764ewwqqqasrrhy
+gtxezqaqawdrfjujijy6cxsszwxddctybuum99k98bcdzwzaeefbyumiik9ijytcez212zzrv6hhnnni
+llomi7vf4xwwQqzz4cyynniin8ucdzawwwwWWXTTBJMOOBTDZAQaaxrtvbunijuucssQaWexxfbuiu'h
+ei'hi'r'g'IQWRWENTIKEiu'hei'hi'r'g'IQWRWENTIKEHiu'hei'hi'r'g'IQWRWENTIKEHRiu'hei
+'hi'r'g'IQWRWENTIKEHRIiu'hei'hi'r'g'IQWRWENTIKEHRITiu'hei'hi'r'g'IQWRWENTIKEHRIT
+Giu'hei'hi'r'g'IQWRWENTIKEHRITGKiu'hei'hi'r'g'IQWRWENTIKEHRITGKRiu'hei'hi'r'g'IQ
+WRWENTIKEHRITGKRDiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNiu'hei'hi'r'g'IQWRWENTIKEHRIT
+GKRDNV                                                                hjgjdfffsa
+fsdafadsfdfsfsafsafdsddassssssssddsfjskldfaajflksdafjs                          
+                                                                sdfgsfdh        
                                                                                 
                                                                                 
-                                                 i7uuu     fdxdu                
+                                                           fgb gd gf            
+    sddf                                                          iu'hei'hi'r'g'
+IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGU
+ERYGViu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIiu'hei'hi'r'g'IQWRWENTIK
+EHRITGKRDNVDGUIREKTGUERYGVIDiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVID
+Siu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGiu'hei'hi'r'g'IQWRWENTIKE
+HRITGKRDNVDGUIREKTGUERYGVIDSGIiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGV
+IDSGIRiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREiu'hei'hi'r'g'IQW
+RWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREIiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUI
+REKTGUERYGVIDSGIREIGiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREIGI
+iu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREIGIDiu'hei'hi'r'g'IQWRW
+ENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREIGIDKiu'hei'hi'r'g'IQWRWENTIKEHRITGKRDNVDG
+UIREKTGUERYGVIDSGIREIGIDKViu黑hi如果IQWRWENTIKEHRITGKRDNVDGUIREKTGUERYGVIDSGIREIGID
+KVXCASFEWaiyfyfufufjddjjjdHjdekxiddkdkddkkdkdkdkcz                              
+                                                                vttctdyxhmtchfck
+kbougft yt                                                                      
+   i peed my pants                                                              
+                                                                                
+                                        dogs are superior to cats               
+             ffff                                                       tttttttt
+ttttttttt                 /;.g/bc''sd[quganjiahao ddffwsfrytrrrrrrrrrrrrrrrrrrrr
+rrrrrd'g'h'd't'nt'd'g'h'd't'n'jt'd'g'h'd't'mmm];.  sdccccssadaddd               
                                                                                 
                                                                                 
-           gffuck hello there                                                   
-                                         o forlan nunca vai ler isso, easter egg
-                         dd'sd's'rd's'r'ssksuuubxzbbunusijijiknjsubbhbsyubub8hh8
-88u9huibub real, and the jews control tjehe media. 1488 whitep powerk9iiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii`'d'ga'd'g
-a'gd's'r'g'g'd'g's'd'ga'd'ga'gad's'r'g'g'hjhjhhhhha'd'ga'ga'gd's'r'g'g'd'g's'd'g
-a'd'ga'ga'g'hd's'r'g'g'd'g's'd'ga'd'ga'ga'ss'ds'd'ds'd'd'ss'd'd'sas'd'd'sasdasda
-sfasfdeqweqwewewesdfsdfdkdfjlksjglkdfsjgioewroipweprijlkdfjglkfdjlkgsjdflkgjfds;
-jg;sdfjg;ljdfslgjlkdfsjglksdjflgkjdsflkgjklfdjgklfdj;gkljsdf;lkgj;lkdfjg;ldjsflg
-kjsdf;lgkjsd;lfkgj;lkdfjg;lksdfjglksjdfglkdjfs;glkjsdflkgjs;ldkfjgl;sdfjgl;jd;lf
-kgjlkdsfjglksdfjg;lkjsdflgjksfd;lgkjsl;kdfjglkjsdfglkjsdfl;kgjls;dkfjglkdfjgfgfd
-g   lkhb                       777778                                           
+                                                                  i7uuu     fdxd
+u                                                                               
+                                                                                
+                            gffuck hello there                                  
+                                                          o forlan nunca vai ler
+ isso, easter egg                         dd'sd's'rd's'r'ssksuuubxzbbunusijijikn
+jsubbhbsyubub8hh888u9huibub real, and the jews control tjehe media. 1488 whitep 
+powerk9iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+iiiiiii`'d'ga'd'ga'gd's'r'g'g'd'g's'd'ga'd'ga'gad's'r'g'g'hjhjhhhhha'd'ga'ga'gd'
+s'r'g'g'd'g's'd'ga'd'ga'ga'g'hd's'r'g'g'd'g's'd'ga'd'ga'ga'ss'ds'd'ds'd'd'ss'd'd
+'sas'd'd'sasdasdasfasfdeqweqwewewesdfsdfdkdfjlksjglkdfsjgioewroipweprijlkdfjglkf
+djlkgsjdflkgjfds;jg;sdfjg;ljdfslgjlkdfsjglksdjflgkjdsflkgjklfdjgklfdj;gkljsdf;lk
+gj;lkdfjg;ldjsflgkjsdf;lgkjsd;lfkgj;lkdfjg;lksdfjglksjdfglkdjfs;glkjsdflkgjs;ldk
+fjgl;sdfjgl;jd;lfkgjlkdsfjglksdfjg;lkjsdflgjksfd;lgkjsl;kdfjglkjsdfglkjsdfl;kgjl
+s;dkfjglkdfjgfgfdg   lkhb                       777778                          
                                                                                 
                                                                                 
