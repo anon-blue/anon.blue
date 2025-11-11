@@ -48,7 +48,7 @@ u
                                                           o forlan nunca vai ler
  isso, easter egg                         dd'sd's'rd's'r'ssksuuubxzbbunusijijikn
 jsubbhbsyubub8hh888u9huibub real, and the jews control tjehe media. 1488 whitep 
-powerk9iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
+powerk9iiiiiiiiiiiiiiieeddrrddiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiii`'d'ga'd'ga'gd's'r'g'g'd'g's'd'ga'd'ga'gad's'r'g'g'hjhjhhhhha'd'ga'ga'gd'
 s'r'g'g'd'g's'd'ga'd'ga'ga'g'hd's'r'g'g'd'g's'd'ga'd'ga'ga'ss'ds'd'ds'd'd'ss'd'd
 'sas'd'd'sasdasdasfasfdeqweqwewewesdfsdfdkdfjlksjglkdfsjgioewroipweprijlkdfjglkf
