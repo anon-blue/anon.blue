@@ -55,6 +55,6 @@ sdasdsssda so is this gonna stay forecveverr ow sjhit ican detlete hahahaha|||||
 ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||k
-jnbjjhkhkjhjhkjhjkjhkj||||||||||||||||||||asd adada|||||||||||||||||||||||||||||
-|||||||||||||||||||||                                                           
-              f11                                                               
+jnbjjhkhkjhjhkjhjkjhkj||||||||||||||||||||asd adadaasdasd wwada  wdadaselect * f
+rom it001nihao    qweqweq sfwnfjnahur hwwfs select * from delete update from mno
+shao  awdn gksfmzhgeshi spadawruas                                              
