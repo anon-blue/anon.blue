@@ -50,11 +50,11 @@ jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj||||||||||||||||||||
 ||||||||||||||||||||||||||||||||||||||||||||||||||||asas |||||||||||||||||||||||
 ||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
 |||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||a
-sdasdsssda so is this gonna stay forecveverr ow sjhit ican detlete hahahaha|||||
-|||||||||||||||||   sdf help! Your computer is not good! OPress 'e' to continue.
-You can wait for 5 minute or later to wait for your con comppdcqd22ecqed2`3!!!!!
-!!!!!!!!!!111111||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||
-|||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||||k
-jnbjjhkhkjhjhkjhjkjhkj||||||||||||||||||||asd adadaasdasd wwada  wdadaselect * f
-rom it001nihao    qweqweq sfwnfjnahur hwwfs select * from delete update from mno
+sdasdsssdsjsjshsxbdyvxydvxhdvxugdvxugvugdvcyuddvjehgcyudvxudyvxdyubciudybcudihvc
+hudvcdgchjgxcyducvydvxduhvchjdzvxyuidvcygdjvxgduvcyudcvgudvvcdgvydvccugvcugdzvcg
+ydvcuydbxhudzzbchudbxuisbxduysvxhduzbijwnsiuwhd,yeggdhudvdheusbbdiesdiuehbdes iu
+dhdudhdyidhdkdyvvciysdg gddsyg kudsuhfysevdydvcyrvvcggcdhuvscuyvdrcuyrvfyuesggdu
+ywhkeudycvuieyvwuywvsuywdgeyvduwyvsuwvdeeuyvduyevduevvduyevdbeiufbbeuivvduydbdui
+edbeuyvduhhexbheudyjsvdeuy duhe duhevdeyvdugevdehudgud xuhdxkexduhidxiuhdvxidxve
+ugdhuwbkwhukao    qweqweq sfwnfjnahur hwwfs select * from delete update from mno
 shao  awdn gksfmzhgeshi spadawruas                                              
