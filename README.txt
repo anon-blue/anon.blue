@@ -1,4 +1,4 @@
-,bfjndms,vbhdfm,abvhf,eabvhrjeab                                                
+   jndms,vbhdfm,abvhf,eabvhrjeab                                                
    ttgggerggrghello my friend july ... i hope u have a good time:>              
                                                                                 
                                                                                 
@@ -11,7 +11,7 @@ ccccccccccccccccccccccccccccccccccccccccccccxccccccccc
                                                                                 
                                  qqqqqqqqdicckkqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqqq
 qqqqqqqqqqqqqqqqqqqqqqqqqq                                                 dasda
-sdas lolredffd           a?OvO                                                  
+sdas lolre-  -  lorem im                                                        
                                                                                 
                                                                                 
                                                                                 
@@ -24,7 +24,7 @@ ffffffffffffff7g888g7hudf77777uuuuuhu8888vuh8rfjflkdsfjsfoieofjldsjflkdsfjsfoieo
 i        njkln                                                                  
           fjldsjflkdsfjsfoieoijwoiefjldsjflkdsfjsfoieoijwoiewfjldsjflkdsfjsfoieo
 ijwoiewifjldsjflkdsfjsfoieoijwoiewiofjldsjflkdsfjsfoieoijwoiewiokfjldsjflkdsfjsf
-oieoijwoiewiokwfjldsjflkdsfjsfoieoijwoiewiokwefjldsjflkdsfjsfoieoijwoiewiokwejfj
+oieoijwoiewiokwfjldsjflkdsfjsfoieoijwoiewiokwefjldsjflkdsfjsfoloremwoiewiokwejfj
 ldsdasdassdsadieoijwoiewiokwejofjldsjflkdsfjsfoieoijwoiewiokwejoifjldsjflkdsfjsf
 oieoijwoiewiokwecdwsswxsdqxasfjsfoieoijwoiewiokwejfjldsjjjjjjjjjjjjeoijwoiewiokw
 efjldsjflkdsfjsfoieoijwoiewiokwfjldsjflkdsfjsfoieoijwoiewiokfjldsjflkdsfjsfoieoi
@@ -43,7 +43,7 @@ jKDJKMFhh'hh'h'hh'h'h'h哈哈哈哈哈哈哈哈哈78778gggggghhhhhhhhhhhhhhhhhhh
                                                                                 
                                                                                 
                                                                                 
-                                                                                
+                                                     lore                       
    jjj                  Kuromify the World Project               oygut75rg64gyr6
 ryrdhyt5rg5ryyt5tftt5555555                                                     
                                                                          ghcs   
@@ -52,9 +52,9 @@ ryrdhyt5rg5ryyt5tftt5555555
                                                                                 
                                                                                 
                                            bb'jbjjj'ojojjii及jjljljkljljljljljklj
-jjjjjjjjjy8cttcyyvuuf55eeewww7eeeygg9vyddd8eewwwddd8cc9vvvp                     
+jjjjjjjjjy8ctfffasduf55eeewww7eeeygg9vyddd8eewwwddd8cc9vvvp                     
                                                                                 
                                                                                 
-                                                                   ffggg        
-                  ffafsdfds                                                     
-                                           csjdfghsa,fghdsja,gfhdjs,agfhj,reugai
+                                                 lorem ipsum sit doler ett      
+                                                                                
+                                                                                
