@@ -9,7 +9,7 @@ ccccccccccccccccccccccccccccccccccccccccccccxccccccccc
                                                                                 
                                                                                 
                                                                                 
-                                 qqqqqqqqdigfdddqqqqqqqqqqqqqqqqqqqqqytrerffrrrf
+                                 qqqqqqqqdigfdddyvy79;;;;;;uqqqqqqqqqytrerffrrrf
 ggytrreeeqqqqqqqqqqqqqqqqq                                                 ddddd
 ddddddddddddddddddddddddddddddddddddddddddadwdawoshinibabab1ahahh1ainiyouyou fuc
 k so fuck you loveerrr                                                          
@@ -42,7 +42,7 @@ jKDJKMFhh'hh'h'hh'h'h'h哈哈哈哈哈哈哈哈哈78778gggggghhhhhhhhhhhhhhhhhhh
                                jjjwwwhhhhh                                      
                                                                                 
                                                                                 
-                                                                                
+                                                  oo1eioooo                     
                                                      lore                       
    jjj                  Kuromify the World Projectuuuuuiuuihehshshjshehdhhdhrhrh
 hdhwwwwwwiiuii'jiuuiiuii'jiiuuiiuii'jii'ouuiiuii'jii'o'iuuiiuii'jii'o'iiuuiiuii'
