@@ -12,8 +12,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh bipjidjijZAX
                                                                   DENM WNJKJW NM
 MC N NJKCCJNKCDAMN                                                              
                                                                      rteuusjfuck
-yo                                                    hdokokokthiscan'tbedeletde
-///////////////ohgoshispellitwrong                                              
+yoi fuck you bucjh niggier nigger     3y4u4hegvsvrjthrhrhrhrgrgef3geg3g3gegegeg4
+grh4hrh4h5h3h4hohgoshispellitwrong                                              
                                                                                 
                                                                                 
                         74455555551111111111111111111111111                     
