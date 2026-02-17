@@ -11,8 +11,8 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh bipjidjijZAX
                                                                                 
                                                                   DENM WNJKJW NM
 MC N NJKCCJNKCDAMN                                                              
-                                                                                
-                                                      hdokokokthiscan'tbedeletde
+                                                                     rteuusjfuck
+yo                                                    hdokokokthiscan'tbedeletde
 ///////////////ohgoshispellitwrong                                              
                                                                                 
                                                                                 
