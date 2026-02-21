@@ -10,7 +10,7 @@ hhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh bipjidjijZAX
                                         rt55                                    
                                                                                 
                                                                   DENM WNJKJW NM
-MC N NJKCCJNKCDAMN                                                 yY6%         
+MC N NJKCCJNKCDAMN                                      hi         yY6%         
                                                                      rteuusjfuck
 yoi fuck you bucjh niggier nigger     3y4u4hegvsvrjthrhrhrhrgrgef3geg3g3gegegeg4
 grh4hrh4h5h3h4hohgoshispellitwrong                                              
