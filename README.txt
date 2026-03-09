@@ -47,8 +47,8 @@ gdgf                                          ljb  nbcvnisiwwjsjwjskak7878787877
                   p               pl                       pl                rff
 f                                  yy'yy'y'y'y'y'y'y'yy'y'y'y'y'y'y'y'y'yy'y'y'y
 'y'y'y'y'y'y'yy'y'y'y'y'y'y'y'y'y'y'y'yy'y'y'y'y'y'y'y'y'y'y'y'y'y'y            
-                             yy'yy'y'yy'y'y'yy'y'y'y'yy'y'y'y'y'yy'y'y'y'y'y'y  
-hklk;ccawcccccccsawddwhello???wtf;fbossnfafnaf  faiofnaklfnaf naowlfkas,f mcawk 
+                             yy'yy'y'yy'y'y'yy'y'y'y'yy'y'y'y'y'yykuokpuoyuopkjj
+kooukccawcccccccsawddwhello???wtf;fbossnfafnaf  faiofnaklfnaf naowlfkas,f mcawk 
                                                                    massmsmmmmsm 
                                                              tt'tt't't          
          yyyyyyyyyyyyyyyyyaa'fa'faa'fa'dgtrctg                 jkljkl\kknnnnnnnn
