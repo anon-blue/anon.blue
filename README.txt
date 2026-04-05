@@ -42,8 +42,8 @@ sdasdasssapPIDORASYPIDORASYPIDORASYPIDORASY
                    P I D O R A S Y                        P I D O R A S Y       
               P I D O S                                                         
                                       P I D O R A S Y                           
-                                                  w                             
-                                                                                
+                                            E          ENOT>SOFTWARE ENOT>SOFTWA
+RE ENOT>                                                                        
                                                                                 
                                                                                 
                                                                                 
