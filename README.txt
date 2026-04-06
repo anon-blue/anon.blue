@@ -44,6 +44,7 @@ sdasdasssapPIDORASYPIDORASYPIDORASYPIDORASY
                                       P I D O R A S Y                           
                                             E          ENOT>SOFTWARE ENOT>SOFTWA
 RE ENOT>                                                                        
+       h                hfkn                                                    
                                                                                 
                                                                                 
                                                                                 
@@ -51,9 +52,8 @@ RE ENOT>
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-            jiijkjijdahfiusahfsajfoiwajeojgowejgojnsdfsa144444444444444444444444
-444444444444444/detele0                                                         
+             jiijkjijdahfiusahfsajfoiwajeojgowejgojnsdfsa14444444444444444444444
+4444444444444444/detele0                                                        
                                                                                 
                                                                                 
                                                                                 
