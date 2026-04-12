@@ -28,23 +28,17 @@ YeRhbYyBthtt'rt'r'j'j't'r'j'tt'r'j't'rts1111111111111111111111111‰6（（$）]
 ]*gggggggggggggggggggggdf                                                       
                                                                                 
  突然间try不会同意要不要和认同不认同你要                                                          
-                                             ff            v          vu        
-   56tyu                                                                        
-               ttrump            ttr                                            
-                                                            hj              hjhj
-                jkn                                                             
+ nj              njjjjjjjjjjjjjk              ff            v          vu       
+    56tyu                                                                       
+                ttrump            ttr                                           
+                                                             hj              hjh
+j                jkn                                                            
                                                                                 
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-    f                f??1????????                                               
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+     f                f??1????????                                              
                                                                                 
                                                                                 
                                                                                 
@@ -56,5 +50,11 @@ YeRhbYyBthtt'rt'r'j'j't'r'j'tt'r'j't'rts1111111111111111111111111‰6（（$）]
                                                                                 
                                                                                 
                                                                                 
-    hqjqjwhjwjajijaooo                                                          
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+     hqjqjwhjwjajijaooo                                                         
                                                                                 
