@@ -39,8 +39,8 @@ ssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
 ssssss                                                                          
                                                                                 
                                                                                 
-                                           f??1????????                         
-           yhhhjhhgghhhhhbvfftujkoiuuytggv我还小💔就学会了与世界为敌💔我还小💔就爱上了黑夜的孤寂💔我还小💔就看清了虚伪
+                                                                                
+                                    uytggv我还小💔就学会了与世界为敌💔我还小💔就爱上了黑夜的孤寂💔我还小💔就看清了虚伪
 的面具💔我还小💔就流干了天真的泪滴💔香烟抽了无数💔烈酒喝到想吐💔向你迈出99步💔你却断了我的路💔风情万种红尘💔唯独对你失神💔为何你要把我拒vvcvchvchfv
 'ch'f'xv'ch'f'x'kv'ch'f'x'k'fv'ch'f'x'k'f'yv'ch'f'x'k'f'y'hv'ch'f'x'k'f'y'h'xv'c
 h'f'x'k'f'y'h'x'yv'ch'f'x'k'f'y'h'x'y'f我是女王陛下💔我要是哭了💔你们💔都得si💔 啊啊啊啊啊… 已黑化……🖤💔steam
