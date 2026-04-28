@@ -32,7 +32,7 @@ feretgesrrgergergshikwwkkwkjjjiiw
     56tyu                                                                       
                hjnnn     ttrump            ttr                                  
                                                            dff                d 
-                                                              hj              hj
+                          v        vvv                        hj              hj
 hj                jkn hhhhhhhhhhhhhhhhhhjh    jb bi djb jbjbjb jbjb             
                                                                                 
                                                                                 
