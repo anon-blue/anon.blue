@@ -12,7 +12,7 @@ kkkkkkkkkkkkk vjcnbhfdxrxxujkziyaskl.zdfghgjkhjgfdszAXzscdx
                                                                                 
                                                                                 
                                                                                 
-     k*k*kk*k*k*hhhhhhhhhhhh🐂🍺🐂🍺🐂🍺🐂🍺😞😞😞😞😞😞w                                     
+             *k*hhhhhhhhhhhh🐂🍺🐂🍺🐂🍺🐂🍺😞😞😞😞😞😞w                                     
                                                                                 
                                                                          vfvvjf🤡
 🤡🤡🤡🤡🤡🤡🤡🤡🤡🤡🤡😅😅😅😅😅😅😅😅😅a]ca[dpa ]capicAndaia .[/' OP ' A[AJMCDANEKDISO ddddddd k kk
