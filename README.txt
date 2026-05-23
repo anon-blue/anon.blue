@@ -43,18 +43,18 @@ fnnnncccn::::````&;;;;;;;;&####$$444;:!# ###4444$$$$$$77^744448!^8$$8*!!!%&&&&&4
                                                                                 
                                                                                 
                                                                                 
+                                     jig iug gygjj                              
                                                                                 
                                                                                 
+                                                           s             s      
+                          s        s       s               keskkekxkxkxkccmc    
+                s                ke  s      ssksk  s          s                 
+               s ke  s                                        s                 
+s                s               s s                s                          s
+                        s              s s    s                   s             
+                                       s    s             s                     
                                                                                 
-                                                         s             s        
-                        s        s       s               keskkekxkxkxkccmc      
-              s                ke  s      ssksk  s          s                   
-             s ke  s                                        s                 s 
-               s               s s                s                          s  
-                      s              s s    s                   s               
-                                     s    s             s                       
-                                                                                
-                 12 14444444444444444423    12         12                       
+                   12 14444444444444444423    12         12                     
                                                                                 
                                                                                 
                                                                                 
