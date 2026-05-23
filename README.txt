@@ -44,8 +44,8 @@ fnnnncccn::::````&;;;;;;;;&####$$444;:!# ###4444$$$$$$77^744448!^8$$8*!!!%&&&&&4
                     hhh                                                         
                                                                                 
                                                                                 
-         exrdcfvgbhjnkml,;.gggggggggg y y  j           y yguguygugr66nihao  gggg
-gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg  gggggggggggggg  gg
+         exrdcfvgbhjnkml,;.ggggggggggggggggggggggggggggggggggggggggggggggggggggg
+gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg  ggg
 ggggggggg  ggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
 gggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggggg
