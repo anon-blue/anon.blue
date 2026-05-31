@@ -2,7 +2,7 @@ cfvffddfggftbsgneg3twthethwtjetjetjetjethefhethcccccccb5555bbbiVCNBVCCVNVNHVNHBV
  NHBVNHBVVVVNHBVNHBVNHBVFGFVNBDFSFGESzCVDFSADASfaavvref6767676767676767676767676
 76r6🤡 🤡🤡🤡🤡🤡🤡🤡😅😅😅😅😅😅😅😅😅a]ca[dpa ]capi0Andaiaggghbvgghw1112222DANEKDISO ddddddd k 
 kkiihl kjiokksjj A非蓝色cc ddffff FGGGGGHGHHH GG ' GG ' kjjgggkkm anja nxk ihjgfghj
-kjkhgfcvdxzdcdcdcdcd223224242342342342342342KILL ALL NAZIS ,bvc zhdhdhdhdchhxhda
+kjkhgfcvdxzdcdcdcdcd223224242342342342342342KILL ALL NAZIS LAEc zhdhdhdhdchhxhda
 ahdhchhdhcbcbchchhcbchchcbfhcvee'e6767667676676766767676766767676767676767667676
 76766767676767676676767676767676767676767667676767676767676767676766767676767676
 767676767676767667676767 6767676767679291777777777777777777777777777777voxvox ov
@@ -50,11 +50,11 @@ ss    s      sb  sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb        s           sb   s
                      s                               sss      s                 
   ss                sss        sss              ss                              
  sss                                                                            
-                                                                                
-                                                                                
-                                                                                
-                                                                                
-                                                                                
+                                                     I    I       I    I     II 
+I  I                                                  I                         
+                                   I                   YO    I   II             
+          I         I                YOU ARE RA          Y     I                
+I I                  YI     IF YOU ARE SEEING THIS GO REPORT IT TO THE LOCAL CP 
                                                                                 
                                                                                 
                                                                                 
