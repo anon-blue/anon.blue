@@ -49,9 +49,9 @@ s    s      sb  sbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsbsb        s           sb   s
                   s           sb                      s        sss     s       s
                    s        ss    ss                              sss           
        ss                 sss                                                   
-      sss                                                                       
-       I                II I  I       I    I       I    I              I        
-                                                       I                        
+      sss                                                             hgg'ig'i'g
+gigigigi'ggigi'g'ygigi'g'yigigi'g'yi'ygigi'g'yi'y'ggigigyiygjjyy'gygjj'gjgyy'jyj
+gg                                                     I                        
 YO    I   II                        I         I                                Y
 OU ARE RA          Y     I         YI     IF YOU ARE                   gyhguyguy
 gyugy                  jifj            jifjjifjifjiojioiohjphpioiojklflkjjklfdjk
