@@ -32,8 +32,8 @@ dddddddddddddddddddddddddddddddddddddddddddddhdddhhhdddddddddfewfaefcddvvyy766jj
 hhjlokklll5lllokkmmmoolllkkk7lllkkyg7tmtmmtk6mmkmmy66687878787878787878787875rjh
 yyjtihnbsrnvgjhsdnbfvjhsbnfdvhjg lfgyyyhbfvhjdsnfjhnjfdgnbjkfg  u8u             
                                           ghh                             hgyuyt
-tycyfy    ctcf5f5fttt77x7tx77sstv8yc7tx77x7tfd5f6rz6rciivgucutx7rx77x7tx77xttx7r
-x7rx7t--------- --------------------------------- -------------- - -------------
+tycyfy    ctcf5f5fttt77x7tx77sstv8yc7tx77x7tfd5f6rz6rciivgucutjoijuuuuuuuuuuuhuu
+uuuuuuuuuuuu--- --------------------------------- -------------- - -------------
  ------------ ----------------jjjsioz  akape8e8e8e8eiieieiieieiieieieii292929393
 93qilimutianqilimutianqilimutianqilisdssdxie xiexie vvcrus a derk ingc urcrudsad
 erkingsrqwwe'qw e'q'wwe'q'we'q'we'q'we'q'we'q'w e'q'w ew光光光 委屈屈屈屈威ww'w w'ww'w'w'
@@ -56,5 +56,5 @@ YO    yjyjriificffu7474777777       I         I                                Y
 OU ARE RA          Y     I         YI     IF YOU ARE                   gyhguyguy
 gyugy                  jifj            jifjjifjifjiojioiohjphpioiojklflkjjklfdjk
 ljkhl kjljkljkljkljkjkljkldsaf jasjhklfiohuohuiihoqjio uiopoiiopio ioioiofsdio;f
-dddddddddddddeeedhhhjjjjjjjjjjjjddfbdftvffdsfsfwrha as sa f gdg dsf gd fg fd sg 
+dddddddddddddeeedhhhjjjjjjjjjjjjjjjjdftvffdsfsfwrha as sa f gdg dsf gd fg fd sg 
                                                                                 
