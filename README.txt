@@ -30,8 +30,8 @@ bnfd[onb;fckxvgmf;k.gjmfdpobjdfp[vobkmfd;bm,cx;klvbmlcxkmbl;kckbnbfpkmbfigjkbm;l
 ksgdbmj6767676767676767676767676767676767676                                    
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                                nis                n    hishabi 
+  wqeq          n                                                               
                                                      da  s                      
                                                                                 
                                                                                 
