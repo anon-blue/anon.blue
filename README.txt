@@ -31,8 +31,8 @@ f 's'd're'gf'd'f's'da'a'f'd'ga'f's'd're' g'df'd'f's'da' a'f'd'ga'f's're
                                                                                 
                                                                                 
 nnini'hni'hani'hao你好,yyuyuayuanyuan'fyuan'fayuan'fanyuan'fang远方dde的             
-                                                                                
-    hello                                                                       
+                                                                 buuibubhubhubih
+ubiuhbuuuuuuu0⊙⊙                                                                
       Hello,i'm a viewer of this website.This website is so funny!!!            
                                                                                 
      Here I am,leaving a note in this sea of blue.To whoever reads this:you are 
