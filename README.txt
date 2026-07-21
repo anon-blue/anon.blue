@@ -32,11 +32,11 @@ f 's'd're'gf'd'f's'da'a'f'd'ga'f's'd're' g'df'd'f's'da' a'f'd'ga'f's're
                                                                                 
 nnini'hni'hani'hao你好,yyuyuayuanyuan'fyuan'fayuan'fanyuan'fang远方dde的             
                                                                  buuibubhubhubih
-ubiuhbuuuuuuu0⊙⊙                                                                
-      Hello,i'm a viewer of this website.This website is so funny!!!            
+ubiuhbuuuuuuu0⊙⊙⊙😡1外上上钅钅钔                                                       
+     Hello,i'm a viewer of this website.This website is so funny!!!             
                                                                                 
-     Here I am,leaving a note in this sea of blue.To whoever reads this:you are 
-not along.even a crash can't stop us from connecting.                           
+    Here I am,leaving a note in this sea of blue.To whoever reads this:you are n
+ot along.even a crash can't stop us from connecting.                            
                                                                                 
                                                                                 
                                                                                 
