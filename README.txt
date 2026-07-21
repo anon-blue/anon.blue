@@ -35,8 +35,8 @@ nnini'hni'hani'hao你好,yyuyuayuanyuan'fyuan'fayuan'fanyuan'fang远方dde的
     hello                                                                       
       Hello,i'm a viewer of this website.This website is so funny!!!            
                                                                                 
-     Here I am,leaving a note in this哇哇哇哇jhjkf ff khiekekekeeiferkwueje 我来自哪里 df
-fdf sd f df fgfdgfd gfdgfd fggdfs gsdfe rhrgdfgdfhgfhgfhgfhfghgfhgfhgfgsdffhyhth
+     Here I am,leaving a note in this sea of blue.To whoever reads this:you are 
+not along.even a crash can't stop gsdfe rhrgdfgdfhgfhgfhgfhfghgfhgfhgfgsdffhyhth
 1712 3123zjcaichishishiwoshishabiffff\\ \gfd ggggggfdgfdg 悲伤啊哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈)哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
