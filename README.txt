@@ -33,28 +33,28 @@ f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'd're' g'df'd'f's'da' a'f'd'ga'f's're
        nnini'hni'hani'hao你好,yyuyuayuanyuan'fyuan'fayuan'fanyuan'fang远方dde的      
                                                                         buuibubh
 ubhubihubiuhbuunuuuu0⊙⊙⊙😡1外上上钅钅钔                                                
-            Hello,i'm a viewjuygi998yyhuebsite.This website is so funny!!!      
-                                                                                
-           Here I am,leaving a note in this sea of blue.To whoever reads this:yo
-u are not along.even a crash can't stop us from connecting.                     
-                                   hhhh66666h6a3b63335bbbbbbbb555bbbbbbbbbb6aaaa
-aaa65b4445644456nnnnnaaaannnnnnnnnnnnnaaaannn6r5yrrnnaaa5ya5nnr5ny4nn444naaaaaab
-bb56nnnnnn6444nnaaa5b65555556bbb6b6333bv633vvvvvvvyee4y33vvvvvvvv4633346e5745nnn
-nnnn8555555nrrr5ye                   a daahahayiliwala          fe              
-                                                                                
-                                                                                
-                                               fdfuf**kblue cscreen!!!wa'ldbf;si
-bf;oiaclnalxwdnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnncffffffffffffffffffffffffffff
-ffffffffffff                                                                ugug
-v n''231                hjjjkjksadsadasdsdasdddddddddddddddddddddddddddssanhnhih
-ihihihihihihiihihiihihihiihihihiihihloveul;oloveLOVEyi            he            
-               u              uuy                        uuu                    
-         cnmcnmgggggggffeffmmmmmmmmmmcnmcnm    keoeie                         jj
-jsbSBidiotvvvvvvvvvvvvvvvvvvvvv                                                 
+            Hello,i'm a viewjuygi998yyhuebsite.这个网站太有趣了！！！我在这里，在这片蓝色的海洋里留下一张纸条。致
+所有看到这条信息的人：你并不孤单。即使遭遇挫折，也无法阻止我们彼此连接。 hhhh66666h6a3b63335bbbbbbbb555bbbbbbbbbb6aa
+aa aaa65b4445644456nnnnnaaaannnnnnnnnnnnnnaaaannn6r5yrrnnaaa5ya5nnr5ny4nn444naaa
+aaab bb56nnnnnn6444nnaaa5b65555556bbb6b6333bv633vvvvvvvyee4y33vvvvvvvv4633346e57
+45nnn nnnn8555555nrrr5ye a daahahayiliwala fe fdfuf**kblue cscreen!!!wa'ldbf;si 
+bf;oiaclnalxwdnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnncffffffffffffffffffffffffff
+ffffffffffffff ugug v n''231 hjjjkjksadsadasdsdasddddddddddddddddddddddddddssanh
+nhih ihihihihihihihihiihihihihihihihiihihloveul;loveloveyi he u uuy uuu cnmcnmgg
+gggggffeffmmmmmmmmmmcnmcnm keoeie jj jsbSBidiotvvvvvvvvvvvvvvvvvvvv bnbgvvdfghnf
+aN古迪IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
+IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
+IIIIII iiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+jjjjjjjjjjjjjjjjjjjjjj                                                          
                                                                                 
                                                                                 
                                                                                 
                                                                                 
-                                                                  bnbgvvdfghnfaN
-Gyudiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj                                    
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
+                                                                                
