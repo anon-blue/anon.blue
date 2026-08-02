@@ -23,7 +23,7 @@ i'jie文字世界gguhhhha6767676767676767676767676767676767676767676767676767676
 not ''chink;;''white pig ''''nigger''NO ANY RASICMijoijjjjjjjjjjjjjjjjjjdasasdfa
 dsj fhjjjjjjjjjjjjjjjjjjjjj56jjjjjjj566526jjjjjjjjjjjjjjjjjjjjj5656jjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjx xzxew awdawdawdwd'ga'f's'd'ref'd'f's'da'a'
-f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'dzhong'wen'bu''s'da' a'f'd'ga'f's're  
+f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'dzhong'wen'bu'guan'yongf'd'ga'f's're  
                                                                 aazhezS         
 a                                                                               
  43232dxcww wdzsdxw                                                             
