@@ -47,7 +47,7 @@ IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
 IIIIIII iiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio                         hello           
-                    o               oh,hello,you playing this ybjhv too?hello?  
+   zzzhzhezhzzzhzhe这s是ss'm什么ggugui鬼 oh,hello,you playing this ybjhv too?hello?  
 are you chifbvhf form china?or usa?or uk?or india?or japan?or korea?or austraria
 ?or afirca?or canada?or south america?or france? or eropa?or russia?or tailand?i
 'm so sorry .i don,t speak english.i'ts too hard.                               
