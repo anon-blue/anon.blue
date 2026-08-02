@@ -48,8 +48,8 @@ IIIIIII iiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio                                         
                     o               oh,hello,you playing this ybjhv too?hello?  
-are you chifbvhf form china?or usa?or uk?or india?                              
-                                                                                
+are you chifbvhf form china?or usa?or uk?or india?or japan?or korea?or austraria
+?                                                                               
                                                                                 
                                                   hdfg            gf            
                   h                                               ddddddd啊打了就删不掉
