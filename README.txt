@@ -23,7 +23,7 @@ i'jie文字世界gguhhhha6767676767676767676767676767676767676767676767676767676
 not ''chink;;''white pig ''''nigger''NO ANY RASICMijoijjjjjjjjjjjjjjjjjjdasasdfa
 dsj fhjjjjjjjjjjjjjjjjjjjjj56jjjjjjj566526jjjjjjjjjjjjjjjjjjjjj5656jjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjx xzxew awdawdawdwd'ga'f's'd'ref'd'f's'da'a'
-f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'd're' g'df'd'f's'da' a'f'd'ga'f's're  
+f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'dzhong'wen'bu''s'da' a'f'd'ga'f's're  
                                                                 aazhezS         
 a                                                                               
  43232dxcww wdzsdxw                                                             
@@ -46,7 +46,7 @@ faN古迪IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
 IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
 IIIIIII iiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
-iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio                                         
+iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio                         hello           
                     o               oh,hello,you playing this ybjhv too?hello?  
 are you chifbvhf form china?or usa?or uk?or india?or japan?or korea?or austraria
 ?or afirca?or canada?or south america?or france? or eropa?or russia?or tailand?i
