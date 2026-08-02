@@ -50,7 +50,7 @@ iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio
                     o               oh,hello,you playing this ybjhv too?hello?  
 are you chifbvhf form china?or usa?or uk?or india?or japan?or korea?or austraria
 ?or afirca?or canada?or south america?or france? or eropa?or russia?or tailand?i
-                                                                                
+'m so sorry .i don,t speak english.i't                                          
                                                   hdfg            gf            
                   h                                               ddddddd啊打了就删不掉
 了 d                                                                             
