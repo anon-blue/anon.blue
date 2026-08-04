@@ -47,12 +47,12 @@ IIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIIII
 IIIIIII iiiijjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii
 iiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiio                         hello           
-   zzzhzhezhzzzhzhe这s是ss'm什么ggugui鬼hhehe'lhe'l'lhellohello？is ybjhv too?hello?  
-are you chifbvhf form china?or usa?or uk?or india?or japan?or korea?or austraria
-?or afirca?or canada?or south america?or france? or eropa?or russia?or tailand?i
-'m so sorry .i don,t speak english.i'ts too hard.                               
-                                                  hdfg            gf            
-                  h                                               ddddddd啊打了就删不掉
+   zzzhzhezhzzzhzhe这s是ss'm什么ggugui鬼hhehe'lhe'l'lhellohello？isxdcvsdfkjeghfkjkdjf
+l;akfkljsdflksjdhfkjm,'fuakuyoual,kshfihFKMN;KSGHC;kjdbf;liydflkfhwokssksjsjsjsj
+jjjjjjjjjkjsdhflksdmnxkcjhsdkjfbsldkjsxinruiznuasngwoienlsdiugflkwmenbixuenbxcus
+nsndkjshdgflksjdflkjsdgfdddddddddddddddddddddddddddddddddddddddddddddddddddddddd
+ddddddddddddddddddddddddddddddddddddddddddddddddddddddddWISHI WHOS SLDOAKJSD;'LK
+XJUC,ASKH'LK'LSKDJF                                               ddddddd啊打了就删不掉
 了 d                                                                             
                                                                                 
                                                                                 
