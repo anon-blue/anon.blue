@@ -37,8 +37,8 @@ tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
 致所有看到这条信息的人：你并不孤单。即使遭遇挫折，也无法阻止我们彼czxcxzxzcZXcXZcZXxc Z                          
                                                                  sadasdASdSD4naa
 aaaab bb56nnnnnn6444nnaaa5b65555556bbb6b6333bv633vvvvvvvyee4y33vvvvvvvv4633346e5
-745nnn nnnn8555555nrrr5ye a daahahayiliwala fe fdfuf**kblue cscreen!!!wa'ldbf;si
- bf;oihellllfkfkfjfudiididjsjennnnnnnnnnnnnnnnnnntyhgvghgvghggg@yy@@@@@@@@@@@wer
+745nnn nnnn8555555nrrr5ye a daahahayiliwala fe fdfuf**kblue csckjjkjhghghghjghjg
+jghjghjhgghjggwwdjfudiididjsjennnnnnnnnnnnnnnnnnntyhgvghgvghggg@yy@@@@@@@@@@@wer
 tyuuiopffffffff ugug v n''231 hjjjkjksadsadasdsdasddddddddddddddddddddddddddssan
 hnhih ihihihihihihihihiihihihihihihihiihihloveul;loveloveyi he u uuy uuu cnmcnmg
 ggggggffeffmmmmmmmmmmcnmcnm keoeie jj jsbSBidiotvvvvvvvvvvvvvvvvvvvv bnbgvvdfghn
