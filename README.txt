@@ -20,8 +20,8 @@ ftxxyiiiiiiiyu7867iiiiiiiiiiiiiiii ii98asdadsaddsfjlsdkfj9ik,cfdddd1545641621654
 21321654613213en'ziwen'zi'swen'zi'shwen'zi'shiwen'zi'shi'jwen'zi'shi'jiwen'zi'sh
 i'jie文字世界gguhhhha676767676767676767676767676767676767676767676767676767676767676
 7676767676767676767676767676767676767676767676767676767676767676767767676767i,m 
-not ''chink;;''white pig ''''nigger''NO ANY RASICMijoijjjjjjjjjjjjjjjjjjdasasdfa
-dsj fhjjjjjjjjjjjjjjjjjjjjj56jjjjjjj566526jjjjjjjjjjjjjjjjjjjjj5656jjjjjjjjjjjjj
+not ''chink;;''white pigfdsjdskfjlkdsjf;lksdjf;jdsflkjsdf;dijsepofijdscksm;ckMA"
+dokjQ[P0RI43209438R5jjjjjjj56jjjjjjj566526jjjjjjjjjjjjjjjjjjjjj5656jjjjjjjjjjjjj
 jjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjx xzxew awdawdawdwd'ga'f's'd'ref'd'f's'da'a'
 f'd'ga'f 's'd're'gf'd'f's'da'a'f'd'ga'f's'dzhong'wen'bu'guan'yongttttttttttttttt
 tttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttttt
