@@ -4,8 +4,8 @@
          wow                                                                    
            hi hi hi...i ann from england,will someone at there?(haha)           
                                                                                 
-                                     alice 2121 was here__               Hrelll 
-was here.                                                    ljq1231 was hehe///
+                                     alice 2121 was here__no one want to play ga
+mes?                                                         ljq1231 was hehe///
 here.                                                                           
                                                                                 
                                                                                 
@@ -41,8 +41,8 @@ j'h'f
                                                                                 
                                                                                 
                                                                                 
-                                                                                
-                                                                                
+                                            :(            :(:(:(:(:(:(:(:(:(:(:(
+:(:(:(:(:(:(:(:(:(:(                                                            
                                                                       mo        
                                                                                 
                  stay happy everyday!                                           
