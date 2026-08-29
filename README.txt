@@ -1,6 +1,6 @@
                                                                                 
                                                                                 
-                                                                                
+                               where are you from?                              
                                                                                 
                                                                                 
                                                                                 
@@ -17,7 +17,7 @@ here.
      'd'j'h'f's'd'hs'd'j'h'f's'd'h'fs'd'j'h'f's'd'h'f'ks'd'j'h'f's'd'h'f'k'js'd'
 j'h'f                                                                           
                      tiktok!!!         t                tr                      
-                                                                                
+                                        s        stay he                        
                                                                                 
                                                                                 
                                                                                 
@@ -45,9 +45,9 @@ j'h'f
                                                                                 
                                                                      mo         
                                                                                 
+                stay happy everyday!                                            
                                                                                 
-                                                                                
-                                  any    no              r     te               
+                                   any    no              r     te              
                                                                                 
                                                                                 
                                                                                 
