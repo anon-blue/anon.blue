@@ -2,7 +2,7 @@
                                                                                 
                                where are you from?                              
          wow                                                                    
-           hi hi hi...i ann from england,will someone at there?                 
+           hi hi hi...i ann from england,will someone at there?(haha)           
                                                                                 
                                                                          Hrelll 
 was here.                                                    ljq1231 was hehe///
@@ -34,6 +34,7 @@ j'h'f
                                                                                 
                                                                                 
    Hello friend,if you see it night,you can go sleep!                           
+                why there is so messy???                                        
                                                                                 
                                                                                 
                                                                                 
@@ -42,14 +43,13 @@ j'h'f
                                                                                 
                                                                                 
                                                                                 
+                                                                      mo        
                                                                                 
-                                                                     mo         
+                 stay happy everyday!                                           
                                                                                 
-                stay happy everyday!                                            
+                                    any    no              r     te             
                                                                                 
-                                   any    no              r     te              
-                                                                                
-                                                                                
+           if yousee anyone's                                                   
                                                                                 
                                                                                 
                                                                                 
