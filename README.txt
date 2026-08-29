@@ -4,7 +4,7 @@
          wow                                                                    
            hi hi hi...i ann from england,will someone at there?(haha)           
                                                                                 
-                                                                         Hrelll 
+                                     alice 2121 was here__               Hrelll 
 was here.                                                    ljq1231 was hehe///
 here.                                                                           
                                                                                 
@@ -49,8 +49,8 @@ j'h'f
                                                                                 
                                     any    no              r     te             
                                                                                 
-           if yousee anyone's tells,pla///please take F5 to fa//find            
-                                                                                
+           if yousee anyone's tells,pla///please take F5 to fa//find another pla
+ce to leave something,thanks for you!!!                                         
                                                                                 
                                                                                 
                                                                                 
