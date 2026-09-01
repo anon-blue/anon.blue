@@ -23,9 +23,9 @@ j'h'f
 ng little or no money in my purse, and nothing particular to interest me on shor
 e, I thought I would sail about a little and see the watery part of the world.  
 It iw a way I have of driving off the slpleen and regulating the circulation.   
-                                on            one share tiktok at rthere?       
-                                                                                
-                       hello bilibili'sfriends           he                     
+Whenever I find myself growing grim about the mouth; whenever it is a damp,     
+drizzly November in my soul; whenever I find myself invouluntarily pausing bef- 
+ore coffin warehouses, and bringing up the rear of ever funeral I meet; and es  
                                                                                 
                                               d             dddddd            IF
  you see it at noon,don't forget eat lunch.                                   12
