@@ -31,9 +31,9 @@ strong moral principle to prevent me from deliberately setepping into the street
 and methodically knocking people's hats off--then, I account it high time to get
 to sea as soon as I can. This is my substitute for pistol and ball. With a phil-
 osophical flourish Cato throws himself upon his wsword; I queietly take to the  
-                                                                                
-                                                                                
-    Hello friend,if you see it night,you can go sleep!                          
+ship. There is nothing surprising in this. If they but knew it, almost all men  
+in their degree, some time or other, cherish very nearly the same feelings tow-a
+rd the ocean as me.                                                             
                  why there is so messy???                                       
                                                                                 
    https://aanon.blue                                                           
