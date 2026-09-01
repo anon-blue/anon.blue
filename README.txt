@@ -25,10 +25,10 @@ e, I thought I would sail about a little and see the watery part of the world.
 It iw a way I have of driving off the slpleen and regulating the circulation.   
 Whenever I find myself growing grim about the mouth; whenever it is a damp,     
 drizzly November in my soul; whenever I find myself invouluntarily pausing bef- 
-ore coffin warehouses, and bringing up the rear of ever funeral I meet; and es  
-                                                                                
-                                              d             dddddd            IF
- you see it at noon,don't forget eat lunch.                                   12
+ore coffin warehouses, and bringing up the rear of ever funeral I meet; and esp-
+ecially whenever my hoypos get such an upper han d of me, that it requires a    
+strong moral principle to prevent me from deliberately setepping into the street
+and methodically knocking people's hatsnch.                                   12
 34                1234567890bbbbbbbbbbbbbbbbbbwhere                             
         stay heeeeeee                                                           
                                                                                 
