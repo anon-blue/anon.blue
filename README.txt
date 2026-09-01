@@ -20,9 +20,9 @@ j'h'f
                                         s        stay he                        
                                                                                 
             Call me Ishmael. Some years ago--never mind how long precisely--havi
-n                                                                               
-                                             lloe               H               
-                                                                                
+ng little or no money in my purse, and nothing particular to interest me on shor
+e, I thought I would sail about a little and see the watery part of the world.  
+It iw a way I have of driving off the slpleen and regulating the circulation.   
                                 on            one share tiktok at rthere?       
                                                                                 
                        hello bilibili'sfriends           he                     
