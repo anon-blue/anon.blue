@@ -28,9 +28,9 @@ drizzly November in my soul; whenever I find myself invouluntarily pausing bef-
 ore coffin warehouses, and bringing up the rear of ever funeral I meet; and esp-
 ecially whenever my hoypos get such an upper han d of me, that it requires a    
 strong moral principle to prevent me from deliberately setepping into the street
-and methodically knocking people's hatsnch.                                   12
-34                1234567890bbbbbbbbbbbbbbbbbbwhere                             
-        stay heeeeeee                                                           
+and methodically knocking people's hats off--then, I account it high time to get
+to sea as soon as I can. This is my substitute for pistol and ball. With a phil-
+osophical flourish Cato throws himself upon his wsword; I queietly take to the  
                                                                                 
                                                                                 
     Hello friend,if you see it night,you can go sleep!                          
