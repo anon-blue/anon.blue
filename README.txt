@@ -3,8 +3,8 @@
                                where are you from?                              
          wow                                                                    
            hi hi hi...i ann from england,will someone at there?(haha)           
-               bhbhbbhbhbhbjbhbhbjhbhhbnjnkjdkk.lkl                  42432424flr
-jahfilnalfhuehiealg                  alice 2121 was here__no one want to play ga
+               bhbhbbhbhbhbjbhbhbjhbhhbnjnkjdkk.lkl           hhhh64464444444444
+44444444444444444444444444444444444444444444444444444444444444444444444o play ga
 mes?                                                         ljq1231 was hehe///
 here.                                                                           
                                                                                 
