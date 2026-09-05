@@ -1,7 +1,7 @@
                                                                                 
                                                                                 
-                               where are you from?                         kjnk 
-         wow                                                                    
+                               where are you from?                         kjnkd
+dsjh     wow                                                                    
            hi hi hi...i ann from england,will someone at there?(haha)           
                bhbhbbhbhbhbjbhbhbjhbhhbnjnkjdkk.lkl           hhhh64464444444444
 44444444444444444444444444444444444444444444444444444444444444444444444o play ga
@@ -30,7 +30,7 @@ ecially whenever my hoypos get such an upper han d of me, that it requires a
 strong moral principle to prevent me from deliberately setepping into the street
 and methodically knocking people's hats off--then, I account it high time to get
 to sea as soon as I can. This is my substitute for pistol and ball. With a phil-
-osophical flourish Cato throws himself upon his wsword; I queietly take to the  
+osophical flourish Cggo throws himself upon his wsword; I queietly take to the  
 ship. There is nothing surprising in this. If they but knew it, almost all men  
 in their degree, some time or other, cherish very nearly the same feelings tow-a
 rd the ocean as me.                                                             
@@ -39,7 +39,7 @@ rd the ocean as me.
    https://aanon.blue                                                           
                                                                                 
                                                                                 
-                                                                                
+                                              h                h                
                            ALT+F$4 can kill you things!!!                       
                                              :(            :(:(:(:(:(:(:(:(:(:(:
 (:(:(:(:(:(:(:(:(:(:(                                                           
