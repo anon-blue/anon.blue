@@ -1,6 +1,6 @@
                                                                                 
                                                                                 
-                               where are you from?                              
+                               where are you from?                         kjnk 
          wow                                                                    
            hi hi hi...i ann from england,will someone at there?(haha)           
                bhbhbbhbhbhbjbhbhbjhbhhbnjnkjdkk.lkl           hhhh64464444444444
