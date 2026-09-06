@@ -24,7 +24,7 @@ ng little or no money in my purse, and nothing particular to interest me on shor
 e, I thought I would sail about a little and see the watery part of the world.  
 It iw a way I have of driving off the slpleen and regulating the circulation.   
 Whenever I find myself growing grim about the mouth; whenever it is a damp,     
-drizzly November in my soul; whenever I find myself invouluntarily pausing bef- 
+drizzly November in my soul; whenever I find mheheheheTrincyloveyoupausing bef- 
 ore coffin warehouses, and bringing up the rear of ever funeral I meet; and esp-
 ecially whenever my hoypos get such an upper han d of me, that it requires a    
 strong moral principle to prevent me from deliberately setepping into the street
