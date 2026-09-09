@@ -39,22 +39,22 @@ rd the ocean as me.
    https://aanon.blue                                                           
                                                                                 
                                                                                 
-                                              h                h                
-                           ALT+F$4 can kill you things!!!                       
-                                             :(            :(:(:(:(:(:(:(:(:(:(:
-(:(:(:(:(:(:(:(:(:(:(                                                           
-                                                                       mo       
+      1               11232ww'dw'd'fwdf        h                h               
+                            ALT+F$4 can kill you things!!!                      
+                                              :(            :(:(:(:(:(:(:(:(:(:(
+:(:(:(:(:(:(:(:(:(:(:(                                                          
+                                                                        mo      
                                                                                 
-                  stay happy everyday!                                          
+                   stay happy everyday!                                         
                                                                                 
-                                     any    no              r     te            
-                                                                               j
-jjzjjzjdhddssjdjjkwkk😁😂😂😖😖😖😊👿👿👿👿👿👿👿👿ssnjsjsjjsjsjjshjnnanother place to leave so
-mething,thanks for you!!!          9        99o                                 
-  w dfsfdffwerfwer werwertwe                                                    
+                                      any    no              r     te           
+                                                                                
+jjjzjjzjdhddssjdjjkwkk😁😂😂😖😖😖😊👿👿👿👿👿👿👿👿ssnjsjsjjsjsjjshjnnanother place to leave s
+omething,thanks for you!!!          9        99o                                
+   w dfsfdffwerfwer werwertwe                                                   
                                                                                 
                                                                                 
                                                                                 
-                                                                    jaidhhbk3kwa
-sgyfvuourpjaiw hem vwfkhwrkskjh                                                 
-uu'hu9999i                      hn              nj           njjmjmjmjmjmj    mj
+                                                                     jaidhhbk3kw
+asgyfvuourpjaiw hem vwfkhwrkskjh                                                
+ uu'hu9999i                      hn              nj           njjmjmjmjmjmj    m
