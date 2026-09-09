@@ -39,8 +39,8 @@ rd the ocean as me.
    https://aanon.blue                                                           
                                                                                 
                                                                                 
-      1               11232ww'dw'd'fwdf        h                h               
-                            ALT+F$4 can kill you things!!!                      
+      1               11232ww'dw'd'fwdfjjijiajia'yjia'yo加油CCHCHICHINCHINACHINA  
+                                  qq'wq'well you things!!!                      
                                               :(            :(:(:(:(:(:(:(:(:(:(
 :(:(:(:(:(:(:(:(:(:(:(                                                          
                                                                         mo      
