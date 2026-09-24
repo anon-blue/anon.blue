@@ -50,7 +50,7 @@ ggggggggggggggggggggggggggggggggggggggggggggg
                                        asddada'd                        hhi     
        hhihrf                                                                   
                                                                     本以本以为是本以为是外部
-本以为是外部的面本以为是外部的面道居然本以为是外国的面包居然是国内的。本以为是外国的面包居然是国内的。                             
+本以为是外部的面本以为是外部的面道居然本以为是外国的面包居然是国内的。本以为是外国的面包居然是国内的。               s             
        at'this????       wh        lpnoi   w              wh                    
         wcbnfsw                                                                 
                                                                 ^^              
