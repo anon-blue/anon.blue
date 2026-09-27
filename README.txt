@@ -32,29 +32,29 @@ jwjwjwjwjjjjjjn你说你说你不你说你不想在你说你不想在这里你�
 可爱用中文可爱用中文可爱就不能再去你妈的干活我的妈妈妈妈妈妈妈妈妈妈可爱用中文吗？可爱用中文可爱，用中文可爱就不能去你妈的，那我妈妈，妈妈，妈妈，妈妈，妈妈，妈
 妈。可爱用中文吗？可爱用中文可爱，用中文可爱就不能去你妈的，那我妈妈，妈妈，妈妈，妈妈，妈妈，妈妈。让可爱用中文吗？可爱用中文可爱，用中文可爱就不能去你妈的，那
 我妈妈，妈妈，妈妈，妈妈，妈妈，妈妈。让他妈妈               jfklsfj         jfklsfjskdlafjsklafjdklsaj
-fdlksasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasasa
-sasasasasasaerwutiodsfjklrjeiowujfdlksjfldshfasjdkfldsjaklfejwsdalkfjsdklafjsdal
-k;fjds;klajfgweroiruewioruewirweoruieworuwekdlsjfkldsjfdwiorewjklfjdsklajfkoldws
-a                     uuuuhduhjju@@@@@                   knlkjdkergregregrgr\hyk
-hrtygnergnergerg,                       1                     1123dsfwfwggkwl;rg
-klwerkgje;vmkgawkgawkgw'kgwkgwkgs;ksksklgsdgks;dlkgsdlkgsdlkgs'kg;sdkg'sdlkg'sak
-lg;sdkg;'sdklggwegwgfgfggggggggggggggggggggggggggggggggggggggggggggggggggg      
+fdlksas是生命生命生命生命神秘生生命生命生命生命生生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命
+生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命生命聪明生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，
+生命，生命，生命。生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，生命，没事就去没事就去我我去还能我去还能加他我
+去还能加他接了两我去还能加他接了两东西还能加我去还能加他接了两东西还能叫他接我去还能加他接了两东西还能加他接着就我去还能加他接了两东西还能加他接着就还能看我去还
+能加他接了两东西还能加他接着就还能让他在我去还能加他接了两东西还能加他接着就还能他在哪儿我我去还能加他接了两东西还能加他接着就还能他在哪儿我就他们我去还能加他接
+了两东西还能加他接着就还能他在哪儿我就他妈的我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我就在哪。我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪
+，我就在哪。我还没我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我就在哪。我还没加他的ggggggggggggggggggggggggggggggggg
+                                                                                
+    我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我就在哪。我还没加他的精神我说还能感觉自己我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我
+就在哪。我还没加他的精神我说还能感觉自己的我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我就在哪。我还没加他的精神我说还能感觉自己还是了我去还能叫他姐，
+那我去还能叫他姐去，还能看他姐姐在哪，我就在哪。我还没加他的精神我说还能感觉自己还是了姐姐我去还能叫他姐，那我去还能叫他姐去，还能看他姐姐在哪，我就在哪，我在想
+我还能自己我在想我还能自己我我在想我还能自己我现在有我在想我还能自己我现在有今天我在想我还能自己我现在有今天的聊我在想我还能自己我现在有今天的打电话我在想我还能
+自己我现在有今天的聊天我在想我还能自己我现在有今天的聊天在不在我在想我还能自己，我现在渐渐的，渐渐的我现在渐渐的，渐渐的这个这个东西这个东西他这个道理     
                                                                                 
                                                                                 
                                                                                 
+                      asddada'd                        hhi            hhihrf    
                                                                                 
+                                                   本以本以为是本以为是外部本以为是外部的面本以为是外部的面道
+居然本以为是外国的面包居然是国内的。本以为是外国的面包居然是国内的。               sssssssssssssssssssssssssssssss
+sssssssssssssssssssssssssssssssssssssssssssssssssssw                   wcbnfsw  
                                                                                 
-            ggfdg                                                               
+                                               ^^                           2   
+                222222222222222222222222w我dda打d的w我         ;;;                  
                                                                                 
-                                                                                
-                                                                    asddada'd   
-                     hhi            hhihrf                                      
-                                                                                
-                 本以本以为是本以为是外部本以为是外部的面本以为是外部的面道居然本以为是外国的面包居然是国内的。本以为是外国的面包居然是国内的。
-               sssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssssss
-sssssssssssssssssw                   wcbnfsw                                    
-                                                                                
-             ^^                           2                   222222222222222222
-222222w我dda打d的w我         ;;;                                                    
-                                                                                
-           jjjjjjjjjjjjjwoooooooow                                              
+                                           jjjjjjjjjjjjjwoooooooow              
